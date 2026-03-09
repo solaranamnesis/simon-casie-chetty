@@ -8,3 +8,7 @@ English - Plain Text
 English - PDF | Atkinson | Coelacanth | Biolinum | Aurical | Custom01  
 Tamil - Plain Text  
 Tamil - PDF  
+
+## A Catalogue of Books in the Tamil Language.
+
+[Source PDF Link](https://www.jstor.org/stable/45375270?seq=9)
