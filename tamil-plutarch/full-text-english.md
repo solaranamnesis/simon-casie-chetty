@@ -20,96 +20,22 @@ _Aut prodesse volunt aut delectare poetæ._ --- Horace.
 
 ---
 
-Of the languages of the Scythian family the Tamil confessedly 
-occupies the most distinguished rank, and it is peculiar to the people 
-of that part of India, which was formerly under the sway of the CAe- 
-ra^ Cholao.nd Pandiya kings and of those of the eastern and north- 
-ern provinces of Ceylon. The name Tamil, signifying "sweet," is 
-•characteristic of the language. Indeed it is one of the most copious, 
-refined, and polished languages spoken by man, as correctly observ- 
-ed by an accomplished Orientalist*. Villiputtu'rer, in his Intro- 
-ductory stanza to the Baradam which we quote below, metaphorical- 
-ly represents the Tamil language as the daughter of Agastiyer, who 
-being born of the mountain (Pothiya) and cradled in the glory of 
-Pandiyen, sat upon the College bench (at Madura), crawled with 
-her breast on the wrhing (of Sampanter) ascending against the strcam 
-of the Vygai river, stood up amidst the fire unburned (when that 
-writing was cast into it), and afterwards walked on the minds of the 
-students, and now adorns the hip of the goddess of the earth whom 
-( Vishnu, in his metamorphosis as) a boar supported on the point of 
-his tusks. 
+# Preface.
 
-Few nations on earth can perhaps boast of so many poets as the 
-Tamils. Poetry appears to have been the first fixed form of langu age 
-amongst them ; for as has been remarked by Abbe Dubois, "they 
-have not a single ancient book that is written in prose, not even the 
-books on medicine ;" t and hence the poet formed the inalienable 
-part of the philologist, the theologian, the philosopher, the astrono- 
-mer, the physician, etc. The inducements held out to poets and the re- 
-wards bestowed on them by the long line of Pandiya kings, who 
-graced the throne of Madura from the ninth century before to the 
+Of the languages of the Scythian family the Tamil confessedly occupies the most distinguished rank, and it is peculiar to the people of that part of India, which was formerly under the sway of the _Chera_, _Chola_ and _Pandiya_ kings and of those of the eastern and northern provinces of Ceylon. The name Tamil, signifying "sweet," is characteristic of the language. Indeed it is one of the most copious, refined, and polished languages spoken by man, as correctly observed by an accomplished Orientalist.* Villiputtūrer, in his Introductory stanza to the _Baradam_ which we quote below, metaphorically represents the Tamil language as the daughter of Agastiyer, who being born of the mountain (_Pothiya_) and cradled in the glory of Pandiyen, sat upon the College bench (at Madura), crawled with her breast on the writing (of Sampanter) ascending against the stream of the _Vygai_ river, stood up amidst the fire unburned (when that writing was cast into it), and afterwards walked on the minds of the students, and now adorns the hip of the goddess of the earth whom (_Vishnu_, in his metamorphosis as) a boar supported on the point of his tusks.
 
-* Taylor's Preface to Dr. RoTr.ER'» Tamil and English Dictionary, part iv. 
-t Abbe Dubois' Dc8criptioii^o)^tli>jJ^e(ftUi of India, p. '2G0. 
+பொருப்பிலேபிறந்துதென்னன்‌ புகழிலேகிடந்துசங்கத்‌  
+திருப்‌பிலேயிருந்துவைகை யாற்றிலே தவழ்ந்தபேதை  
+நெருப்பிலே நின்றுகற்போர்‌ நினைவிலேநடந்தோரேன  
+மருப்பிலேபயின்றபாவை மருங்கிலேவளருகின்றாள்‌.
 
+Few nations on earth can perhaps boast of so many poets as the Tamils. Poetry appears to have been the first fixed form of language amongst them; for as has been remarked by Abbe Dubois, "they have not a single ancient book that is written in prose, not even the books on medicine;"* and hence the poet formed the inalienable part of the philologist, the theologian, the philosopher, the astronomer, the physician, etc. The inducements held out to poets and the rewards bestowed on them by the long line of _Pandiya_ kings, who graced the throne of Madura from the ninth century before to the fourteenth century after Christ, were most liberal, and might have done honor even to the court of Augustus. These kings had three different _Sangams_, or Colleges established in their capital at three different periods, for the promotion of literature, more or less corresponding in character with the Royal Academy of Sciences founded by Louis 14th at Paris, and made it a rule that every literary production should be submitted to their Senatus Academicus, before it was allowed to circulate in the country, for the purpose of preserving the purity and integrity of the language. It may be well imagined how favorably these _Sangams_ operated on the talent and genius of the nation. From every part of Southern India poets crowded into the _Sanga-mandapam_, or College hall to recite their compositions and the successful candidate besides winning the smiles of Royalty was rewarded with something more enduring and substantial as will appear from Vamshasūdāmani Pandiyen presenting a purse of gold to the poet Tarumi, and Kulēsa Pandiyen honoring the poet Iddeikāder by the gift of a young elephant and a horse, besides gold, and fertile lands. Neither were the kings of _Chēra_ and _Chōla_ backward in patronizing poets; for they had a certain number of them always attached to their courts, and the names of Perumākōthei Chēra and Kulōtunga Chōla are still celebrated, the former for his unbounded munificence towards the poets in general, and the latter towards the poet Ottakūter, the author of the war-chant called _Kalingattu Parani_. There can bo no doubt that an infinite number of works in the different departments of sciences and literature was composed during this brilliant age; but in the early part of the fourteenth century when the Muhammedan hordes poured into Southern India, and Prākrama Pandiyen was led away captive to Delhi, the Tamils had to deplore the loss of almost all their literature; for those ruthless fanatics amongst other outrages ransacked all the libraries in the country, and committed to the flames "all that genius had reared for ages." But auspicious days were yet to dawn upon the Tamils. The power by which they were oppressed has passed away and is succeeded by one destined by Providence to ameliorate their social condition, and advance their intellectual status. With the occupation of India by the British, that nation has introduced into the country every thing that has tended to make its own great. Not only has every facility been afforded for the improvement of the Tamil youth by the establishment of vernacular schools by Government as well as Christian Missionaries, but that mighty engine, the Press, has proved in India as elsewhere the greatest blessing, on the one hand by rescuing from oblivion the remnants of the ancient Native literature, and on the other by enriching it with numerous publications on European arts and sciences.
 
-fourteenth century after Christ, were most liberal, and might have 
-done honor even to the court of Augustus. These kings had three 
-different Sangams, or Colleges established in their capital at three 
-different periods, for the promotion of literature, more or less corres- 
-ponding in character with the Royal Academy of Sciences founded 
-by Louis xiv. at Paris, and made it a rule that every literary produc- 
-tion should be submitted to tlieir Senatus Academicus, before it was 
-allowed to circulate in the country, for the purpose of preserving the 
-purity and integrity of the language. It maybe well imagined how 
-favorably these Sangams operated on the talent and genius* of the 
-nation. From every part of Southern India poets crowded into the 
-Sanga-tnandapafn, or College hall to recite their compositions and 
-the successful candidate besides winning the smiles of Royally was 
-rewarded with something more enduring and substantial as will ap- 
-pear from Vamshasu'da'mani Pandiyen presenting a purse of gold to 
-the poet Tarumi, and Kule'sa Pandiyen honoring the poetlDDEiKA'DEK 
-by the gift of a young elephant and a horse, besides gold, and fertile 
-lands. Neither were the kings of Chera and Choia backward in 
-patronizing poets ; for they had a certain number of them always at- 
-tached to their courts, and the names of Peruma'ko'thei Che'ka and 
-Kulo'tunga Cho'la are still celebrated, the former for his unbounded 
-munificence towards the poets in general, and the latter towards the 
-poet Ottaku'ter, the author of the war-chant called Kalingattu Pa- 
-rani. There can bo no doubt that an infinite number of works in tlie 
-different departments of sciences and literature was composed during 
-this brilliant age ; but in the early part of the fourteenth century when 
-the Muhammcdan hordes poured into Southern India, and Pra'krama 
-Pandiyen was led away captive to Delhi, the Tamils had to deplore 
-the loss of almost all their literature ; for those ruthless fanatics amongst 
-other outrages ransacked all the libraries in the country, and commit- 
-ted to the flames "all that genius had reared for ages." But auspi- 
-cious days were yet to dawn upon the Tamils. The power by which 
-they were oppressed has passed away and is succeeded by one des- 
-tined by Providence to ameliorate their social condition, and advance 
-their intellectual status. With the occupation of India by the British, 
-that nation has introduced into the country every thing tliat has tend- 
-ed to make its own great. Not only has every facility been afforded 
-tor the improvement of the Tamil youth by the establishment of ver- 
-nacular schools by Government as well as Christian Missionaries, hut 
-that mighty engine, tiic Press, has proved in India as elsewhere the 
+*) Taylor's Preface to Dr. Rotler's Tamil and English Dictionary, part 4.
 
+*) Abbe Dubois' Description of the People of India, p. 260.
 
-greatest blessing, on the one hand by rescuing from oblivion the 
-remnants of the ancient Native literature, and on tlie other by enrich- 
-ing it with numerous publications on European arts and sciences. 
-
-It had long been my intention to offer to the public an account of 
-the Lives of our Poets, butthe difficulties -which presented themselves in 
-procuring materials for the work owing to the absence of biographic- 
-al records in Tamil either ancient or modern, was more than I had 
-calculated upon, and I almost resolved to give up the undertaking 
-in despair. Finding however that the traditions current among the 
-people, carefully collected and scrupulously detached from fictitious 
-and ornamental additions such as oriental imagination delights in> 
-would afford the desired information, I was induced to direct my at- 
-tention to that source of knowledge, and the result with all its imper- 
-fections is now before the public. 
+It had long been my intention to offer to the public an account of the Lives of our Poets, but the difficulties which presented themselves in procuring materials for the work owing to the absence of biographical records in Tamil either ancient or modern, was more than I had calculated upon, and I almost resolved to give up the undertaking in despair. Finding however that the traditions current among the people, carefully collected and scrupulously detached from fictitious and ornamental additions such as oriental imagination delights in, would afford the desired information, I was induced to direct my attention to that source of knowledge, and the result with all its imperfections is now before the public.
 
 This work being the first attempt of the kind, must be notwithstand- 
 ing all my vigilance necessarily subject to many inaccuracies and de- 
@@ -117,13 +43,17 @@ fects, for which I solicit the indulgence of the reader and the critic.
 Should my life be spared and should my friends be kind enough to 
 communicate to me such additions or corrections as they think the 
 work needs, I may enlarge and improve it for a new edition at some 
-future period, 
+future period.
 
-S, C. C. 
+S. C. C.
 
-Cliilaw, August 15, 1859. 
+_Chilaw, August_ 15, 1859.
 
-AGASTIYER. --- 
+---
+
+# The Tamil Plutarch.
+
+## Agastiyer. --- அகஸ்தியர்.
 
 The history of Agastiyer being blended with the Hindu Mytholo- 
 gy, it is now difficult to separate the real particulars of his life from 
