@@ -37,13 +37,7 @@ Few nations on earth can perhaps boast of so many poets as the Tamils. Poetry ap
 
 It had long been my intention to offer to the public an account of the Lives of our Poets, but the difficulties which presented themselves in procuring materials for the work owing to the absence of biographical records in Tamil either ancient or modern, was more than I had calculated upon, and I almost resolved to give up the undertaking in despair. Finding however that the traditions current among the people, carefully collected and scrupulously detached from fictitious and ornamental additions such as oriental imagination delights in, would afford the desired information, I was induced to direct my attention to that source of knowledge, and the result with all its imperfections is now before the public.
 
-This work being the first attempt of the kind, must be notwithstand- 
-ing all my vigilance necessarily subject to many inaccuracies and de- 
-fects, for which I solicit the indulgence of the reader and the critic. 
-Should my life be spared and should my friends be kind enough to 
-communicate to me such additions or corrections as they think the 
-work needs, I may enlarge and improve it for a new edition at some 
-future period.
+This work being the first attempt of the kind, must be notwithstanding all my vigilance necessarily subject to many inaccuracies and defects, for which I solicit the indulgence of the reader and the critic. Should my life be spared and should my friends be kind enough to communicate to me such additions or corrections as they think the work needs, I may enlarge and improve it for a new edition at some future period.
 
 S. C. C.
 
@@ -55,166 +49,43 @@ _Chilaw, August_ 15, 1859.
 
 ## Agastiyer. --- அகஸ்தியர்.
 
-The history of Agastiyer being blended with the Hindu Mytholo- 
-gy, it is now difficult to separate the real particulars of his life from 
-those that arc fabulous. This much, however, is certain, that he was 
-a native of A'ryuvarta^ otherwise called Pimyah'humi, or the holy 
-land, situated between the Iinaus and Vind'hya mountains, and that 
-he led the first colony of Bruhmans which settled in Southern India 
-from the north under the auspices of Kulase'k'hara, the founder of the 
-Pdndiyen dynasty at Madura. The fable of his levelling the Vind'- 
-hya mountain, which had elevated its summits even to the skies and 
-impeded the progress of the sun and moon, implies, his passing over 
-it into the south with the Brdlimans from the north ; while the other 
-fable that on the occasion when all the gods and sages assembled to- 
-gether on the Iinaus mountain, to celebrate the nuptials of Siva and 
-Pdrvati the northern part of the earth became depressed, and the 
-southern part elevated, and Siva, dismissed Agastiyer sending him 
-to Pothiya mountain to reduce both parts to the same level, implies, 
-his civilizing the people of the south and rendering them equal to the 
-people of the north in point of civilization. Not only is Agastiyer 
-believed to have difTused the worship of Siva amongst the Tamils, 
-but also to have taught them Medicine, Chemistry, Astronomy, and 
-the other sciences. The legend, however, which attributes to him 
-the invention of the Tamil alphabet, is far from probable. Perhaps 
-he merely enlarged it by inserting in it such of the letters as are now 
-used to represent the sounds of Sanscrit derivatives. Although it 
-cannot be denied that the Tamils owe much of their civilization to 
-Agastiyer, it is nevertheless not to be supposed, that before he ar- 
-rived amongst them they were altogether immersed in barbarism, 
-and that they were not acquainted with the art of writing. Such a 
-supposition is disproved by the existence of a word for "a letter'''' (st 
-g)^^), and another for "a hook'^ (sfsyip,), in the pure Tamil as it was 
-spoken in the primitive times. However it be, there is no doubt that 
-Agastiyer was the first, who arranged the Tamil grammar on the prin- 
-ciples of the Sanscrit, and moulded the Tamil language itself into its 
-present elegant form, and, therefore, justly earned for himself the 
+The history of Agastiyer being blended with the Hindu Mythology, it is now difficult to separate the real particulars of his life from those that are fabulous. This much, however, is certain, that he was a native of _Āryāvarta_, otherwise called _Puṇyabhūmi_, or the holy land, situated between the _Imaus_ and _Vindhya_ mountains, and that he led the first colony of _Brāhmans_ which settled in Southern India from the north under the auspices of **Kulasekhara**, the founder of the _Pāndiyen_ dynasty at Madura. The fable of his levelling the _Vindhya_ mountain, which had elevated its summits even to the skies and impeded the progress of the sun and moon, implies, his passing over it into the south with the _Brāhmans_ from the north; while the other fable that on the occasion when all the gods and sages assembled together on the _Imaus_ mountain, to celebrate the nuptials of _Siva_ and _Pārvati_ the northern part of the earth became depressed, and the southern part elevated, and _Siva_, dismissed Agastiyer sending him to _Pothiya_ mountain to reduce both parts to the same level, implies, his civilizing the people of the south and rendering them equal to the people of the north in point of civilization. Not only is Agastiyer believed to have diffused the worship of _Siva_ amongst the Tamils, but also to have taught them Medicine, Chemistry, Astronomy, and the other sciences. The legend, however, which attributes to him the invention of the Tamil alphabet, is far from probable. Perhaps he merely enlarged it by inserting in it such of the letters as are now used to represent the sounds of Sanscrit derivatives. Although it cannot be denied that the Tamils owe much of their civilization to Agastiyer, it is nevertheless not to be supposed, that before he arrived amongst them they were altogether immersed in barbarism, and that they were not acquainted with the art of writing. Such a supposition is disproved by the existence of a word for "_a letter_" ([TAMIL]), and another for "_a book_" ([]), in the pure Tamil as it was spoken in the primitive times. However it be, there is no doubt that Agastiyer was the first, who arranged the Tamil grammar on the principles of the Sanscrit, and moulded the Tamil language itself into its present elegant form, and, therefore, justly earned for himself the title of _Tamil-muni_, the Tamil sage. His treatise on Tamil grammar is said to have contained no less than 12,000 Sūtras or aphorisms; but with the exception of some fragments which have been preserved in quotations by **Tolkāpiyanār**, in his work on the same subject, it is not now extant. Agastiyer wrote both in Sanskrit, and in Tamil. He is reputed to have written a lakh of verses on theology, an equal number on alchemy, and two lakhs on medicine, but most of the Tamil works commonly ascribed to him are in reality not his productions. In the medical treatise, entitled _Irrunūttanju_ ([TAMIL]), lues veneria, is described under the name of _Paranghiviyādhi_ or "the Portuguese disease," and again in the alchemical treatise, entitled _Pūranasūtram_ ([TAMIL]), sublimate of mercury is described under the name of _Paranghipāshānam_, or "the Portuguese mineral"; hence these two works bear undoubted marks of having been written after the arrival of the Portuguese in India.
 
-title of Tanil'Kinni^ ihe Tamil sage. His treatise on Tamil grammar 
-is ?-.iil to iiave contiiilitd no less than 12,000 Sutras or aphorisms ; 
-but with the exception of some fragments which have been preserved 
-in quotations by Tolka'piyaxa'r, in his work on the same subject, it 
-is not now extant. Agasti} er wrote both in Sanskrit, and in Tamil. 
-He is reputed to have written a lakh of verses on theology, an equal 
-number on alchemy, and two lakhs on medicine, but most of the 
-Tamil works commonly ascribed to him are in reality not his pro- 
-ductions. In the medical treatise, entitled Irrunuitanju {QiSisnptrji^ 
- lues veneria, is described under the name of Paravghiviydd'M^ 
-or "the Portuguese disease", and again in the alchemical treatise, 
-entitled Puranasutram {i^asss:^a0(jw), subliitiate of mercury is de- 
-scribed under the name of P arcmghipdshdnam, or "the Portuguese 
-mineral "; hence these two works bear undoubted marks of having 
-been written after the arrival of the Portuguese in India. 
+As a physician, Agastiyer occupies the same eminence amongst the Tamils as **Hippocrates** does amongst the Greeks, and it is deserving of notice, that there are some very curious coincidences between the doctrines of the former, and those of the latter, especially as regards the prognosis and diagnosis of diseases, the critical days, and premonitory symptoms of death. His knowledge of medicine was confessedly extensive, nor was he less remarkable for his skill in surgery. The story of his having once opened the cranium of a patient, in order to remove a toad, which had lodged itself in the brain, when disentangled from the twist of fable, at once proves that he was acquainted with trepanning; and it should be remarked that the existence of seminal animalcules, which was discovered by **Ludwig Hamm** in Europe only in CE 1677* is mentioned by Agastiyer in one of his medical works, entitled _Kurunādichūtram_ ([TAMIL]).* He was also well skilled in chemistry, especially in that part of it which relates to the analysis and synthesis of minerals, and the vehicles by the aid of which the transmutation of metals is effected.
 
-As a physician, Agastiyer occupies the same eminence amongst 
-the Tamils as Hippocrates docs amongst the Greeks, and it is de- 
-serving of notice, that there arc some tery curious coincidences be- 
-tween the doctrines of the former, and those of the latter, especially 
-as regards the prognosis and diagnosis of diseases, the critical days, 
-and premonitory symptoms of death. His knowledge of medicine 
-was confessedly extensive, nor was he less remarkable for his skill in 
-surgery. The story of his having once opened the cranidhi of a 
-patient, in order to remove a toad, which had lodged Itself in the brain, 
-when disentangled from the twist of fable, at once proves that he was 
-acquainted with trepanning ; and it should be remarked that the ex- 
-istence of seminal animalcules, which was discovered by Ludwig 
-Hamm in Europe only in A. D. 1677* is mentioned by Agastiyer in 
-one of his medical works, entitled Kurunddichutrnm (^g^5mr^^9.#^^ 
-^ff/i))t. He was also well skilled in chemistry, especially in that part 
-of it which relates to the analysis and synthesis of minerals, and the 
-vehicles by the aid of which the transmutation of metals is effected. 
+Agastiyer was a married man. It is said that his wife **Lopāmudra** was a pattern of conjugal affection, who attracted universal admiration on that account, and that he had a son by her named Sāgaren. At what period Agastiyer established himself in Southern India is not known, and it must always remain so until we shall have been able to ascertain the real date of the existence of the king **Kulasekhara Pandiyen**, by whom he was patronized. All accounts concur in assigning the foundation of the _Pandiya_ kingdom at Madura to **Kulasekhara Pandiyen**; but they are at considerable variance with regard to the time when that event happened. Some place it as high up as BCE 1500,* while others bring it down to a later period; but we have reasons to believe that it could not have been later than, at least, the ninth century BCE; for from the fact of **Wijaya**, who founded the _Singhalese_ dynasty in Ceylon in BCE 543, marrying the daughter of a _Pandiyen_, and the _Pandiyen_ sending along with her to Ceylon a retinue of seven hundred daughters of his nobility, together with eighteen officers of state, and seventy five menial servants, besides elephants, horses, and chariots, as recorded in the _Mahawanso_, it would appear that the _Pandiya_ kingdom was not then in its infancy, but fully organized and at the lowest calculation a few centuries old. When Agastiyer left the court of **Kulasekhara Pandiyen_, he is stated to have assumed the ascetic life, and to have retired to the _Pothiya_ mountain, where the Hindus absurdly believe him to be still alive, although invisible to ordinary eyes.
 
-Agastiyer was a married man. It is said that his wife Lopa'mxtdra 
-was a pattern of conjugal affection, who attracted universal admiration 
-on that account, and that he had a son by her named Sa'garen. At 
-what period Agastiyer established himself in Southern India is not 
-known, and it must always remain so until we shall have been able 
-to ascertain the real date of the existence of the king Kulase'k'hara 
-Pandiyen, by whom he was patronized. All accounts concur in as- 
-signing the foundation of the Pandiya kingdom at Madura to Kula- 
-se'k'hara Pandiyen ; but they are at considerable variance with re- 
-gard to the time when that event happened. Some place it as high up 
-as B. C. 1500J, while others bring it dawn to a later period ; but wc 
-have reasons to believe that it could not have been later than, at 
+*) See English Cyclopædia, Biography, Vol. 3. p. 871.
 
-* Sec English C3'clop»'clia, Biography, Vol. iii. p. 871. 
+*) Roberts' Oriental Illustrations of the Sacred Scriptures, p. 281.
 
-•t Robert s' Oriental Illustrations of the Sacred Scriptures, p. 281. 
+*) Taylor's Oriental Historical Manuscripts, vol. 1. p. 135.
 
-t Taylor' s ()iifi.tiil Ilistdriral Mom;: n ] ts, vol 1 p. l"r, 
+Agastiyer was a theist ([TAMIL]) in philosophy, and the Rev. **Mr. Taylor**, who calls him "the prince of Indian doctors," and "one of India's greatest Philosophers," justly observes, that in "so far as a superiority to popular errors is concerned, he may perhaps claim to rank on a level with **Socrates**, or **Plato**." *
 
-least, the ninth century B. C; for from the fact of Wijaya, who 
-founded the Singhalese dynasty in Ceylon in B. C. 543, marrying 
-tlic daughter of a Pandii/oi, and the Pandiyeyi sending along with 
-lier to Ceylon a retinue of seven hundred daughters of liis nobility, 
-together with eighteen officers of state, and seventy five menial ser- 
-vants, besides elephants, horses, and chariots, as recorded in the 
-Mahawanso, it would appear that the Pcmdii/a kingdom was not 
-then in its infancy, but fully organized and at the lowest calculation 
-a few centuries old. When Agastiyer left the court of Kulase'kha- 
-RA Pandiyen, he is stated to have assunied the ascetic life, and to 
-have retired to the Pothiya mountain, where the Hindus absurdly be- 
-lieve him to be still alive, although invisible to ordinary eyes. 
+The following Sanscrit hymns or prayers written by Agastiyer, and which form a part of the _Agastiyer Ashtakam_ as quoted by **Mr. Brown**, in his Essay on the Creed, Customs, and Literature of the Jangamas,* will afford an idea of the sentiments he held regarding the attributes of God.
 
-Agastiyer was a thcist (ejQag^siaeurr^) in philosophy, and the 
-Rev. Mr.Taylor, who calls him "the prince of Indian doctors," and 
-" one of India's greatest Philosophers," justly observes, that in "so 
-far as a superiority to popular errors is concerned, he may perhaps 
-claim to rank on a level with Socrates, or Plato."* 
+[TAMIL]
 
-The following Sanscrit hymns or prayers written by Agastiyer, 
-and which form a part of the Agastiyer Ksktakam as quoted by Mr. 
-Brown, in his Essay on the Creed, Customs, and Literature of the 
-Jangamast, will afford an idea of the sentiments he held regarding 
-the attributes of God. 
+1\. _I salute the great teacher, the bestower of divine happiness and supreme bliss; the image of perfect wisdom; who is removed from all griefs; who is represented by the sky; who is denoted by the "Truth" and other names. The one, Eternal, stainless, stable, and Omniscient, the incomprehensible, who knoweth neither Passion, Partiality nor Folly._
 
+2\. _He who sits on earth at the foot of the fig-tree: who bestows wisdom on all the devout hermits who surround him: Lord and teacher of the universe, the God who is embodied Goodness, him do I salute as the releaser from the bonds of life and death._
 
-1. I salute the great teacher, the hestotcer of divine happiness and 
-supreme bliss ; the image of perfect ivisdom ; who is retnoved from 
-all griefs ; who is represented by the sky ; loho is denoted by the 
-" Truth" and other names. The one., Eternal, stainless, stable^ and 
-Omniscient, the incomprehensible, loho knoweth neither Passion, Par-!- 
-iiality nor Folly. 
+Agastiyer is said to have had twelve disciples to whom he taught the different arts and sciences, and who were afterwards employed by him in instructing the people. The names of these disciples are **Tolkāppiyanār**, **Adankotāsīrīyanār**, **Turālinganār**, **Sempūtcheyanār**, **Vaiyābiganār**, **Vāippiyanār**, **Panambāranār**, **Kazhārambanār**, **Avinayanār**, **Kākeipādiniyanār**, **Nattattanār** and **Vāmanār**; but few particulars are known respecting them.
 
-2. He toho sits on earth at the foot of the fig-tree : who besfon's lois- 
-dom on all the devout hermits tcho surround him: Lord and teacher 
-of the universe, the God who is embodied Goodness, him do I salute 
-(is the releaser from the bojids of life and death. 
+*) Taylors' Oriental Historical Manuscripts, Vol. 1. p. 172. p. 175.
 
-Agastiyer is said to have had twelve disciples to whom he taught 
-the different arts and sciences, and who were afterwards employed 
+*) Madras Journal of Literature and Science, Vol. 11. p. 161.
 
-* Taylors' Oriental Historical Manuscripts, Vol. 1. p. 172. p. 175. 
-'i Bladras Journal of Literature and Seience, Vol. xi. p. 161. 
+## Akkārakkani Nachumanār. --- [TAMIL].
 
-by him in instructing the people. The names of these disciples are 
+This poet, was one of the forty-nine professors of the Madura College, but we are not in possession of any particulars of his life, and of his poetical compositions nothing remains, save the following impromptu, which he uttered on the _Kural_ when that work was submitted to the judgment of the College bench.
 
-TOLKA'PPIYANA'R, AdANKO'TASI'KI'YANA'R, TuRA LINGANA'R, SeMPU'T- 
+[TAMIL].
 
-che'yana'r, Vaiya'bigana'r, Va'ippiyana'r,Panaimba'ka:^a'r, Kazha'- 
-ra.-^ibana'k, Avinay'ana'k, Ka'keipa'diniy'az^a'r, Nattattana'r and 
-Va'mana'r; but few particulars are known respecting them. 
+_The moon full of_ kalei _(the whole of her face being illuminated) pleaseth the external eyes, in like manner as the Kural full of_ kalei _(knowledge) pleaseth the intellectual eyes; but nevertheless she cannot be compared to Valluver's production; for she is neither spotless, does she retain her form and splendour unchanged like it._
 
-AkKA'RAKKANI NaCHUMANA'R J)jdsnjTd<££ufl,-Bj'<3?ISi{^IT. 
-
-This poet, was one of the forty-nine professors of the Madura Col- 
-lege, but wo are not in possession of any particulars of his life, and 
-of his poetical compositions nothing remains, save the following 
-impromptu, which he uttered on the Kural when that work was sub- 
-mitted to the judgment of the College bench, 
-
-esfl'tsoSi:U)Ljl§ITeS>LD^Q^6!Ffl^i"QjS'T'2e\)€36d!7 
-
-61' n^^ IT u^^ iij i^ sar d (g em Q t--- IT ■sij isir (Sf^eij n (jp u 
-un^jSTCSTiuffQesTuiLKm. 
-
-The moon full ofkalei {the ivhole of her face being iiluminated) 
-pleaselh the external eyes, in like manner as the Kural full of kalei 
-(knoivledge) pleaseth the intellectual eyes ; hut nevertheless she cannot 
-be compared to Valluver's production ; for she is neither spotless, 
-does she retain her form and splendour unchanged like it. 
-
-Amirtakavira'yer --- ^iHn^seSnniun. 
+## Amirtakavirāyer. --- [TAMIL].
 
 Amirtakavirayer was a native o^ Ponndnkdl, in the Carnatic. His 
 early display of poetical talents, which were of no mean order, hav- 
