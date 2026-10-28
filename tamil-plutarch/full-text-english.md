@@ -87,192 +87,61 @@ _The moon full of_ kalei _(the whole of her face being illuminated) pleaseth the
 
 ## Amirtakavirāyer. --- [TAMIL].
 
-Amirtakavirayer was a native o^ Ponndnkdl, in the Carnatic. His 
-early display of poetical talents, which were of no mean order, hav- 
-ing attracted the notice of Reghuna'tha Se'tupati, who reigned at 
-Ramnad between A. D. 1649 and 1685, he obtained a place in the 
-court of that king as his encomiast. He composed an erotic poem, 
-under the title of Orutureikkovei (gpt^^eorpiCan'Sinoy^ in honor of 
-his royal benefactor, which is admired as a matchless production of 
-the kind on account of its splendid diction, harmonious versification, 
-and copious poetical imagery ; but as the words used throughout the 
-work have two or more meanings, it puzzles the interpreters. 
+Amirtakavirāyer was a native of _Ponnānkāl_, in the Carnatic. His early display of poetical talents, which were of no mean order, having attracted the notice of **Reghunātha Setupati**, who reigned at Ramnad between CE 1649 and 1685, he obtained a place in the court of that king as his encomiast. He composed an erotic poem, under the title of _Orutureikkovei_ ([TAMIL]), in honor of his royal benefactor, which is admired as a matchless production of the kind on account of its splendid diction, harmonious versification, and copious poetical imagery; but as the words used throughout the work have two or more meanings, it puzzles the interpreters.
 
-AjURTASA'CARER ^LSllT^fflJSrjif. 
+## Amirtasāgarer. --- [TAMIL].
 
-Amirtasiigarcr was a poet of great attainments, but we possess few 
-particulars respecting his life. It appears from the invocation at the 
-beginning of a treatise, which he wrote on Tamil versification, under 
-the title of Karigai (anrPewa), that he was a follower of the Jaina 
-religion ; and Gunasa'garer, his commentator, represents his pro- 
-ficiency in Sanscrit to have been equally as considerable as in Tamil. 
-The above mentioned treatise consists of forty stanzas, which are 
+Amirtasāgarer was a poet of great attainments, but we possess few particulars respecting his life. It appears from the invocation at the beginning of a treatise, which he wrote on Tamil versification, under the title of _Kārigai_ ([TAMIL]), that he was a follower of the _Jaina_ religion; and **Gunasāgarer**, his commentator, represents his proficiency in Sanscrit to have been equally as considerable as in Tamil. The above mentioned treatise consists of forty stanzas, which are composed throughout in the _Kalitturei_ metre, with much elegance, and is inscribed to a lady, whose name, however, the author has not mentioned.
 
-composed tliruiighoul in the KallUurci metre, with much elegance, 
-and is inscribed to a lady, whose name, however, the author has not 
-mentioned, 
+## Anandabhārati Aiyangār. --- [TAMIL].
 
-AnANDABHA'RATI AiYANGA'R ^.-B'b^unff^^UJIbJ-irTli. 
+This poet was the son of **Srīnivāsa Aiyangār, a _Mirasidar_,* who lived at _Umeiyammālpuram_, near Tanjore. He was born in CE 1786. Having commenced his studies at the early age of five before his thirteenth year he gave promise of his future celebrity, by composing a drama of the class, called _Nondi_, in praise of Yāneimelazhagar_, the tutelary deity of his village. Soon afterwards he went with his father to Trivalore, and remained there three years, spending his time in teaching a school. In his fifteenth year he entered the public service, and was successively employed as _Karnam_,* and _Samprati_* of different temples in the Tanjore district, until his twenty-fifth year, when he resigned the office and establishing himself at Tiruvadamarudūr, continued to devote the remainder of his life to literary pursuits. Having composed and recited a drama at the shrine at Tiruvadamarudūr, **Aiyārappa Tambirān**, the _Dharmakarta_* of the shrine, was so much pleased with its exquisite beauty, that he honored him with the gift of a house and garden, and conferred on him the title of _Kavirājaswami_. Amongst his other productions the _Uttara Rāmāyana Kīrtana_ ([TAMIL]), _Desikaprabandham_ ([TAMIL]), _Bhāgavata Dasamaskanda Nādagam_ ([TAMIL]), _Marūdūr Venba_ ([TAMIL]) and _Muppāttirattu_ ([TAMIL]) are much admired, and there are also some hymns composed by him in honor of the _Saiva_ shrines at Trichinapoly, Tirukudantei, Tiruvavaduturei, etc. which do him great credit. He died in CE 1846, in the sixtieth year of his age.
 
-This poet was the son of Sri'niva'sa Aiyanga'r, a Mirasidar* 
-who lived at Umciyammdlpuram, near Tanjoro. He was born in 
-A. D. 1786. Having commenced his studies at the early age of 
-live before his thirteenth year he gave promise of his future celebrity, 
-by composing a drama of the class, called Nondi^ in praise of Ydn- 
-eimelazhagar, the tutelary deity of his village. Soon afterwards he 
-went with his father to Trivalore, and remained there three years, 
-spending his time in teaching a school. In his fifteenth year he en- 
-tered the 'public service, and was successively employed as Karnam,\ 
-and SampratiX of different temples in the Tanjore district, until his 
-twenty-fifth year, when he resigned the office and establishing him- 
-self at Tiruvadamarudur, continued to devote the remainder of his 
-life to literary pursuits. Having composed and recited a drama at 
-the shrine at Tiruvadamarudur, Aiya'rappa Tambira'n, the Bliarin- 
-a/:arta§ of the shrine, was so much pleased with its exquisite beauty, 
-that he honored him with the gift of a house and garden, and confer- 
-red on him the title of Kavirdjaswami. Amongst his other productions 
-the Uttara Rdmdyana Kirtana {p.ff.ff,uanirjnaJ€m§>n^&)Sies!)^ Desika- 
-praband'ham (QsiSaLnS'aufh.^ii), B'hdgavata Basamaskanda Ndda- 
-gam {unsQj0.^,fCD€rOaih^iT,nt-a,ih),Marudur Venba {iDir^^jjnGevccbiun) 
-and Muppdtti7-attu {,jfiuunT,^aiLQi) are much admired, and there are 
-also some hymns composed by him in honor of the Saiva shrines at 
-Trichinapoly, Tirukudantei, Tiruvavaduturei, etc. which do him great 
-credit. He died in A. D. 1846, in the sixtieth year of his age. 
+*) Hereditary landholder.
 
-Andaka Kavivi'rara'gava Mud ELI a' r --- jfji^ssseSiwiranssii 
+*) Accountant.
 
-Andcika Kaviviraragava Mudeliar was an eminent poet, who is 
-said to have been born blind, and by a special gift to have become 
-inspired with poetic spirit. Whether the story of his inspiration bo 
-founded on fact or not he has certainly rendered himself famous by 
-his two poems, one called Kazhukkunda Purdnam {aL£a^6sirr)ULjatr 
-essfib) and the other Kazhukkunda Mdlei {aL§a^6bromn6i£\)), which 
-he composed in praise of the Saiva shrine on the Kazhukkunda moun- 
-tain, in the Carnatic. His Kazhukkunda Mdlei is confessedly a splen- 
-did production; but like other Tamil poems it is replete with hyper, 
-boles. We here extract a stanza from it as a specimen : 
+*) Auditor of accounts.
 
-* Hereditary landholder. 
-t Accountant. 
-t Auditor of accounta.' 
-§ Manager or Supervisor. 
+*) Manager or Supervisor.
 
+## Andaka Kavivīrarāgava Mudeliār. --- [TAMIL].
 
-SnQL-^LD&5I63T(i^ & p S n eO'hsSST .S (^ ik S(t£-i(^GSrpQLD. 
+Andaka Kavivīrarāgava Mudeliār was an eminent poet, who is said to have been born blind, and by a special gift to have become inspired with poetic spirit. Whether the story of his inspiration be founded on fact or not he has certainly rendered himself famous by his two poems, one called _Kazhukkunda Purānam_ ([TAMIL]) and the other _Kazhukkunda Mālei_ ([TAMIL]), which he composed in praise of the _Saiva_ shrine on the _Kazhukkunda_ mountain, in the Carnatic. His _Kazhukkunda Mālei_ is confessedly a splendid production; but like other Tamil poems it is replete with hyperboles. We here extract a stanza from it as a specimen: 
 
-He. lolio rides the haU, wearing the moon on his head, and holding 
-the skull of Brdhma in his haiid, has his dwelling in Kazhukkundam^ 
-where the sican jnistaking for her eggs the pearls scattered hy the 
-chunks* on the sheaves of corn, cut by the hushandmen^ gathers them 
-under her wings and broods over them. 
+[TAMIL].
 
-The following is a poetical epistle, which he addressed to a no- 
-bleman soliciting a boon ; 
+_He who rides the bull, wearing the moon on his head, and holding the skull of Brāhma in his hand, has his dwelling in Kazhukkundam, where the swan mistaking for her eggs the pearls scattered by the chanks* on the sheaves of corn, cut by the husbandmen, gathers them under her wings and broods over them._
 
-cj L---nuS!{nijQ-!Bm^Quj(ip^mx)p^U!€w^ Q^(Lp^uui^^^s3rr,ss3r---^ 
+The following is a poetical epistle, which he addressed to a nobleman soliciting a boon;
 
-^uesrSffLDoSiS'^^^SixiLj'SEi^Qupp ^,-Hu^(oinsQ6dQ3^sjr^-Q^€sruiT 
+[TAMIL].
 
-^^i^QFfSuQiOfSiun^^is^isiJDupfSiQsiTeon^QsnesBrih-upSijn^Qans 
-semp ucm^^Qansai---QenthwoSii--- uSpQ(ffi^n^(^iB^LD --- (^i---n^urr 
-i^eOm Lj^su n^LDnGsiJ!T®Q^nQ^^ Qpisf.iuns^s^Ls.eOil.-Qs^nmesiQs^np 
-Qfrrdoeon^Q&r'bofTQujnenOpia^is^^dseiJiTeSi---doQeiiesorSlQui. 
+*) A species of Voluta found in corn-fields.
 
-Anthonikutty ANNA'viyA'a --- ^iQ^n€iSi(^ili^iuem(^eSiunn. 
+## Anthonikutty Annāviyār. --- [TAMIL].
 
-Anthonikutty Annaviyar was born at Manapar, in the Tinnevelly 
-district, and was contemporary with the celebrated Father Beschi. 
-Some say that he was a Parava, and others that he was a Yiluva by 
-caste ; but be this as it may, he was the best of the poets that ever 
-flourished amongst the Tamil Catholics, Having in the early part 
-of his life indulged himself in licentious pleasures without restraint, 
-and despised the admonitions of the clergy, he was excommunicated 
-from the church, but by a miraculous interference as in the case of 
-St. Augustine, he forsook his dissolute career and for the remainder 
-of his life employed all his poetical talents in singing the praises of 
-the Redeemer. All his poems have been recently collected in a 
-single volume, and edited at Jaffna, under the title of "Christian 
-Psalmody" and, as the Editor in his introduction justly observes, 
-they arc "without parellel in piety, in strains, and in melody," and 
-they "form not only one of the most efficient helps to piety and de- 
-votion, but a pleasing instructor in the doctrines, precepts, and duties 
-pf our holy religion." 
+Anthonikutty Annāviyar was born at _Manapar_, in the Tinnevelly district, and was contemporary with the celebrated Father **Beschi**. Some say that he was a _Parava_, and others that he was a _Yiluva_ by caste; but be this as it may, he was the best of the poets that ever flourished amongst the Tamil Catholics. Having in the early part of his life indulged himself in licentious pleasures without restraint, and despised the admonitions of the clergy, he was excommunicated from the church, but by a miraculous interference as in the case of St. **Augustine**, he forsook his dissolute career and for the remainder of his life employed all his poetical talents in singing the praises of the Redeemer. All his poems have been recently collected in a single volume, and edited at Jaffna, under the title of "Christian Psalmody" and, as the Editor in his introduction justly observes, they are "without parellel in piety, in strains, and in melody," and they "form not only one of the most efficient helps to piety and devotion, but a pleasing instructor in the doctrines, precepts, and duties pf our holy religion."
 
-Appa'vaiyer --- cg^' ju/rsjoafoj/f. 
+## Appāvaiyer. --- [TAMIL].
 
-Appavaiyer, a poet and astronomer of considerable celebrity of 
-■yvhosc personal history however nothing is known, except that he was 
+Appāvaiyer, a poet and astronomer of considerable celebrity of whose personal history however nothing is known, except that he was a _Jaina Brāhman_. The _Tāndava Mālei_ ([TAMIL]), an Astronomical treatise which he wrote is in great repute in Southern India, and it comprises in sixty-eight stanzas the substance of the whole of the _Horāsāra_, _Parāsārya_, and other Sanscrit works on astronomy. It was written under the patronage of _Tāndavārāyen_, a wealthy merchant of Nellikuppam after whom it has been named.
 
-* A gpecies of Voluta fojnd in cornfields. 
+## Apper. --- [TAMIL].
 
-a Jdina Brdhman. The Tcindava Mulci (s;nsmi-6uil>ne)Co), an As- 
-tronomical treatise which lie wrote is in great repute in Southern In- 
-dia, and it comprises in sixty-eight stanzas the substance of the whole 
-of the Hordsdra, Pardsdrya, and other Sanscrit works on astronomy. 
-It was written under the patronage of Tdndardi'di/cii, a wealthy mer- 
-chant of Nellikuppani after whom it has been named. 
+Apper, otherwise called _Vākiser_, was born at _Tiruvāmur_, a town situated on the Pennei river in the Carnatic. His father **Pugazhanār**, and his mother **Mādini** were both of the tribe of _Kurukkei Velālers_. Being staunch _Saivas_, they brought up Apper and his sister **Tilakavati**, in their own religion; but no sooner had they died than he entered a _Jaina_ monastery at Pātaliputra, and having studied the _Jaina_ books embraced their creed, and became their high priest, under the title of _Dharmasena_. Sometime afterwards he was attacked with arthritis in his stomach which continued to baffle all medical efforts. His sister **Tilakavati**, who zealously adhered to the worship of _Siva_, availing herself of the opportunity, endeavored to persuade him into a belief, that his disease was a punishment from _Siva_ for his apostacy. He yielded to her persuasions, and in the dead of night, flying from the _Jaina_ monastery went to Tiruvathigai, where his sister resided, and throwing off the robe, resumed the _Saiva_ marks, by rubbing his forehead with ashes, and wearing a necklace of _Ruddrāksha_ beads around his neck. His subsequent history is entirely involved in fable. It is said that when his relapse was reported by the _Jainas_ to their king **Pallavarāyen**, he sent for him, and after having tried to kill him by successively casting him into a burning lime-kiln, exposing him to an infuriated elephant, and poisoning his food, without any effect, had him thrown into the sea with a stone tied to his neck, but he was miraculously preserved from being drowned, the stone which was tied to his neck serving him as a float to reach the port of Pādripuliyār in safety. One thing however is certain, that after his return to _Saivaism_, he labored assiduously to supplant the _Jaina_ religion throughout the Southern India, in conjunction with **Sampanter** and **Sundarer**. He is reputed, to have composed no less than 49,000 _Pathigams_, (each consisting of ten stanzas), in praise of the different _Saiva_ shrines, which he visited, but they have all perished, except 312. His epoch is uncertain, but as he and his collaborators are eulogized in the Introductory stanzas of the _Kandapurānam_, a work written in CE 778, as deified heroes, we are inclined to place it, at least, two or three centuries before that period; for the author of the _Kandapurānam_ could not have imposed on the credulity of the people, by representing them as objects of divine worship, at a period close to their existence. In the latter part of his life he fixed his abode at Tiruppugalūr, where he continued to minister in the temple until his death, which occurred when he had attained the advanced age of eighty one.
 
-Apper, otherwise called Vdkiscr, was born at Tinivdrnur, a town 
-situated on the Pennei river in the Carnatic. His father Pugazha- 
-na'r, and his mother Ma'dini were both of the tribe of Kurukkci 
-Veldlers. Being staunch Saivas, they bi-ought tip Apper and his 
-sister Tilakavati, in their own religion ; but no sooner had they 
-died than he entered a Jaina menastery at Pataliputra, and having 
-studied the Jaina books embraced tlieir crcfsd, and became their 
-high priest, under the title of Dhannasena. Sometime afterwards he 
-was attacked with arthritis in his stomach which continued to baffle 
-all medical efforts. His sister Tilakavati, who zealously adhered 
-to tho worship of Siva, availing herself of the opportunity, endeavor- 
-ed to persuade him into a belief, that his disease was a punishment 
-from Siva for his apostacy. He yielded to her persuasions, and in 
-the dead of night, flying from the Jaina monastery went to Tiruva- 
-thigai, where his sister resided, and throwing off the robe, resumed 
-the Saiva marks, by rubbing his forehead with ashes, and wearing a 
-necklace of Rnddrdksha beads around his neck. His subsequent his- 
-tory is entirely involved in fable. It is said that when his relapse 
-was reported by the Jainas to their king Pallav ara'yen, he sent for 
-him, and after having tried to kill him by successively casting him 
-into a burning lime-kiln, exposing him to an infuriated elephant, and 
-poisoning his food, without any effect, had liim thrown into the sea 
-with a stone tied to his neck, but he was miraculously presex'ved from 
-being drowned, the stone which was tied to his neck serving him 
-as a float to reach the port of Padripuliyar in safety. One thing 
-however is certain, that after his return to Saivaism, he labored as- 
-siduously to supplant the Jaina religion throughout the Southern In- 
-dia, in conjunction with Sajipanter and StrNDARER. He is reputed, 
-to have composed no less than 49,000 Pathigams, (each consisting 
-often stanzas), in praise of the difterent Saiva shrines, which he vis- 
-ited, b\u they have all perished, except 312. His epoch is uncertain,- 
-but as he and his collaborators are eulogized in the Introductory 
-stanzas of the Kandapurdnam, a work written in A. D. 778, as deifi- 
-ed heroeSj we are inclined to place it, at least, two or three centu- 
-ries before that period ; for the author of the Kandapurdnam could 
-not have imposed on the crcduUty of the people, by representing- 
-them as objects of divine worship, at a period close to their existence. 
-In the latter part of his life he fixed his abode at Tiruppugalurf 
-where he continued to minister in the temple until his death, which 
-occurred when he had attained the advanced age of eighty one. 
+## Arasakesari. --- [TAMIL].
 
-Arasakk'sari --- ^j^QsffiB. 
+Arasakesari was no less a personage than the younger brother of the king **Pararāja Sekhara Chakravarti**, who reigned at Jaffna towards the close of the fifteenth century of the Christian era. He was not only skilled in Tamil, but also in Sanscrit, which enabled him to produce a very highly finished imitation of **Kālidasa's** _Reghuvamsa_ in Tamil under the same title, in 2,444 stanzas, arranged in 26 chapters.
 
-Afasrikt'-sarl was no less a personage than the younger broilier of 
-the king Paraka'ja Se'k'hara Chakravarti, who reigned at Jaffna 
-towards ihe close of the fifteenth century of the Christian era. He 
-was not only skilled in Tamil, but also in Sanscrit, which enabled him 
-to produce a very highly finished imitation of Ka'lidasa's Reghuvam- 
-sa in Tamil under the same title, in 2,444 stanzas, arranged in 26 
-chapters. 
+## Arisitkizhar. --- [TAMIL].
 
-AniSlTKlZlIAR --- '^iB^pQifinfr. 
+No particulars of the life of this poet have been preserved. All that is known of him is that he was one of the forty-nine professors of the Madura College, and that the following impromptu was uttered by him on the _Kural_.
 
-No particulars of the life of this poet have been preserved. All 
-that is known of him is that he was one of the forty- nine professors 
-of the Madura College, and that the following impromptu was uttered 
-by him on the KuraJ. 
+[TAMIL].
 
-Who else but Valluvar is able to separate according to their ordei^ 
-oil ihe things tohich xoere blended together in the Vedas, and to im- 
-part them to the loorld in a condensed form and loith due amplification. 
+_Who else but Valluvar is able to separate according to their order all the things which were blended together in the Vedas, and to impart them to the world in a condensed form and with due amplification._
 
 ArUNANTI ^(T^eSOTlh^. 
 
