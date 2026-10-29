@@ -143,183 +143,53 @@ No particulars of the life of this poet have been preserved. All that is known o
 
 _Who else but Valluvar is able to separate according to their order all the things which were blended together in the Vedas, and to impart them to the world in a condensed form and with due amplification._
 
-ArUNANTI ^(T^eSOTlh^. 
+## Arunanti. --- [TAMIL].
 
-Arunanti, styled SakaUgama Panditer* , was a Saiva ascetic of 
-Tureiyur in the Carnatic, equally distinguished as a poet and philo- 
-sopher. The date of his birth and death is not known, but it appears 
-that he was a pupil of Meikanda De'ver, who flourished at Vennei- 
-nellur in the eleventh century of the Christian era. He has trans- 
-mitted his name to posterity by a voluminous treatise on the Saiva 
-system of metaphysics and theology under the title of Sii'agn«ina 
-Sitti (,^5i;65iT65T#fl;^), and which is generally consulted as the best 
-authority on the subject. 
+Arunanti, styled _Sakalāgama Panditer_,* was a _Saiva_ ascetic of _Tureiyūr_ in the Carnatic, equally distinguished as a poet and philosopher. The date of his birth and death is not known, but it appears that he was a pupil of **Meikanda Dever**, who flourished at Venneinellūr in the eleventh century of the Christian era. He has transmitted his name to posterity by a voluminous treatise on the _Saiva_ system of metaphysics and theology under the title of _Sivagnāna Sitti_ ([TAMIL]), and which is generally consulted as the best authority on the subject.
 
-Aruna'ciiala Kavira'yer --- ^(T5(€OT)^6oi«a9ir/ruj/f. 
+*) A title of honor somewhat analogous to that of Doctor of the Law among the Jews.
 
-This poet was born at Tilleiyidi, near Tranquebar A. D. 1712. 
-His parents were both of the Velala caste and appear to have occu- 
-pied a respectable position in society. From his fifth to his twelfth 
-year he studied Tamil in a school in his own village, and on the 
-death of his parents which happened about this time, he removed to 
+## Arunāchala Kavirāyer. --- [TAMIL].
 
-* A title of honor somewliat analogous to that of Doctor of tl)c Law among 
-the Jews. 
+This poet was born at _Tilleiyādi_, near Tranquebar CE 1712. His parents were both of the _Velala_ caste and appear to have occupied a respectable position in society. From his fifth to his twelfth year he studied Tamil in a school in his own village, and on the death of his parents which happened about this time, he removed to the _Matam_* at Dharmapuram, where under the tuition of several learned _Tambirāns_, he was enabled to pass through a distinguished course in the Sanskrit and Telugu languages, and also became very proficient in the _Saia_ system of metaphysics and theology. His great abilities naturally attracting the attention of the _Tambirāns_, induced them to try to secure his services, by persuading him to become like one of themselves, with an offer at the same time to make him the superior of their _Matam_; but he excused himself on the ground that matrimony was preferable to celibacy. He however did not enter into the married state until his thirtieth year, remembering the old adage "_Vīvāham Vidhya nāsti_," marriage injures learning. When he did marry, he commenced business as a banker, but his love of literature was so great that he never allowed the cares of his calling to interfere with his studies, and he devoted all his leisure hours in reciting and expounding to his friends **Kamben's** _Rāmāyanam_, which he esteemed as surpassing all other works, not even excepting **Tiruvalluver's** _Kural_. In 1754 having had an occasion to go to Pondicherry, he put up for a night on the way in the _Matam_ at Shiyally. It so happened that the _Tambirān_ this _Matam_, named **Sidambara Pillei**, was one of his fellow students at Dharmapuram, and who therefore quite rejoiced at meeting him after a long separation was loth to part with him on the morrow. The _Tambirān_ had recourse to an artifice, with a view to delay his journey. Shewing him an unfinished _Pallu_* which he had commenced years ago, and laid aside for want of leisure, requested him to finish it for him before he left Shiyally, and the request being acceded to, they both parted for the night. Arunachala Kavirayer finished the poem in the course of the same night, and leaving the manuscript with a servant, to be delivered to the _Tamirān_, when he awoke, resumed his journey before day-break. Though the _Tambirān_ was at first vexed at his friend's abrupt departure, yet when the servant handed over to him the poem, which he found quite complete, his admiration for him increased two-fold, and he determined to make him settle altogether in his neighborhood. He had a house erected, and by means of a stratagem, which can only be pardoned when we consider the purity of his intention, he sent word to the poet's wife, that her husband had on his way to Pondicherry requested him to send for her and her children, and settle them in the house; and the deception proved entirely successful. When Arunachala Kavirāyer on his way back from Pondicherry called again at Shiyally, and sought a lodging in the _Matam_, the _Tambirān_ after feigning to be very angry with him for his unceremonious departure on the former occasion, took him out for a walk, and at once introduced him to his family. When the first moment of surprise had worn away he felt very gratified at all that the kindness of the _Tambirān_ had prompted him to do, and consented to make Shiyally his permanent residence for the future.
 
+*) A sort of convent, whore Hindu Devotees dwell together.
 
-tilt! Mdlam* at ])lianvirii)uran), wliorc uiidni" tlit; tuition of several 
-lcarne Tamhirans^ he was enabled to pass throiigli a distinguished 
-course in the Sanskrit and Telugu langUagrjs, and also became very 
-proficient in thn Sairo system of metapliysics and theology. Ilia 
-great al)ilitics naturally attracting the attention of tlie Tatnbii'f'ns, in- 
-duced tlicni to try to secure his services^ by persuading him to become 
-like one of themselves, with an offer at the same time to make him 
-the superior of their Malam ; but lie excused himself on the ground 
-that matrimony was preferable to celibacy. Ho however did not 
-enter into the married state until his thirtieth yt^ar, remembering the 
-old adage "Vivc'ihom Vidhya lui.sti,'''' marriage iujures learning. 
-When he did marry, he commenced business as a banker, but his 
-love of literature was so great that he never allowed the Caves of his 
-calling to interfere with his studies, and he devoted all his leisui-e 
-hours in reciting and expounding to his friends Kamben's Ruinayan- 
-a7n, which he esteemed as surpassing all other works, not even ex- 
-cepting Tiruvalluver's Kural. In 1754 having had an occasion 
-to go to Pondichcrry, he put up for a night on the way in the Matam 
-at Shiyaliy. It so happened that the Tamhirdnoi this Matam, named 
-SiDAMBARA Pii.LEi, was onc of Iiis ffllow studcuts at Dharmapu- 
-ram, and who therefore quite rejoiced at meeting him after a long 
-vscparation was loth to part with him on the morrow. The Tambirdn 
-had recourse to an artifice, with a view to delay his journey. Shew- 
-ing him an unfinished Pallu^i which he had commenced years ago, 
-and laid aside for want of leisure, requested him to finish it for him 
-before he left Shiyaliy, and the request being acceded to, they both 
-parted for the night. Aranachala Kavirayer finished the poem in 
-tlje course of the same night, and leaving the manuscript with a ser- 
-vant, to bo delivered to the Tamhirdn, when he awoke, resumed his 
-journey before day-break. Though the Tambirdn was at first vex- 
-ed at his friend's abrupt departure, yet when the servant handed 
-over to. liim the poem, which he found quite complete, his admiration 
-for him increased two-fold, and he determined to make him settle al- 
-together in his neighborhood. Ho had a house erected, and by means 
-of a stratagem, which can only be pardoned when we consider the 
-purity of his intention, he sent word to the poet's wife, that her hus- 
-band had on his way to Pondicherry requested him to send for her 
-and her children, and settle them in the house; and the deception 
-proved entirely successful. When Arunachala Kavirayer on his way 
-back from Pondicherry called again at Shiyaliy, and sought a lodging 
-in the Matam, the Tambirdn after feigning to be very angry with 
-him for his unceremonious departure on the former occasion, took 
-him out for a walk, and at once introduced him to his family. When 
+*) A poem in inmitation of the action of a _Palla_, one of the lowest orders of agriculturists among the Tamils.
 
-* A sort of convent, whore Hindu Devotees dwell together. 
-\ A poem ill iimiitation of the action (jf a Valid, o.xti of the louest orders of 
-agriciihurists among the Tamils. 
+The earliest poetical compositions of Arunāchala Kavirāyer were the _Asomuki Nādagam_ ([TAMIL]), _Shīrkāzhi Purānam_ ([TAMIL]), _Shīrkāzhi Kovei_ ([TAMIL]) and _Anumār Pilleitamil_ ([TAMIL]); but what has secured for him a lasting fame is the _Rāma Nādagam_ ([TAMIL]), a drama founded on the exploits of _Rāma Chandra_, and which he composed when he was sixty years old. After he had submitted the _Rāma Nādagam_ to the criticism of the savans at Sirangam, he purposed to recite it in the presence of **Tulaji Mahārāja**, the king of Tanjore, but as the place was then beseiged by the army of **Nawab Madār Mulk**, he could not gain access to him. He therefore went to Pondicherry to recite it before **Ānandarnga Pillei**, a noble personage there, who however not wishing to hear it prior to its recital at the court, referred him to **Manali Muttukishna** _Mudeliar_, one of the celebrities of Madras. On reaching Madras, he addressed the followmg poetical epistle to the _Mudeliar_ requesting him to be allowed to recite the drama before him:
 
-tlir> tifst moment of surprise had worn away lie fe!t vcrv jjratifictl at 
-ii'A tliat the kindness of tlie Tamhir.n had prompted him to do, and 
-consonted to make Shiyally his permanent residence for th.e fuuire. 
-Tlio earliest poetical compositions of Arnnachala Kavir;'iyer were 
-the Aso?niik:i Nt'doiiani {^IfiTr^Smi-^ub), S.'iir/:„zhi Fiiraiiam {Sh 
-sin^u:_jj.isu5'ih ', S/iirkiizhi Kocei {Sns^iS'AQ inoisinu) and Aiuimat'' 
-PlUcitainil (^oSi;ts)rirn3crTaDn§:a,i^ih) ; Inn what has secured for hmi a 
-lasting fiune is the R'ima Ntidagain {QjnUjir.ni-inh), a drama found- 
-ed on the exploits of Rama Chandra, and which he composed when 
-he was sixty years old. After he had submitted th<3 Rama N'tdogam 
-to the criticism of the savans at Siran<i;am, he pi:;.rposed to recite it 
-in the presence of Tulaji Maharaja, thekinor of Tanjore, hut as the 
-place was then beseiged by the army of Nawab Mada'k MuLK,he could 
-not gain access to him. He therefore went to Pondicherry to recite ^'t 
-before A'nandarnga Pillei, a noble personage there, who however 
-not wishing to liear it prior to its recitul at the court, referred him to 
-MxyALi MvTTh'Kisusx Mudcliar, one of the celebrities of Madras. 
-On reaching Madras, he addressed the followmg poetical epistle t(> 
-the JMudrUar requesting him to be allowed to recite the drama be- 
-fore him : 
+[TAMIL].
 
-Hail! OMxiXTVKin-ii?! A, thou skilled in all langi{agr.
-Under thr 
-benignant auf^picr.s of Sirakdml^ the goddess of Til/ci {Chillamhram), 
-who imparts hcaecnig bliss and wisdom, and whom the gods adore^ 
-thou art every where commended by the kings of the earthy as one true 
-to his word. I am the Nymphaea flower, which expands at night, and 
-thou art the moon ; I am the corn, and thou art the raining cloud ; 
-I am the lotus-flower {which expands at day), and thou art the sun; 
-J am the child, and thou art t/ie father ; and I am the poet, and thou 
-art the Pdndya king. I am coming to wait on thee jcith the sacred 
-Rlnu'iynnam, to obtain thy fac or. I shall explain its meaning as 
-7nuch as I know, and it is for thee to hear it. 
+_Hail! O Muttukishna, thou skilled in all languages! Under the benignant auspices of Sīvakāmi, the goddess of Tillei (Chillambram), who imparts heavenly bliss and wisdom, and whom the gods adore, thou art every where commended by the kings of the earth, as one true to his word. I am the Nymphaea flower, which expands at night, and thou art the moon; I am the corn, and thou art the raining cloud; I am the lotus-flower (which expands at day), and thou art the sun; I am the child, and thou art the father; and I am the poet, and thou art the Pāndya king. I am coming to wait on thee with the sacred Rāmāyanam, to obtain thy favor. I shall explain its meaning as much as I know, and it is for thee to hear it._
 
-This epistle having been favorably received by tlie Mudeliar, ho 
-had the satisfaction of reciting his work before him, and the follow- 
-ing impromptu, which he uttered on the occasion, commeniorates 
-the high honors, and munificient presents bestowed on him Ijy this 
-i^tiii2uished individual. 
+This epistle having been favorably received by the _Mudeliar_, he had the satisfaction of reciting his work before him, and the following impromptu, which he uttered on the occasion, commemorates the high honors, and munificient presents bestowed on him by this distinguished individual.
 
-lie i^are me the prodiiets of the different countries : 
+[TAMIL].
 
-He gave me encouragement, he gave me a icreath to he team on the 
+_He gave me gold, and heaped riches upon me;_  
+_He gave me the products of the different countries;_  
+_He gave me encouragement, he gave me a wreath to be worn on the head;_  
+_He gave me honor, by seating me on the poetic throne;_  
+_He gave me his friendship, he gave the history of Rāma to all;_  
+_He gave me a name as the Rāmāyanic poet;_  
+_He gave me food, he gave me a house;_  
+_He gave me pleasure both even in the present and future life,_  
+_So gave he Manali Muttukishna, who cherishes the world._
 
-head:; 
-He gave me hnnnr, hi/ seating me on the jwetic throne ;■ 
-He gave me his friendship, kc gave the history of Rama to all ; 
-He gaee me a name as the Romayanic poet ; 
-Hi' gare me food, he gare mc a house ; 
+Sometime afterwards **Tulaji Maharāja** having become reconciled with the **Nawab**, Arunāchala Kavirāyer found admittance into the king's presence, and had the honor of reciting the drama before a full durbar, and was handsomly rewarded by the king.
 
-He gace me pleasure both even in the present and future life, 
-So gave he Manali Muttukishna, who cherishes the icorld. 
+It appears that in the latter years of his life a gloom having overspread his mind, he assumed the garb of a _Saiva Pandāram_, and lived in retirement at Shīyally, where he died in CE 1779, at the age of sixty-seven.
 
-Sometime afterwards Tulaji Mahara'ja having become recon- 
-ciled with the Nawab, Arunachala Kavirayer found admittance into 
-the king's presence, and had the honor of reciting the drama before 
-a full durbar,' and was handsomly rewarded 'by the king. 
+## Arunaghiri Nāther. --- [TAMIL].
 
-It appears that in the- latter years of his life a gloom having ovorr 
-spread his mind, he assumed the garb of a Saiva Panddram, and' 
-lived. in retirement at Shiyally, where he died in A. D, 1779, at the 
-age of sixty-seven. 
+Arunaghiri Nāther was an eminent poet, who from his entire devotedness to the worship of _Siva_, renounced the world and assuming the life of an ascetic, lived and died at the _Siva_ fane at Trinomali, in the Carnatic. His compositions are of a religious character, and in praise of _Skanda_, the Hindu Mars. They are as follows: _Kanden Alangkāram_ ([TAMIL]), _Kanden Anubhūdi_ ([TAMIL]), _Kanden Antādi_ ([TAMIL]), _Tiruvaguppu_ ([TAMIL]), and _Tiruppugazh_ ([TAMIL]). This last work containing a series of 100 stanzas, being enriched by a splendid and harmonious flow of diction, has gained great popularity amongst the _Saivas_, who generally have it recited, when any member of their sect is at the point of death. Arunaghiri Nāther was also the author of a short harmonic poem, entitled _Udatkūtu Vannam_ ([TAMIL]), descriptive of the different stages of human life, which together with an abridged translation of it in English, by the Rev. Mr. **Roberts**,* as revised by us we here subjoin:
 
-Arunaghirl Nathcr was an eminent poet, who from his entire no- 
-votedncss to the worship of Siva, renounced the world and assumnig 
-tlie life of an ascetic, lived and died at the Siva fane at Trinomali, 
-in the Carnatic. His compositions aro of a roHgioiis character, and 
-in. pra'se of Skanda, th(j Hindu Mars. They are as follows : Kan- 
-den Alangkaram (cfis^oNetxaanaio), Kanden Anuhhudi (ams^oOTgiy, 
-^), Kanden Antddi {iih^m&ffjn^'), Tiriivaguppu {^^^eu^uL]), and 
-Tiruppugazh (^(^uqstp). This last work_ containing a series of 
-100 stanzas, being enriched by a splendid and harmonious flow of 
-diction, has gained great popularity amongst the Saivas, who gener- 
-ally have it recitcfl, when any member of their sect is at tlie point 
-of death. Arunaghiri Nather was also ihe author of .n short harmo- 
-nic poem, entitled Udatkutu Vannani (2_'_/6i/oCcr£SSTLb), descrip- 
-tive of the different stages of human life, which together with aji 
-abridged translation of it in English, by the Eev. Mr. Roberts,* as 
-yevised by us we here subjoin : 
+*) Roberts Oriental Illustrations ot the Sacred Scriptures, p. 348.
 
-* RaBLUTi' Oricii!ed Illustrations ot the S'lcrecl Scriptures, p. 318. 
+[TAMIL].
 
-The beginning of man is as a dtw-drop falUng fnim llic tip oj a 
-hiade of grass : he assu/ncs his corporeal form in ike woinh oJ his vtolh - 
-er, in the course of ten months and is then brought forth ; he lies 
-down, crawls, prattles, wallcs, and hecomes acquainted icith science. 
-At sixteen he is in the hloom of youth ; goes forth richly dressed, and 
-adorned loithje^vels, courts the society of young women, is ravished 
-hy their eyes, lets himself loose to all irregularities and squanders his 
-wealth. He at length gets a wife and hecomes the father of children. 
-He refuses to part with even the husk of his rice and his wish is to 
-enjoy them all. He thinks, hy living cheaply, hy refusing to supjwrt 
-charities, hy not dispensing favors, lie is of all men the most happy. 
-His youth now passes away and old age creeps on ; his hair turns grey, 
-his teeth drop, his eyes groto dim., his organs of hearing are impaired, 
-his hody hecomes dry, his hack bends, and he is troubled ivith incessant 
-cough, which disturbs his sleep. He is no longer able to ivalk, and 
-has recourse to a cane, and is gazed at hy the young with derision. 
-While in this condition, the ministers of Yama {PhUo), ivith their 
-shaggy hair and frightful countenance, approach him, and seize and 
-bear aicay his life amidst the screams of his ivife and children. His 
-kinsfolk cmd jriends then assembled, talk of his good or evil deeds, 
-convey his body to the burning ground ivith the sound of tom-toms, 
-and commit it to thejlame which consumes and reduces it to a handful 
-of ashes. 
+_The beginning of man is as a dew-drop falling from the tip of a blade of grass: he assumes his corporeal form in the womb of his mother, in the course of ten months and is then brought forth; he lies down, crawls, prattles, walks, and becomes acquainted with science. At sixteen he is in the bloom of youth; goes forth richly dressed, and adorned with jewels, courts the society of young women, is ravished by their eyes, lets himself loose to all irregularities and squanders his wealth. He at length gets a wife and becomes the father of children. He refuses to part with even the husk of his rice and his wish is to enjoy them all. He thinks, by living cheaply, y refusing to support charities, by not dispensing favors, he is of all men the most happy. His youth now passes away and old age creeps on; his hair turns grey, his teeth drop, his eyes grow dim, his organs of hearing are impaired, his body becomes dry, his back bends, and he is troubled with incessant cough, which disturbs his sleep. He is no longer able to walk, and has recourse to a cane, and is gazed at by the young with derision. While in this condition, the ministers of Yama (Pluto), with their shaggy hair and frightful countenance, approach him, and seize and bear away his life amidst the screams of his wife and children. His kinsfolk and friends then assembled, talk of his good or evil deeds, convey his body to the burning ground with the sound of tom-toms, and commit it to the flame which consumes and reduces it to a handful of ashes._
 
 Asiita'vada'ni ---
 
