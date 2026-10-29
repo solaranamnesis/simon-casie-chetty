@@ -191,110 +191,38 @@ Arunaghiri Nāther was an eminent poet, who from his entire devotedness to the w
 
 _The beginning of man is as a dew-drop falling from the tip of a blade of grass: he assumes his corporeal form in the womb of his mother, in the course of ten months and is then brought forth; he lies down, crawls, prattles, walks, and becomes acquainted with science. At sixteen he is in the bloom of youth; goes forth richly dressed, and adorned with jewels, courts the society of young women, is ravished by their eyes, lets himself loose to all irregularities and squanders his wealth. He at length gets a wife and becomes the father of children. He refuses to part with even the husk of his rice and his wish is to enjoy them all. He thinks, by living cheaply, y refusing to support charities, by not dispensing favors, he is of all men the most happy. His youth now passes away and old age creeps on; his hair turns grey, his teeth drop, his eyes grow dim, his organs of hearing are impaired, his body becomes dry, his back bends, and he is troubled with incessant cough, which disturbs his sleep. He is no longer able to walk, and has recourse to a cane, and is gazed at by the young with derision. While in this condition, the ministers of Yama (Pluto), with their shaggy hair and frightful countenance, approach him, and seize and bear away his life amidst the screams of his wife and children. His kinsfolk and friends then assembled, talk of his good or evil deeds, convey his body to the burning ground with the sound of tom-toms, and commit it to the flame which consumes and reduces it to a handful of ashes._
 
-Asiita'vada'ni ---
+## Ashtāvadāni. --- [TAMIL].
 
-The real name of this poet is not known, anrl the one under wliich 
-he is here noticed being merely titular, alludin to the extraordinary 
-retentiveness of his memory. He was born of a wealthy Brdliman 
-family of the Vaislu.ava sect long settled at Sirongnm, nearTrichin- 
-opoly, and having finished his course of studies in Sanskrit and Tamil 
+The real name of this poet is not known, and the one under which he is here noticed being merely titular, alluding to the extraordinary retentiveness of his memory. He was born of a wealthy _Brāhman_ family of the _Vaishnava_ sect long settled at _Sirangam_, near Trichinopoly, and having finished his course of studies in Sanskrit and Tamil before he had attained his sixteenth year, he married and established himself at Tirupati; but quarreling with his wife he left home and set out on a pilgrimage to the _Saiva_ fanes in the south. When at Madura, he was so unfortunate as to fall into the snares of a courtezan, who after haviig stript him of every thing by her sweet blandishments, turned him out destitute into the streets. Grieved at his losses, and wiser in his misfortune, he wrote a satirical poem, under the title of _Viralividudūtu_ ([TAMIL]), exposing the wiles of the courtezan and warning the youth against them, and dedicated it to **Nāgama Kūlappa Nāyaken**, Poligar of Neleikkottei in the Dindigal district, by whom he appears to have been patronized in the later period of his life. This poem consists of 1144 couplets, and is notundeserving of the high reputation, which it has obtained for the beauty of its versification; but the author has completely demolished its moral tendency by the licentious description of the personal charms of the courtezan, and her enticing deportment.
 
-hcfurc lie li;ul attained his sixteenth year, he married and esuthlisl)rfV 
-himself ut Tirupati ; but quarrel ing with liis wife l-e left hiune antP 
-set out on a |)ilgrima;^c to tlie Suiia fanes in the south. hen al 
-iVIadnra, l;e was so unforluiiate as to fall into the snares of a eour- 
-t</,an, who after haviig slript hiwi of every thing hy her swed 
-hiandishmcnts, turned him cut destitute into the stret-ts. Grieved at 
-his losses, and wiser in his misfortune, he wrote a satirical ])ocm, under 
-the title of Viralividudutu (sS'rceSbSCf^^^), exposing the wiles of the 
-eijurtezan and warning the youlli against them, and dedicated il to 
-Na'gama Ku'lapi'A Na'vaken, Poligarof iSeleikkottei in theDindi<:al 
-district, i)y whom he appears to have been patronized in the later 
-j)eriod of his life. This poem consists of 1144 couplets, and is not- 
-undeserving of the high reputation, which it has obtained for the 
-beauty of its versification ; but the author has completely demolish- 
-ed its moral t(Mideiicy l)y the licentious description of tl:e personal 
-charms of the cour.ezan, and her enticing deportment. 
+## Athigamān. --- [TAMIL].
 
-Athigama'. 
+Athigamān was one of the brothers of **Tiruvalluver**, and having been exposed by his mother soon after his birth, in a wood at _Karuvūr_, he was found and brought up by a _Chera_ king. He is represented to have enjoyed great reputation as a poet, and the patron of poets, and to have composed many poems on various subjects, but none of his compositions is now forthcoming. According to some accounts, on the death of his foster-father he succeeded him on the throne, and that he was the same with **Cheramān Perumān**, who patronized the ministrel **Panapatirer**, but this is manifestly untrue; for **Cheramān Perumān** was not a foundling, but actually the son of **Sankaranātha Cheran**, and crowned in the Kali year 3538 (CE 437*) which is four centuries anterior to the epoch assigned to **Tiruvalluver**.*
 
-Athigaman was one of the brothers of Tiruvalluveh, and having 
-been exposed by his mother soon after his birth, in a wood at Karu- 
-vur, he was found and brought up by a Chera king. He is repre- 
-sented to have enjoyed great reputation as a poet, and the patron of 
-poets, and to have composed many poems on various subjects, but 
-none of his comi)osilions is now forthcoming. According to some 
-accounts, on the death of his foster-father he succeeded him on the 
-throne, and that he was the same with Che'rama'n Peruma'n.. who 
-patronized the ministrel Panapatirek, but this is manifestly untrue; 
-for CnE'RUiMA'N Pekujia'n was not a foundling, but actually the soa 
-of Sa^karana'tha Ciie'kan, and crowned in the Kali year 3538- 
-(A. 1). 437*) which is four centuries anterior to the epoch assigned 
+## Athivīra Rāma Pāndiyen. --- [TAMIL].
 
-to TlUUVALLUVER.y 
+Athivīra Rāma Pāndiyen was one of the kings of the _Pāndiyen_ dynasty, who reigned at Madura between the eleventh and twelfth century of the Christian era. Though the history of his life is not now forthcoming, yet his name has been handed down to posterity as that of an eminent poet, by the numerous poems which he composed. His principal work is the _Naidatham_ ([TAMIL]), an imitation in Tamil of **Sriharsha's** _Naishadham_, reciting the adventures of _Nālah_ and _Damayanti_. It comprises 1171 stanzas arranged in 29 cantos, and Mr. **Ellis** observes, that "its high and courteous tone, notwithstanding the frequent occurrence of those gaudy images and far-sought allusions which European taste will denominate conceits, is worthy of the princely author."* It is so highly valued by the Tamils for the sweetness of its poetry that they call it "the nectar of the poets," but it should be observed that the extreme passion of the author for hyperbole has led him to extravagance, as will be seen by the following stanza in which he celebrates the beauty of _Damayantis's_ face.
 
+[TAMIL].
 
-Athivira Rama Pandiyen was one of the kings of the Pu7idiycn 
-dynasty, who reigned at Madura between the eleventh and Iwelftlr 
-century of the Christian era. Though the history of his life is not 
-now forthcoming, yet his name has been handed down to posterity 
-as that of an eminent j^oet, by the numerous poems which he com- 
-posed. His princifial work is the Afli(/(///(a;« (c75-,(J:£_^ir ),an imitation 
-in Tamil of Skihaksha's Naishad ham, rcc'aiv.g;^ the adventures of 
-Ntilah and Domayaitli. It comprises 1171 stanzas arranged in 29 
-cantos, and Mr. Ellis observes, that "its high and courteous tone, 
-notwithstanding the frequent occurrence of those gaudy images and 
-far-sought allusions which European taste will denominate conceits, 
+_He Brahmā who dwells in the lotus-flower, blooming from the navel of the bright sapphire colored (Vishnu), formed the face of the long-eyed Damayanti by taking his materials from the great beauty which is concentrated in the full moon; and it is the blue sky, which is seen through the aperture made in the moon for this purpose, that people still call the macula._
 
-' Madriis Journal of Literature otid Science, vol. vii. p. 2d4. 
-f Asiatic UcBcarchus, vol. vii. p. 3-iy. 
- 
+*) Madras Journal of Literature and Science, vol. 7. p. 284.
 
-is Wdrtl.y of tli(> princely autlior/''* It is so liiiilily valiud hy llic Timiils 
-foillie swootiioss of ils|)oeti-y that tlicy cull it "the iiccla r of li)c poets," 
-hut it should he observed th."\t tlie extn^nie |)i\ssiou of tiie author for 
-hyperhoie has led him to extravagance, as will Ix' srcn hy the fol- 
-lowing stanza in which he celebrates the beauty of DumayuniVs face. 
+*) Asiatic Researches, vol. 7. p. 349.
 
+His other works are the imitations of the _Kāsīkāndam_ ([TAMIL]), _Linga Purānam_ ([TAMIL]), and _Kūrma Purānam_ ([TAMIL]), besides four _Antadis_,* each comprising a centum of verses in praise of the _Saiva_ shrine at Karuvei and a collection of sententious maxims, under the title of _Vettivetkai_ ([TAMIL]), of which the Rev. Mr. **Taylor** has given an English version in the second volume of his Oriental Historical Manuscripts. Athivīra Rāma Pāndiyen is also said to have been the writer of the poem, entitled _Madana Nūl_ ([TAMIL]); but we doubt whether he did really compose it. Its materials appear to have been derived from a work on the same subject in Sanskrit, called _Kokva Sāstra_, and though its poetry is good yet it is very exceptionable in point of morality and the tenor of it shews that the pleasure of the fair sex was the uppermost thought in the mind of the author. It is the same work, which **Abbe Dubois**, in his Description of the People of India, Chap. 14., notices, and justly condemns, as abominable; yet we are sorry to state, that some Hindus at Madras have been licentious enough to class it with their _Āgamas_ under the title of _Kāmāgamam_, and to prostitute the press to its publication.
 
-He Brnhnn icho dwells in tJir lotus-flower, hJoomius;f)-om the navel 
-of the bright sapphire colored {Vishnu), formed the face of the long- 
-eyed Damayanti hy taking his materials from the great beauty ivkich 
-is concentrated in the full mooji ; and it is the blue sky, lohich is seen 
-iJf'ough the aperture made in the moon for this purpose, that people 
-still call the macula. 
+*) Ellis' Commentary on the Kural, p. 163.
 
-His other works are the imitations of the Kasikiindam (in^^n^r 
-L-ii), Linga Pun nam {and Kurma Purdnam {ifnrr 
-icunnf^csui), besides four Antadisf, each com|)rising a centum of verses 
-in praise of the SttJCfr shrine at Karuvci and a collection of senten- 
-tious maxims, under the title of Vetfireikai (©ojirfr^GajjCosi*), of which 
-tlicRev. Mr. Taylor has given an English version in the second volume 
-of his Oriental Historical Manuscripts. Atiiivira Rama Pandiven 
-is also said to have been the writer of the poem, entitled Madana Nul 
-(TSbCrg/ToT)) ; but we doubt whether he did really compose it. Its ma- 
-terials appear to have been derived from a work on tlie same subject 
-in Sanskrit, called Kokva Sdsfra, and though its poetry is good yet 
-it is very exceptionable in point of morality and the tenor of it shews 
-tliat the pleasure of the fair sex was the uppermost thought in the 
-mind of the author. It is the same work, which Abbe Dubois, in his 
-])escription of the People of India, Chap, xiv., notices, and ju.stly con- 
-demns, as abominable; yet we are sorry to state, that some Hindus 
-at Madras have been licentious enough to class it with their A'gamas 
-und- the title of Kdmdgamam, and to prostitute the [tress to its pub- 
-lication. 
+*) A sort of poem, in which the last word of a stanza is repeated in the beginning of the next.
 
-Auveiya'r --
+## Auveiyār. --- [TAMIL].
 
-Auveivar was the first of her sex in the Tamil country, who ac- 
-quired a rejnitation as a poetess. The name Auvciyar is merely ti- 
-tular, signifying "the elderly lady :'''' what may have been her real 
-name is not known. She was one of the sisters of Tiruvalluver, and 
-
-* Kllis' Commentary on the Kural, p. 163. 
-
-t A .sort of poem, in wliioli tlit^ last woiil of a stanza is repeated in tiic 
-beginning of tlie next. 
+Auveiyār was the first of her sex in the Tamil country, who ac- 
+quired a reputation as a poetess. The name Auveiyār is merely ti- 
+tular, signifying "_the elderly lady_": what may have been her real 
+name is not known. She was one of the sisters of **Tiruvalluver**, and 
 
 lior niotlior, who gavo birth to licr in a Choultry near Urcii/i'n', having 
 vxposcil her there, slie was found and brought up by a Punnii or 
