@@ -219,167 +219,81 @@ His other works are the imitations of the _Kāsīkāndam_ ([TAMIL]), _Linga Pur�
 
 ## Auveiyār. --- [TAMIL].
 
-Auveiyār was the first of her sex in the Tamil country, who ac- 
-quired a reputation as a poetess. The name Auveiyār is merely ti- 
-tular, signifying "_the elderly lady_": what may have been her real 
-name is not known. She was one of the sisters of **Tiruvalluver**, and 
+Auveiyār was the first of her sex in the Tamil country, who acquired a reputation as a poetess. The name Auveiyār is merely titular, signifying "_the elderly lady_": what may have been her real name is not known. She was one of the sisters of **Tiruvalluver**, and her mother, who gave birth to her in a Choultry near _Ureiyūr_, having exposed her there, she was found and brought up by a _Pānan_ or minstrel. How, and in what manner, she acquired her prodigious learning cannot be ascertained, but it is very probable she was in some measure indebted for it to her foster-father himself. Though she taught others that marriage was preferable to celibacy, yet she continued unmarried all her life. It is stated that by the virtue of a panacea, which she had discovered, she prolonged her existence to the period of 240 years, and then, according to the custom of her times, made the _Mahāprasthānagamana_, or great journey to the _Imaus_ and died there.
 
-lior niotlior, who gavo birth to licr in a Choultry near Urcii/i'n', having 
-vxposcil her there, slie was found and brought up by a Punnii or 
-minstrel. How, and in wliat manner, she acquired lier prodigious 
-h'arning cannot be ascertained, but it is very probable she was in some 
-measure indebted for it to lier foster-father himself. Though she 
-taught others that mirriage was preferable to celibacy, yet she con- 
-tinued unmarried all her life. It is stated that by the virtue of a pa- 
-nacea, which she had discovered, she prolonged her existence to the 
-pi-riod of iilO years, and then, according to the custom of her times, 
-maile the Mahaprusthdnagamana, or great jourucy to the Imaiis and 
-died there. 
+"She sang like **Sappho**; yet not of love, but of virtue."* Her two books of moral aphorisms usually called _Attishūdi_ ([TAMIL]) and _Kondei Veynden_ ([TAMIL]) have been considered by the learned **Beschi** as being "worthy of **Seneca** himself"*; for they are as the Rev. Mr. **Percival** has justly remarked, "of great beauty and value, replete with lessons of wisdom," and "they have never been surpassed for sententious brevity; and generally they are equally distinguished by purity of principle."* In both the books the aphorisms are written in the order of the Tamil alphabet; hence they have been most appropriately called "the Golden Alphabet of the Tamils."* No less than three English versions of Auveiyar's aphorisms have been published, the first by the Rev. Dr. **John** in the Asiatic Researches, the second by the Rev. Mr. **Bisset**, the author of the History of Ceylon under the name of Philalethes and the third by the Rev. Mr. **Sudgen**, and there is also a version of them in German, and another in Dutch, but it is hardly necessary to remark that they all merely convey the sense of the original, and that too often not very correctly. The other works of Auveiyar are the _Mādurei_ ([TAMIL]), _Nālvazhi_ ([TAMIL]), _Kalviozhukam_ ([TAMIL]), _Asadikovei_ ([TAMIL]), _Nannūtkovei_ ([TAMIL]), _Nānmanikovei_ ([TAMIL]), _Aruntamilmalei_ ([TAMIL]), _Tarisanapattu_ ([TAMIL]), _Gnāna Kural_ ([TAMIL]), and _Pandenantadi_ ([TAMIL]), and of these the first eight are on ethics, and religion, the ninth on metaphysics, and the tenth is a panegyric on a wealthy merchant of the name of **Panden**, who resided at Kaveripatnam. There is also extant under her name a _Nigundu_, or dictionary in verse, containing the Tamil synonyma of the materia medica, but it is not in general use.
 
-'• She sang like Sappho ; yet not of love, but of virtue."* Her two 
-books of moral a|)horisms usually called Auishudi {^§.0^,1^) and 
-Kondai Veyndcn {G ^n ^i &S)!p<:5€u!r.3,€si) have been considered by the 
-learned P)i:sciii as being "worthy of Skneca himself"!; for they 
-are as the Rev. Mr. Peucivai. has justly remarked, "of great beau- 
-ty and value, replete with lessons of wisdom," and "they have 
-never been surpassed for sententious brevity ; and generally ihey 
-are equally distinguished by purity of principle." "j; In both the 
-books the aphorisms are written in the order of the Tamil alphabet ; 
-hence tlioy have been most appropriately called -' the Golden Alpha- 
-bet of the Tamils. "(^^ No less than three English versions of Auveiy- 
-ar's aphorisms have been published, the first by the Rev. Dr. John in 
-the Asiatic Researches, the second by the Rev. Mr. Bisset, the 
-author of the History of Ceylon under the name of Pliilalethes and 
-the third by the Rev. Mr. Sudgen, and there is also a version of 
-them in (rcrman, and another in Dutch, but it is hardly neces.sary 
-to remark that they all merely convey the sense of the original, and 
-that too often not very correctly. The other works of Auveiyar are 
-the M'ldnrci (op^os^a), Nalvazhi (ihsosuip, Kulriozlmkam (as'^eS'Oun 
-L^ihu), AaadiLirei ^-3liF-V&(Stn6S)aj), Kannutkovei (/Ji-.ti@n;r)T 
-loffia;), NdiimcDiik'Jvci ^xn^icesi^Aj), AriinfamUninIci (^(5^0 
-trf'tptDfTci/iu), Tdrisanapatlu («ffl<?-«viLiu^.^'), Gndna Kural (55/16313.^59 
-6T1), and Pandcnanlndi {uihis^^s^n^)^ and of these the first eight are 
-on ethics, and religion, the ninth on metaphysics, and the tenth is a 
-panegyric on a wealthy merchant of the name of Panden, who re- 
-sided at Kaveripatnam. There is also e.xtant under her name a 
-Niguiuhi, or dictionary in verse, containing the Tamil synonyma of 
-the m.iteria inedica, but it is not in general use. 
+*) Calcutta Quarterly Review, vol. 25. p. 190.
 
-Auveiyar was more keen and clever than even her brother Tirit- 
-VALLtivER. The Hindu system of Moral philosophy involves four 
-(juestions, viz: I. What is rt/7if(', and how is it to be e.vercised .^ 
-2. What is Wealth, and how is it to be acquired ? What is pleasure, 
+*) Babington's Shen Tamil Grammar, Introduction, p. 11.
 
-* Calctittii Quarterly Review, vol. x.xv. p. 190. 
+*) Percival's Land of the Veda, p. 100.
 
-t Babingto.n's Shell Tamil Grammar, Introduction, p. xi. 
+*) Asiatic Researches, vol. 7. p. 350. London Edition.
 
-t Pr.KriVAi.'s Land of lii.- Veda, p. ItlO. 
+Auveiyar was more keen and clever than even her brother **Tiruvalluver**. The Hindu system of Moral philosophy involves four questions, viz: 1. What is _virtue_, and how is it to be exercised? 2. What is _Wealth_, and how is it to be acquired? 3. What is _pleasure_, and how is it to be enjoyed? 4. What is _heavenly bliss_ and how is it to be obtained?* _Tiruvalluver_ however, in his _Kural_, containing 1333 couplets, treated only of the three first questions, and when Auveiyar heard of it she compressed all the four questions, and their answers, within the compass of the following single stanza, which she uttered extempore:---
 
-§ Asiatic Uescaiclii's, vni vii j> S'A) London lldiiion. 
+[TAMIL].
 
-ami how is it tube enjoyed ? i. What is heavenJij bliss and liow is it to 
-be obtained?* Tintva I hive?', however, in his Kta-al, containing 1333 
-couplets, treated only of tlic three first questions, and when Auvciyar 
-heard of it she compressed all the four questions, and their answers, 
-within the compass of the following single stan;fa, which she uttered 
-.extempore :-^ 
+_To give is Virtue. That which is acquired without sin, is Wealth. The constant mutual affection of two, whose tastes agree, is Pleasure. To forsake these three, in the contemplation of the Supreme Being, is Heavenly Bliss._
 
-eBiLi---Q^ Quiflsmu^iil. 
+*) See Rottler's Tamil and English Dictionary under the word [TAMIL].
 
-To give is Virtue. That, tchichis acquiredmthoutsin, Is Wealth. 
-The constant mutual affection of two, whose tastes agree, is Pleasure. 
-To forsake these three, in the contemplation of the Supreme Being, 
-is Heavenly Bliss. 
+When **Tiruvalluver** went to the Madura College to submit the _Kural_ to its judgment, Auveiyar accompanied him thither, and making some signs to the professors, asked them what she meant by those signs upon which one of them improvised the following stanza, in reply:---
 
-When TiRUVALLUVEB went to the Madura College to submit the 
-Kural to its judgment, Auveiyar accompanied hiin thither, and mak- 
-ing some signs to the professors, asked them what she meant by 
-those signs upon vvhich one of them improvised the following stanza, 
-in reply : --- 
-Not satisfied with the explanation, she interpreted the signs hej- 
-iself, thus : 
+[TAMIL].
 
-Give alms, holdfast the true virtue, 
+Not satisfied with the explanation, she interpreted the signs herself, thus:
 
-Eat rice, after giving to others even as much as a pi/u-h. 
+[TAMIL].
 
-If you are able to know that God is hut one, 
+_Give alms, hold fast the true virtue,_  
+_Eat rice, after giving to others even as much as a pinch._  
+_If you are able to know that God is but one,_  
+_Then the five great sins will be destroyed._
 
-Then the five great sins will be destroyed. 
+After the _Kural_ had passed the College bench, and each of the professors had pronounced a stanza on its merits, Auveiyar hearing _Ideikāder_ praise it in a couplet, likening it to a mustard seed hollowed and filled with the waters of the seven seas, in as much as it contained much knowledge in a little compass, she observed to him, that it would have been more appropriate to liken it to an atom, which is even minuter than a mustard seed.
 
-After the Kural had passed the College bench, and each of the 
-})rofessors had pronounced a stanza on its merits, Auveiyar hearing 
-Id'eikdder praise it in a couplet, likening it to a mustard seed hollow- 
-ed and filled with the waters of the seven seas, in as much as it con- 
-tained much knowledge in a little compass, she observed to him, that 
-it would have been more appropriate to liken it to an atom, which is 
-even minuter than a mustard seed. 
+Auveiyar had the nickname of Kuzhukupādī ([TAMIL]), or she who sung her verse for a cup of pap, and the reason assigned for it is, that a dancing girl, named **Chilambi**, who lived at Ambel, asked the poet **Kamber** to compose a verse on her, giving him 500 _pons_ for it, but as he never composed a stanza on any one for less than 1000 _pons_, he scribbled these first two lines of a stanza on the wall of her house with charcoal and went away.
 
-* See Rottlkr's Tamil and English Uictiouary under the wurd >«"•.+«? 
+[TAMIL].
 
-Auveiyar had the nickname of Kuzhukupadi (aiiigfi^uuffi^.), or she 
-who sung her verse for a cup of pap, and the reason assigned for it 
-is, that a dancing girl, named Chilajibi, who lived at Ambel, asked 
-the poet Kamber to compose a verse on her, giving him 500 pons for 
-it, but as he never composed a stanza on any one for less than 1000 
-pons, he scribbled these first two lines of a stanza on the wall of her 
-house with charcoal and went away. 
+Immediately afterwards Auveiyar happening to call at the dancing girl's house and being informed of the affair, added the two following lines to the unfinished stanza of **Kamber**, accepting as a reward merely a cup of pap.
 
-Immediately afterwards Auveiyar happening to call at the dancing 
-girl's house and being informed of the affair, added the two following 
-lines to the unfinished stanza of Kambeu, accepting as a reward 
-pierely a cup of pap. 
+[TAMIL].
 
-The following is the translation oi" the above stanza ;--- 
+The following is the translation of the above stanza:---
 
-The best of rivers' is the Kaveri, the best of kings is Chola, 
+_The best of rivers is the_ Kāveri, _the best of kings is_ Chola,  
+_The best of lands is Cholamandalam, the best of women,  
+_Is_ Chilambi _of Ambel_,  
+_And the best of_ chilambu* _is the gold_ chilambu _on her lotus-feet_.
 
-The best oj lands is Cholamandalam, the best of women, 
+*) A tinkling foot ornament, worn by Tamil women.
 
-Is Chilambi of Ambel, 
+On one occasion when some men reviled the character of women in Auveiyar's hearing, she is said to have retorted upon them with the following impromptu:
 
-And the best of chilambu * is the gold chilambu o?i her lotus feet. 
+[TAMIL].
 
-On one occasion when some men reviled the character of women 
+_All women would be good by nature, if men did not spoil them; And most men would have a tolerable stock of sense, if the women did 
+not make fools of them._ **Ellis**.
 
-HI Auveiyar's hearing, she is said to have retorted upon them with 
+The subjoined stanza eulogizing the city of _Kānjipuram_ is attributed to Auveiyar:---
 
-the following impromptu : 
+[TAMIL].
 
+_The whole earth may be compared to an expanse of wet-land:_  
+_The several countries of the earth, marked by their boundaries on the four sides, are cultivated fields within it;_  
+_Tondei-vala-nadu is a lofty sugar-cane in one of these fields;_  
+_The chief towns of this country are the crude juice of this sugar-cane;_  
+_Cachchipuram (Conjiveram) and its vicinity are like a cake of unrefined sugar obtained by boiling this juice;_  
+_And a large concretion of refined sugar in the midst of this cake_  
+_Represents the interior of Cachchi, where the bull-borne Deity resides._
+**Ellis**.
+ 
+## Avīnayanār. --- [TAMIL].
 
-*Al icomen would be good by nature, if men did not spoil them ; 
-And most jnen ivould have a tolerable stock of sense, if the leomen did 
-not make fools of them. Ellis. 
-
-The subjoined stanza eulogizing the city of Kdniipuram is attribut 
-ed to Auveiyar : --- 
-
-
-
-' A tinkling foot ornaaient, worn by Tninil w onion 
-
-The whole earth /nrtj/ he compared to an cxpanxc of wri-Jand : 
-The several countries of the earth, marked by their hovndnries on 
-
-the four sides, are cultivated fields ioithin it ; 
-Tondei-vala-nadn is a lofty sugar-cane in one of these fields ; 
-The chief towns of this country arc the crude juice of this sugar-cane; 
-Cachchipuram {Conjiveram) and its vicinity are like d cake of tin- 
-
-refined sugar obtained by boiling this juice ; 
-And a large concretion oj refined sugar in the midst of this cake 
-Represents the inferior of Cachclii, where the bull-borne Deity resides. 
-
-El,LIS. 
-Avi'NAYANA'R J)j q9 15 UJ i^ n . 
-
-Little is known of the life of Avinayanar, except that he was one of 
-the twelve disciples of Agastiyer and the author of a treatise on ver- 
-sification, which is called after his own name, Avinayain (^eSiihtiih). 
-Father Beschi, in his Introduction to the Shen Tamil Grammar, 
-notices Avinayanar as one of the persons, who wrote on the Tamil 
-Grarn'mar after Agastiyer's time and whose works have perished. 
+Little is known of the life of Avīnayanār, except that he was one of the twelve disciples of **Agastiyer** and the author of a treatise on versification, which is called after his own name, _Avīnayam_ ([TAMIL]). Father **Beschi**, in his Introduction to the Shen Tamil Grammar, notices Avīnayanār as one of the persons, who wrote on the Tamil Grammar after **Agastiyer's** time and whose works have perished.
 
 Avi'ra'mipatter --- J)/ sS' rr mS u u iJi L. IT. 
 
