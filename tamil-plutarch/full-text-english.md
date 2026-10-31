@@ -295,91 +295,45 @@ _Represents the interior of Cachchi, where the bull-borne Deity resides._
 
 Little is known of the life of Avīnayanār, except that he was one of the twelve disciples of **Agastiyer** and the author of a treatise on versification, which is called after his own name, _Avīnayam_ ([TAMIL]). Father **Beschi**, in his Introduction to the Shen Tamil Grammar, notices Avīnayanār as one of the persons, who wrote on the Tamil Grammar after **Agastiyer's** time and whose works have perished.
 
-Avi'ra'mipatter --- J)/ sS' rr mS u u iJi L. IT. 
+## Avīrāmipatter. --- [TAMIL].
 
-Aviramipatter, corrigo, Abird mi B'hatta, was a. poet equally well 
-versed in Sanskrit and Tamil literature. He belonged to a class of 
-Brahmans at Tirukadavur in the Carnatic, and was a staunch adher- 
-ent of the sect which worship Pdrvati, the female energy of Siva; 
-under the name of Abirdmi. Of his poetical compositions we have only 
-a centuni of hymns, addressed to Abirami, and which are remarka- 
-bly harmonious in their versification. Such is the faith that Saivas 
-have in the efficacy of these hymns, that it is not trnusual for them 
-to commit them to memory, and recite them privately with great ven- 
-eration. The following is one of the hymns referred to : 
+Avīrāmipatter, corrigo, _Abirāmi Bhatta_, was a poet equally well versed in Sanskrit and Tamil literature. He belonged to a class of _Brahmans_ at _Tirukadavūr_ in the Carnatic, and was a staunch adherent of the sect which worship _Pārvati_, the female energy of _Siva_, under the name of _Abirāmi_. Of his poetical compositions we have only a centum of hymns, addressed to _Abirāmi_, and which are remarkably harmonious in their versification. Such is the faith that _Saivas_ have in the efficacy of these hymns, that it is not unusual for them to commit them to memory, and recite them privately with great veneration. The following is one of the hymns referred to:
 
-Thou art the gem, tJiou art the brightness of that gem ; t/iouarl the 
-necklace formed of that gem, and it is thou that givest it its beauty. 
-Thou art the disease of those loho do not approach thee, and the cure 
-of those ibhb approach thee ; and thou art the great feast of the celes- 
-tials. I shall not adore the feet of any after I have adored thy lotus- 
-feet. 
+[TAMIL].
 
-A'LANKUDI VaNGANA'R --- -^GOlEJ(^l^lSiJlEJS(eS)IT. 
+_Thou art the gem, thou art the brightness of that gem; thou art the necklace formed of that gem, and it is thou that givest it its beauty. Thou art the disease of those who do not approach thee, and the cure of those who approach thee; and thou art the great feast of the celestials. I shall not adore the feet of any after I have adored thy lotus-feet._
 
-Nothing is known of this poet, except that he was a' native of 
-A'lankudi and that his high attainments had obtained foi* him a place 
-in the Madura College as one among the forty-nine professors. His 
+## Ālankudi Vanganār. --- [TAMIL].
 
+Nothing is known of this poet, except that he was a native of _Ālankudi_ and that his high attainments had obtained for him a place in the Madura College as one among the forty-nine professors. His works have all perished, and even his own name would have long ago fallen into oblivion, but for the following impromptu which he uttered when the _Kural_ passed the College bench.
 
-works have all perished, and even his own nani^e would have long 
-ago fullen into oblivion, but for the following impromptu which ho 
-uttered when the Rural passed the College bench. 
+[TAMIL].
 
-Ecen the sivectiicss of ambrosia he covipared to the sweet' 
-ness of the Vau.vvzr's poem. The gods hare known the taste of am- 
-brosia by having partaken of it, but men wilt know it when they im- 
-bibe the milk (instruction) , whith issues from the three lulders (the 
-three parts) of the Kural. 
+_Even the sweetness of ambrosia cannot be compared to the sweetness of the Valluver's poem. The gods have known the taste of ambrosia by having partaken of it, but men will know it when they imbibe the milk (instruction), which issues from the three udders (the three parts) of the Kural._
 
-A'LAtANDA'R --- ^&r su i ^ n n . 
-A'lavandar was both a poet and philosopher. He belonged to a 
-class of Brdhmans, styled Bhattas, an4 traced his^ pedigree ta Ma'd- 
-IIAVA Bhatta, an eminent (ruru, who lived at Viy-ei in the Carnatic, 
-in ancient times. His poetical version of the Gndna Vdshistha from 
-Sanskrit into Tamil in 2,055 stanzas is an elaborate performance, and 
-greatly redounds to his credit. Tlie Girdna Vd^hitha treats of the- 
-Vedic philosophy, and is interspersed with legends of various real or 
-fabulous personages. The following stanza which we quote from 
-the work contains a description of the attributes of God : 
+## Ālavandār. --- [TAMIL].
 
+Ālavandār was both a poet and philosopher. He belonged to a class of _Brāhmans_, styled _Bhattas_, and traced his pedigree to **Mādhava Bhatta**, an eminent _Guru_, who lived at _Vīrei_ in the Carnatic, in ancient times. His poetical version of the _Gnāna Vāshistha_ from Sanskrit into Tamil in 2,055 stanzas is an elaborate performance, and greatly redounds to his credit. The _Gnāna Vāshitha_ treats of the _Vedic_ philosophy, and is interspersed with legends of various real or fabulous personages. The following stanza which we quote from the work contains a description of the attributes of God:
 
-There is a supreme being; --- he is (he sim who sJtincs loith unreflect- 
-ed light, toilhout setting, --- he who is infinite, --- he tcho is' free from 
-infirmity, --- he who is not subject to' birth, --- Jfewhois everywhere and 
-at all times, --- he who is all and th€ crealor cj' a}1 , (md he u'ho is the 
-final beatitude itself 
+[TAMIL].
 
-This poet, who distinguished himself by his eminent attainments in 
-philology, was the son of Pa'va'dei Va'dhva'r of U tankal, a village in 
-the Gingee country. He had a great partiality for writing verses of 
-the kind called A'siriyam, and we have a commentary of his on the 
-first two parts of the AV/nnj//, under the title of Ureiyari Nannul 
-{s.es)aujfS'(hfF>§rrsd), and a Nigandu, or dictionary of tho^Tamil syno- 
-nyms, both written in the same metre. 
+_There is a supreme being, --- he is the sun who shines with unreflected light, without setting, --- he who is infinite, --- he who is free from infirmity, --- he who is not subject to birth, --- he who is everywhere and at all times, --- he who is all and the creator of all, and he who is the final beatitude itself._
 
+## Āndī Pulavar. --- [TAMIL].
 
-This poet was one of llic forty-tifnc professors of the Madura Col- 
-lege, lie had the title af A'sirhjer or docTur, roiiferred on him as 
-an honorary mark of literary distinction. Neither liis parentage nor 
-personal history is known, and even of his compositions we have 
-nothing more than the following improin[)tn in which he exprcf^sed 
-his a()prohation of the KuraJ, and (Milogizcd its author when that 
-work was subniilted to the CKiticisn> of the College bench. 
+This poet, who distinguished himself by his eminent attainments in philology, was the son of **Pāvādei Vādhyār** of _Ūtankal_, a village in the Gingee country. He had a great partiality for writing verses of the kind called _Āsīrīyam_, and we have a commentary of his on the first two parts of the _Nannūl_, under the title of _Ureiyari Nannūl_ ([TAMIL]), and a _Nigandu_, or dictionary of the Tamil synonyms, both written in the same metre.
 
+## Āsiriyer Nallanduvanār. --- [TAMIL].
 
-There tg none amongst the learned that can compete with the first 
-f>f poets (meaning Tiruvalluverj who composed the Kitral, n-hich 
-has in itself all that the zoorks of the sages and the iufallihle Vcdas 
-have preserved. 
+This poet was one of the forty-nine professors of the Madura College. He had the title of _Āsiriyer_ or doctor, conferred on him as an honorary mark of literary distinction. Neither his parentage nor personal history is known, and even of his compositions we have nothing more than the following impromptu in which he expressed his approbation of the _Kural_, and eulogized its author when that work was submitted to the criticism of the College bench.
 
-Nothing Is known of Chattcimuni, except that he was a Saiva as- 
-cetic, who lived at the same time with Agastiyer, and enjoyed some 
-reputation as a poet, philosopher and physician. He wrote a work 
-on theology, called Gndna Nuru (QnGisi^g)i), and another on medi- 
-cine, called Kalpa Nuru (ffisDuu^n"^). He is also believed to have 
-been the author of the Vdda Nigandu (oun-^r^incaiCg), a treatise on 
-alchemy which passes' under his' name. 
+[TAMIL].
+
+_There is none amongst the learned that can compete with the first of poets (meaning Tiruvalluver) who composed the Kural, which has in itself all that the works of the sages and the infallible Vedas have preserved._
+
+## Chatteimuni. --- [TAMIL].
+
+Nothing is known of Chatteimuni, except that he was a _Saiva_ ascetic, who lived at the same time with **Agastiyer**, and enjoyed some reputation as a poet, philosopher and physician. He wrote a work on theology, called _Gnāna Nūru_ ([TAMIL]), and another on medicine, called _Kalpa Nūru_ ([TAMIL]). He is also believed to have been the author of the _Vāda Nigandu_ ([TAMIL]), a treatise on alchemy which passes under his name.
 
 Cheraman Peruman, also called Perumdkodeiyar, was both a king 
 and poet. Soit^ say that he was the son of Sankarana'tha Che'ra 
