@@ -335,26 +335,9 @@ _There is none amongst the learned that can compete with the first of poets (mea
 
 Nothing is known of Chatteimuni, except that he was a _Saiva_ ascetic, who lived at the same time with **Agastiyer**, and enjoyed some reputation as a poet, philosopher and physician. He wrote a work on theology, called _Gnāna Nūru_ ([TAMIL]), and another on medicine, called _Kalpa Nūru_ ([TAMIL]). He is also believed to have been the author of the _Vāda Nigandu_ ([TAMIL]), a treatise on alchemy which passes under his name.
 
-Cheraman Peruman, also called Perumdkodeiyar, was both a king 
-and poet. Soit^ say that he was the son of Sankarana'tha Che'ra 
-and others of SENKfyxPOKEl Chera, and in the Cholapurva Patayani, 
-one of the Mackenzie Mss. the date of his accession is placed in the 
-Kali year 3538, (A. D. 437). He ?>ecame an ascetic while yet a 
-youth, and retiring from Cranganore, where his father held his court 
-established himse^lf in the Sr/ii-a temp'lc at Tiruvanjikalam, but on the 
-abdication of the throne by his father, he returned to the capital and 
-assumed the reins of government upon the importunity of the minis- 
-ters. He appears to have endeavoured to advance the interests of lit- 
-erature, by patronizing the poets, who resorted to this court ; but being 
-a superstitious votary of Siva, spent most of his time in making pil- 
-grimages. He was a friend of SunM-rer, and died simultaneously 
-with him as may be inferred from the fable of their repairing to Kai- 
-Idsam together and remaining thc^rc in a state of beatification. He^ 
+## Cheramān Perumān. --- [TAMIL].
 
-
-coni'pc'sft'il three poems in honor of Sira, namely, the Mummani-kovci 
-i-(fiihii>mSi(23,n6TS)Su), Kaildsavuld (oin«oO,T5^Q/oVa), and Ponvannatan- 
-dddi {Qun^su£tisi€SJSip3)fh^n0) dnd they are still in much repute. 
+Cheramān Perumān, also called _Perumākodeiyar_, was both a king and poet. Some say that he was the son of **Sankaranātha Chera** and others of **Senkotporei Chera**, and in the _Cholapūrva Patayam_, one of the Mackenzie Mss. the date of his accession is placed in the _Kali_ year 3538, (CE 437). He became an ascetic while yet a youth, and retiring from Cranganore, where his father held his court established himself in the _Saiva_ temple at Tiruvanjikalam, but on the abdication of the throne by his father, he returned to the capital and assumed the reins of government upon the importunity of the ministers. He appears to have endeavoured to advance the interests of literature, by patronizing the poets, who resorted to this court; but being a superstitious votary of _Siva_, spent most of his time in making pilgrimages. He was a friend of **Sunda-rer**, and died simultaneously with him as may be inferred from the fable of their repairing to _Kailāsam_ together and remaining there in a state of beatification. He composed three poems in honor of _Siva_, namely, the _Mummani-kovei_ ([TAMIL]), _Kailāsavulā_ ([TAMIL]), and _Ponvannatandādi_ ([TAMIL]) and they are still in much repute.
 
 Deivasiha'mani Pillei --- Q^'Lsn^inLC oa^uSim'3^. 
 
