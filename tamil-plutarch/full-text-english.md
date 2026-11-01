@@ -339,71 +339,33 @@ Nothing is known of Chatteimuni, except that he was a _Saiva_ ascetic, who lived
 
 Cheramān Perumān, also called _Perumākodeiyar_, was both a king and poet. Some say that he was the son of **Sankaranātha Chera** and others of **Senkotporei Chera**, and in the _Cholapūrva Patayam_, one of the Mackenzie Mss. the date of his accession is placed in the _Kali_ year 3538, (CE 437). He became an ascetic while yet a youth, and retiring from Cranganore, where his father held his court established himself in the _Saiva_ temple at Tiruvanjikalam, but on the abdication of the throne by his father, he returned to the capital and assumed the reins of government upon the importunity of the ministers. He appears to have endeavoured to advance the interests of literature, by patronizing the poets, who resorted to this court; but being a superstitious votary of _Siva_, spent most of his time in making pilgrimages. He was a friend of **Sunda-rer**, and died simultaneously with him as may be inferred from the fable of their repairing to _Kailāsam_ together and remaining there in a state of beatification. He composed three poems in honor of _Siva_, namely, the _Mummani-kovei_ ([TAMIL]), _Kailāsavulā_ ([TAMIL]), and _Ponvannatandādi_ ([TAMIL]) and they are still in much repute.
 
-Deivasiha'mani Pillei --- Q^'Lsn^inLC oa^uSim'3^. 
+## Deivasihāmani Pillei. --- [TAMIL].
 
-Deivasihamani Pilfei, was head Sheristodar of the Hnssoor 
-Kutcherry at Calicut. He was born of a VeUla faniiiy at Dindigal, 
-in the Carnatic, on the 10th of April, A. D. ISO'l, and his father 
-ANnioTJi.MUTTU Ubade'si, a Christian, took every care to secure him 
-a sound religious education. He had from his early yea'rs a predi- 
-liction for poetry, which he afterwards cultivated with great success. 
-In 1842 he composed two beautiful poems in praise of our Lord, re- 
-spectively Entitled Inhamanimalei (@bisiuLr65cPt/)rr(?x£U), and Stotro- 
-kiimmi {irO(Ss;n00assd:i^), and they were both inserted in the Risiyig 
-Sun, a monthly Tamil periodical then edited at Colombo by ourselves. 
-His poetical career was however not very long, for it was cut short 
-by death on the 30th of November 184G. 
+Deivasihāmani Pillei, was head _Sheristodar_ of the Hussoor Kutcherry at Calicut. He was born of a _Velāla_ family at _Dindigal_, in the Carnatic, on the 10th of April, CE 1804, and his father **Anthonimuttu Ubadesi**, a Christian, took every care to secure him a sound religious education. He had from his early years a prediliction for poetry, which he afterwards cultivated with great success. In 1842 he composed two beautiful poems in praise of our Lord, respectively entitled _Inbamanimalei_ ([TAMIL]), and _Stotrokummi_ ([TAMIL]), and they were both inserted in the _Rising Sun_, a monthly Tamil periodical then edited at Colombo by ourselves. His poetical career was however not very long, for it was cut short by death on the 30th of November 1846.
 
-ElLAPPA Na'vALEH SISd&)uu,'EniSU60iT. 
+## Ellappa Nāvaler. --- [TAMIL].
 
-DlTap'pa Navaler was well versed in the Sanskrit and Tamil lan- 
-guages, and well read in the classics of both. His poetry was distin- 
-guished by superior e.xcellehce', as his imitation of Vya'sa'^s A7'und- 
-chdta Mahdtmya {iho legends of the Sflira shrine ait Trinomali in Tamil, 
-under the title' of A7'imdchala Purdnmn (sii3^3= evi-ianem th), manifest- 
-ly proves This work comprises 586 stanzas, arranged in twelve 
-canto's, and it has obtained an u'nu'suiilly wide circulation amongst the 
-Saivds. We quote the following three stanzas from the fifth canto 
-(ufTau;G'u^p,3=(5iaLb), as a specimen, and which accounts for Siva 
-being represented as androgynous, or lialf man and half woman: --- 
+Ellappa Nāvaler was well versed in the Sanskrit and Tamil languages, and well read in the classics of both. His poetry was distinguished by superior excellence, as his imitation of **Vyāsā's** _Arunāchala Mahātmya_ (the legends of the _Saiva_ shrine at Trinomali in Tamil, under the title of _Arunāchala Purānam_ ([TAMIL]), manifestly proves. This work comprises 586 stanzas, arranged in twelve cantos, and it has obtained an unusually wide circulation amongst the _Saivas_. We quote the following three stanzas from the fifth canto ([TAMIL]), as a specimen, and which accounts for _Siva_ being represented as androgynous, or half man and half woman:---
 
-iVInn the Kitrna/, who /v hcifond the co/iii)(tss oj the carious \ e- 
-das munijestt,d himself riding on the baU, the virtuous (I'drvati) 
-casting herself (U his feet, adored him : thereupon he addressed her 
-thus; Come, O Pdrcali ! I and thou becoming male and female 
-produced all the licing beings in the world, wc became the Yoni and 
-the Linga, there is no difference between us as I and thou ; let us 
-then be united together as the tree and the core. 
+[TAMIL].
 
-Haring quitted the whole of thy body for my sake thou hast betaken 
-thyself to the mountain Imaus ; hence it is proper that I should yield 
-to thee one half of my body. O Damsel! take thy place ivith me on 
-my left. So saying he embraced her with his hands, and then their 
-bodies melted aiid became united together. 
+_When the Eternal, who is beyond the compass of the various Vedas manifested himself riding on the bull, the virtuous (Pārvati) casting herself at his feet, adored him: thereupon he addressed her thus; Come, O Pārvati! I and thou becoming male and female produced all the living beings in the world, we became the Yoni and the Linga, there is no difference between us as I and thou; let us then be united together as the tree and the core._
 
-Erichaliir Maladanar was a native of Erichulur, and one of the 
-forty-nine professors of the Madura College. His personal history 
-like that of his colleagues has been lost, and the only relic of his po- 
-etical compositions is the following impromptu on the Kural, which 
-uierely enumerates the divisions and subdivisions of that work. 
+_Having quitted the whole of thy body for my sake thou hast betaken thyself to the mountain Imaus; hence it is proper that I should yield to thee one half of my body. O Damsel! take thy place with me on my left. So saying he embraced her with his hands, and then their bodies melted and became united together._
 
-Ganapati AlYKR --- ssssru^ S"-"^' 
+## Erichalūr Malādanār. --- [TAMIL].
 
-Ganapati Aiyer was a Brahman of Batticotta in Jaffna, who enjoy- 
-ed the reputation both of a poet and physician. The date of his birth 
-js not known ; but he died in A. D. 1803. He is chiefly known as 
-the author of two dramas, the Alanhirarupa Nddakam {s\G\:)ihsa>na^ 
-ufBfTusir), and the Vdlabima Nddakam {eunemSLDihni---au:)., which 
-have gained much popularity and are often acted. 
+Erichalūr Malādanār was a native of _Erichalūr_, and one of the forty-nine professors of the Madura College. His personal history like that of his colleagues has been lost, and the only relic of his poetical compositions is the following impromptu on the _Kural_, which merely enumerates the divisions and subdivisions of that work.
 
-Gna'na Ku'tur --- (^fTsard^p^^^iT. 
+[TAMIL].
 
-Gnana Kilter was a Saiva ascetic and poet, who lived at Sivenpa- 
-kam, in the Carnatic ; but of whose personal history scarcely any 
-thing is known. He is however remembered as the author of thp 
-Vridd'lidchala Purdnam f a?(55;^/Td=6^UL]fffT63W(i)), a poem consisting of 
-435 stanzas, arranged in eighteen cantos, and recounting the legends 
-of the Saiva shrine on the Vriddhachala Hill, in the Carnatic. 
+## Ganapati Aiyer. --- [TAMIL].
+
+Ganapati Aiyer was a _Brāhman_ of _Batticotta_ in Jaffna, who enjoyed the reputation both of a poet and physician. The date of his birth is not known; but he died in CE 1803. He is chiefly known as the author of two dramas, the _Alankārarūpa Nādakam_ ([TAMIL]), and the _Vālabīma Nādakam_ ([TAMIL]), which have gained much popularity and are often acted.
+
+## Gnāna Kūtur. --- [TAMIL].
+
+Gnāna Kūtur was a _Saiva_ ascetic and poet, who lived at _Sivenpakam_, in the Carnatic; but of whose personal history scarcely any thing is known. He is however remembered as the author of the _Vriddhāchala Purānam_ ([TAMIL]), a poem consisting of 435 stanzas, arranged in eighteen cantos, and recounting the legends of the _Saiva_ shrine on the Vriddhāchala Hill, in the Carnatic.
 
 Gna'napraka'sa De'siker --- (s^nesruL9iran^Q^9iin. 
 
