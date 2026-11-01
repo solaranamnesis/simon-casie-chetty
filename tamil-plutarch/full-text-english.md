@@ -367,56 +367,25 @@ Ganapati Aiyer was a _Brāhman_ of _Batticotta_ in Jaffna, who enjoyed the reput
 
 Gnāna Kūtur was a _Saiva_ ascetic and poet, who lived at _Sivenpakam_, in the Carnatic; but of whose personal history scarcely any thing is known. He is however remembered as the author of the _Vriddhāchala Purānam_ ([TAMIL]), a poem consisting of 435 stanzas, arranged in eighteen cantos, and recounting the legends of the _Saiva_ shrine on the Vriddhāchala Hill, in the Carnatic.
 
-Gna'napraka'sa De'siker --- (s^nesruL9iran^Q^9iin. 
+## Gnānaprakāsa Desiker. --- [TAMIL].
 
-GnanaprakasaDesekerwas a native of Tinnevelly, in Jallha. Hav- 
-ing gone over to Southern India in his early youth, ami perfected 
-himself there in the knowledge of the Tamil (Jrauiniar m\<\ < 'lassies 
-undei' the luilion ol sevend PunJits, lie re|)aircd to the Gauda coimtiy 
-for the purpose of studying fc>unskrit, in order to read the Saiva Aga- 
-7>i(ts in their original ; but tl'.e Brnhmans of Gnuda objected to it on 
-the ground that he being a Sudrn could not have access to those sa- 
-cred books. One of tlietn however, wlio was more liberal minded 
-than the rest, perceiving the acuteness of liis intellect, received him 
-as his pupil, and in the course of a few years made him an able Sans- 
-crit scholar. He afterwards returned to Southern India, and having 
-been invested with the office of Tambirchi, established himself at Tri- 
-nomali,;and composed several works in Sanskrit for the use of tho 
-members of the il/a/rtw at that place. Whilst he was thus employed 
-at Trinomali, having heard some through envy remark that he was 
-clever only in Sanscrit and not in Tamil, he wrote in Tamil a learn- 
-ed Commentary on the Sivagnd7ia SUt'njar which is now in great 
-repute wherever the Saica religion prevails, 
+Gnānaprakāsa Desiker was a native of _Tinnevelly_, in Jaffna. Having gone over to Southern India in his early youth, and perfected himself there in the knowledge of the Tamil Grammar and Classics, under the tuition of several Pundits, he repaired to the Gauda country for the purpose of studying Sanskrit, in order to read the _Saiva Agamas_ in their original; but the _Brāhmans_ of Gauda objected to it on the ground that he being a _Sūdra_ could not have access to those sacred books. One of them however, who was more liberal minded than the rest, perceiving the acuteness of his intellect, received him as his pupil, and in the course of a few years made him an able Sanscrit scholar. He afterwards returned to Southern India, and having been invested with the office of _Tambirān_, established himself at Trinomali, and composed several works in Sanskrit for the use of the members of the _Matam_ at that place. Whilst he was thus employed at Trinomali, having heard some through envy remark that he was clever only in Sanscrit and not in Tamil, he wrote in Tamil a learned Commentary on the _Sivagnāna Sittiyar_ which is now in great repute wherever the _Saiva_ religion prevails.
 
-This poet was a native of^ Kalendai, a town near Chingleput,.antl 
-he attracted much notice in his day. He is known as the author of two 
-treatises on the art of poetry, one of which styled Nemhiddam (G/buP 
-fs.7^t£), consists of 96 stanzas, and the other styled Yenbupdttiyel 
-((rei/^TOLifTuu.Td^LUJSD), consists of 100 stanzas. The last work is 
-stated to have been composed under the patronage of Vachchanan^ 
-Di.MUNi, an eminent ascetic, in the time of the king Trib'huvana 
-Dkva, perhaps the same with Trib'huvana-malla, who reigned at 
-Anumakondu in the eleventh century of the Christian era * 
+## Gunavira Panditer. --- [TAMIL].
 
-Gurupa'dada'sen --- (^Q^un^^nfftssr, 
-Nothing more is known of 'this poet than that he was the author of 
-a poem, entitled A'imjrtresrt Sataga/n {^tLQoffff^&th), comprising a 
-centum of stanzas on moral and social duties, and which has obtain-' 
-cd great popularity. Each stanza in this work ends with an eulogis- 
-tic address to Kumarcsa, the form of SAa^f/a worshipped at TiruppuU 
-vaiyal, and we subjoin one of them as a specimen. 
+This poet was a native of _Kalendai_, a town near Chingleput, and he attracted much notice in his day. He is known as the author of two treatises on the art of poetry, one of which styled _Neminādam_ ([TAMIL]), consists of 96 stanzas, and the other styled _Venbāpāttiyel_ ([TAMIL]), consists of 100 stanzas. The last work is stated to have been composed under the patronage of **Vachchanandimuni**, an eminent ascetic, in the time of the king **Tribhuvana Deva**, perhaps the same with **Tribhuvana-malla**, who reigned at Anumakonda in the eleventh century of the Christian era.*
 
-'■'^ffk^eisTS(^p'^^nissi Qix.sSik^iQ^\hi^n^Qu>n ^ciru:i6sarrEj(^asT^L~rT 
-* Aladraii Journal of Liiernturc and Science, \i'l. x. n '.JO. 
+*) Madras Journal of Literature and Science, vol. 10. p. 20.
 
-As gold though melted in the /Ire, yet will not Jose its lustre ; the 
-sandal-wood though worn out, yet will not lose its fragrance ; the 
-(hank though burnt, yet u-ill not lose its whiteness ; the milk though 
-diminished in quantity by being boiled, yet xoill not lose its favor ; 
-and the gem though ground, yet 7oill not lose its brilliancy ; so great 
-men though impoverished, yet loill not lose their magnaniviity ; O Ku- 
-maresa ! the strong-shouldered king, toho wedded the Kurava female 
-and riding on thejjeacock, sports on the hill at Pulvaiyel. 
+## Gurupādadāsen. --- [TAMIL].
+
+Nothing more is known of this poet than that he was the author of a poem, entitled _Kumaresa Satagam_ ([TAMIL]), comprising a centum of stanzas on moral and social duties, and which has obtained great popularity. Each stanza in this work ends with an eulogistic address to _Kumaresa_, the form of _Skanda_ worshipped at Tiruppulvaiyal, and we subjoin one of them as a specimen.
+
+[TAMIL].
+
+_As gold though melted in the fire, yet will not lose its lustre; the sandal-wood though worn out, yet will not lose its fragrance; the chank though burnt, yet will not lose its whiteness; the milk though diminished in quantity by being boiled, yet will not lose its flavor; and the gem though ground, yet will not lose its brilliancy; so great men though impoverished, yet will not lose their magnanimity; O Kumaresa! the strong-shouldered king, who wedded the Kurava female and riding on the peacock, sports on the hill at Pulvaiyel._
+
+## Ideikāder. --- [TAMIL].
 
 id'eikader, so named after Id'eikazhi-nddu, the land of his nalivilyj 
 was a poet from his earliest youth. Having lieard tliat Kulesa Pa'n- 
