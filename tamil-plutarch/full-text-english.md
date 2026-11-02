@@ -447,458 +447,177 @@ We give a very well authenticated anecdote of Inbakavi, which will prove that he
 
 _To what shall I liken the colour of the hair of the condé of the damsel, who is enamored of the noble Abraham* of the race of Ganga? Shall I liken it to the black paint, or to the black sand, or to the black beetle, or to the black cloud, or to the black moss?_
 
-Before he quilted Jaffna he wrote a drama, called Kuravanji (^rr) 
-6ij^#), in honor of the Kutcherry Mudeliar, which eUcited general 
-admiration for its musical cadence, and its vivid colouring and ima- 
-gery. This was his only composition of any bulk ; but he has left several 
-very singularly beautiful stray pieces, which he addressed to his differ- 
-ent benefactors. One day when he was drunk, and attending the feast 
-in the Hindu temple at Nellore as a spectator, he hymned the praises 
-of Skanda in an ode with the chorus {LDiiSiii>ourTa€^ibQana;biL.n6mif. 
-ihid^n4aM^6si LriuSnsmi~nemi9.), '■' Skanda of Nell oi^e 
-has mounted his vehicle, the peacock, yea he has mounted his vehicle, 
-the j^cacock,'' but in his sober moments feeling compunction for it, 
-lie instantly composed another ode commemorating the crucifixion of 
-our Lord, the chorus of which is as follows : --- {u^^ang^esukGanem 
-i---nQa Q'jjsuhniuan fi^o!S)SiJUU00'ang-esiiBGammi---nQa) '■^ Lord Jesus 
-has enthroned himself, yea he has enthroJied himself on the Crosse 
-
-A supplicatory stanza of Inbakavi, addressed to our Lord in imita- 
-tion of the one addressed to Siva by Ta yuma naver,! is too good to 
-be omitted, and we therefore give it below with an English para- 
-phrase. 
-
-^sS'^Qiun --- eS L^iLLissrfiQiB^^niQfiefflajicS'hsoQiun uiasnaSsmsrsiJinu 
-
-Have 7iot four thousand pet^sons satisfied their hunger with seven 
-loaves ? Was not water turned into wine, and the man who had bce.?i 
-dead four days restored to life f Did not the tvoman, who touched 
-the hem of thy garment, become cured of her disease, and the storm, 
-abate at thy word 7 Was not silver found in the mouth of the fsh 
-
-" Tlie eldest son of the Kutcherry Mudeliar. 
-
-of the sea, and did not the. dumb spcok, the blind arc, and the lame 
-walk swiftly ? Is it then hard for thee, Oh Jesus, the holy son whom 
-the Virgin of Israel has brought forth! to help thy servant ivho is 
-embroiled in trouble, and beset with many difficulties. 
-Jnbakavi died at Manapar in tlie year 1835. 
-
-Ireiyena'r --- @sm^«j(e5)ff. 
-
-This poet was one of the forty-nine professors of the Madura Col- 
-lege. He appears to have been a prodigy of learning, and the Hin- 
-dus therefore absurdly believe that he was Siva himself, who in dis- 
-guise mingling with the professors of the College, eontributed to the 
-iniprovement of the Tamil literature. A treatise on the composition 
-of erotic poems with examples, under the title of Ireiyendr Agapporiil 
-(Sg'oinnD'JJ®/! cSiffuC'urTjfjsiT), is ascribed to his pen; and tradition has 
-preserved the following impromptu which he uttered on the merits of 
-the Rural : --- 
-
-The Rural which has proceeded from the mouth of Valltivek, the 
-king of poets, will never lose its beauty by the lapse of time ; it 
-xoill he always in its bloom, shedding honey ( of instruction) like the 
-flower of the tree in Indras paradise, 
-
-Two poets who were twin brothers, and who acquired great re- 
-nown by their fixcility in extempore versification, during the reign of 
-Pra'krama Pa'ndiyen in the fourteenth century of the Christian era. 
-From their birth they suffered under great physical disadvantage, the 
-elder being a cripple, and the younger blind. They depended for 
-their subsistence solely on their powers of improvising verses, and 
-when they went out for this purpose, the younger used to carry on his 
-shoulders the elder, who led him in his way. Linked together by 
-birth and misfortune, there was one tie which even bound them still 
-closer. In whatever they improvised, the younger uttered the first 
-two lines of a stanza and the elder the last two. Many of their ex- 
-temporaneous stanzas are still extant, of which we will select but 
-two as specimens. Going once to the house of a wealthy man, nam- 
-ed Tiruvenkate'sen, who was distinguished for his generous dispo- 
-sition, he was about to give them some presents, but his elder brother 
-dissuaded liim from doing it. Upon which the younger Irettciyer 
-observed. 
-
-Why was this unphasant man horn of the same parents icilh the 
-honcy-moiilhed Tiruvenkatesen ) 
-
-To which the elder Irettciyer unmediately replied thus ; 
-
-tnn^Qffneo&Qa&r- 
-
-Hear jne ! 
-
-Was not Mudevi (the Goddess of misfortune) horn in the same 
-milky sea before Sidevi (the Goddess of fortune). 
-
-On another occasion having lodged for a night in a PiUeiydr''s 
-temple, they had taken the precaution to deposit under the altar the 
-money, which they had earned during the day, wrapt in a cloth, and 
-missing it the next morning, they railed against the god in the fol- 
-lowing stanza: 
-
-(QULDuQi^QfEuLl^Q^QLCnLDniUm ^IMLjeStiSsx) 
-
-Thy younger hr other (Skanda) is a stealer of maidens, and that 
-vile May en (Vishnu), who was horn with thy mother, is a stealer of 
-lutter, and O Pilleiyur (Ganesa) ! thou hast now stolen the money 
-ifhich was icrapt in the cloth. Will the natural disposition of the fam- 
-ily be never changed. 
-
-Neither the place, nor the date of the Ir'etteiycr's death is known, 
-hut a tradition would have it that they hoth died simultaneously. The 
-llev. Mr. Taylor in the 2d volume of his Oriental Historical Manu- 
-Kcripts, Appendix, D., quotes the following stanza in praise of Pra- 
-KRAMA Pandiyen, as the production of the two brothers, and the reader 
-will find that we have adopted his translation, with a few alterations 
-in order to make it approximate to the original : --- 
+Before he quitted Jaffna he wrote a drama, called _Kuravanji_ ([TAMIL]), in honor of the Kutcherry Mudeliar, which elicited general admiration for its musical cadence, and its vivid colouring and imagery. This was his only composition of any bulk; but he has left several very singularly beautiful stray pieces, which he addressed to his different benefactors. One day when he was drunk, and attending the feast in the Hindu temple at Nellore as a spectator, he hymned the praises of _Skanda_ in an ode with the chorus ([TAMIL]), "_Skanda of Nellore has mounted his vehicle, the peacock, yea he has mounted his vehicle, the peacock_," but in his sober moments feeling compunction for it, he instantly composed another ode commemorating the crucifixion of our Lord, the chorus of which is as follows:--- ([TAMIL]) "_Lord Jesus has enthroned himself, yea he has enthroned himself on the Cross._"
 
-e^uuifluu^^<oSi'2efrujnLL(Si(smp^Q!jnsiu>iLnQissr 
-euf.LJuss)sd(^'S€uu)Qun s(Sli<cS)^Qiun'SmhiLnQ(Ssr 
+A supplicatory stanza of Inbakavi, addressed to our Lord in imitation of the one addressed to _Siva_ by **Tāyumānaver**,* is too good to be omitted, and we therefore give it below with an English paraphrase.
 
+[TAMIL].
 
-THE TAMIL HLUTARCir. 31 
+_Have not four thousand persons satisfied their hunger with seven loaves? Was not water turned into wine, and the man who had been dead four days restored to life? Did not the woman, who touched the hem of thy garment, become cured of her disease, and the storm abate at thy word? Was not silver found in the mouth of the fish of the sea, and did not the dumb speak, the blind see, and the lame walk swiftly? Is it then hard for thee, Oh Jesus, the holy son whom the Virgin of Israel has brought forth! to help thy servant who is embroiled in trouble, and beset with many difficulties._
 
-O Lady! Was it from the mount Kolli ihc dwarfish saf^e (A(;as- 
-tiyer) produced the Tamil language ? [No, from the Fothiija in the 
-Pandiya country.] 
+Inbakavi died at Manapar in the year 1835.
 
-O Lady ! Did the incomparallc sports (of Siva) take place at 
-UreiurJ {No., at Madura, the metropolis of the Fdndiya country.) 
+*) The eldest son of the Kutcherry Mudeliar.
 
-O Lady ! Was Vishnu eeer metamorphosed into a tiger ? (No, into 
-a fish, the device on the banner of the Pandiya kings.) 
+*) Vide [TAMIL], p. 7. Madras Edition.
 
-O Lady ! Is it the sun which Siva wears over the tuft of hair tipon 
-the crown of his head 7 (No, it is the moon the progenitor of the 
-Pandiya race). 
+## Ireiyenār --- [TAMIL].
 
-O Lady ! Was it the hank destroying Kdveri lehicli saw the icrit- 
-ing (of Sampanterj ascend up against its stream ? (No, it toas 
-Vaigai, the river of Madura.) 
+This poet was one of the forty-nine professors of the Madura College. He appears to have been a prodigy of learning, and the Hindus therefore absurdly believe that he was _Siva_ himself, who in disguise mingling with the professors of the College, contributed to the improvement of the Tamil literature. A treatise on the composition of erotic poems with examples, under the title of _Ireiyenār Agapporul_ ([TAMIL]), is ascribed to his pen; and tradition has preserved the following impromptu which he uttered on the merits of the _Kural_:---
 
-O Lady ! What is more heroic, the A'tti or Veppa garland ? (the 
-Veppa, loom hy the Pdndiyakings, voioing thereby to conquer or die.) 
+[TAMIL].
 
-O Lady! Was it at the feet of the Chola the sea submitted ? (No, 
-it teas at the feet o/Ugra Pa'ndiyen.j 
+_The Kural which has proceeded from the mouth of Valluver, the king of poets, will never lose its beauty by the lapse of time; it will be always in its bloom, shedding honey (of instruction) like the flower of the tree in Indras paradise._
 
-O Lady ! Is it then a light thing to declare thepraise o/Tra'kra- 
+## Iretteiyer. --- [TAMIL].
 
-MA Pa'NDIYEN } 
+Two poets who were twin brothers, and who acquired great renown by their facility in extempore versification, during the reign of **Prākrama Pāndiyen** in the fourteenth century of the Christian era. From their birth they suffered under great physical disadvantage, the elder being a cripple, and the younger blind. They depended for their subsistence solely on their powers of improvising verses, and when they went out for this purpose, the younger used to carry on his shoulders the elder, who led him in his way. Linked together by birth and misfortune, there was one tie which even bound them still closer. In whatever they improvised, the younger uttered the first two lines of a stanza and the elder the last two. Many of their extemporaneous stanzas are still extant, of which we will select but two as specimens. Going once to the house of a wealthy man, named **Tiruvenkatesen**, who was distinguished for his generous disposition, he was about to give them some presents, but his elder brother dissuaded him from doing it. Upon which the younger Iretteiyer observed.
 
-N. B. The answers within brackets are our own, placed for the 
-purpose of rendering the sense of the questions intelligible. It would 
-appear that the poets praise Pdndiya, at the expense of Chola, by re- 
-minding that the latter cannot glory in such things as the former can. 
+[TAMIL].
 
-Kachiyapper SS'&UJUun. 
+_Why was this unpleasant man born of the same parents with the honey-mouthed Tiruvenkatesen?_
 
-Kachiyapper was a Brdkman of the Adi Saiva sect, who officiat- 
-ed in the temple of Ekdmbeswara at Kanjipuram, in the Carnatic. 
-He was no less conspicuous as a poet than as a Veddntist, as is evi- 
-dent from the poetical talents which he has displayed in his imitation 
-of the Sankara Sanhita of the Skanda Purdna in Tamil, under the 
-title of Kandapuranam {aihSiULjunemtb), comprising 13^305 stanzas 
-in six books. He undertook this work upon the request of certain 
-illustrious personages at Kanjipuram, and finished it, according to the 
-date specified in the following stanza prefixed to Parasira'ma Mu- 
-deliar's-Kandapura'jMA Va'sakam, in the Saka year 700, correspond- 
-ing with A. D. 778. 
-
-Qsj^Q(Sii^nk^i£i!TSLD^^(T^LD^eo^nil) eSl ffl k^Q ® i-i n IT sm IS) 
-
-The Saivas, especially in Jaffna, consider it as one of their most 
-sacred works next to the Vedas, and regularly recite it in their tem- 
-ples once a year wjth great solemnity. 
-
-
-n'<J TVil, TAMIL PI-UTARCH. 
-
-K A DIG \IMUTTU Pl'L AV ER ^ LSf.oS)S(Lp^^ u l^SO Sl ,7. 
-
-Kadigaimuttu Pulaver was a celebrated poet retained at the court 
-of Jagavi'rara'ma Venkate'swara Ettappa Na'yaker, Raja of 
-Eitlapuram, of which place he was a native. Of his compositions the 
-Suviudra Vildsum {ff'j; 0^ oeS eons' (h)., a panegyric in 100 stanzas, is 
-deservedly esteemed fur its elegant style. It is inscribed to the Raja 
-hims.lf, between wliom and the ocean many curious similes are drawn 
-with an ingenuity scarcely surpassed. The Dikrijayam {0a^QS^&{U 
-ib), another panegyric, consisting of 325 stanzas, has also much mer- 
-it, and redounds to his credit. The hero of this poem is Varagunar- 
-A'r.iA Vaxnivanar, Raja of Sivagiri, the pomp and splendour of whose 
-court, and his bravery and successful forays the author describes in 
-the most enthusiastic strains. 
-
-Kalla'der --- sioeont--- it. 
-
-This poet was one of the forty-nine professors of the Madura Col- 
-lege, and like many of the learned men of his time, he lived and died 
-an ascetic. He appears to have devoted his attention chiefly to 
-Grammar and Rhetoric, of the principles and rules of which two 
-sciences he wrote a treatise, calling it after his own name KaUadam 
-(fi.o\^6^fTt_LD \ This work, however, is not now in general use, but it 
-nevertheless deserves the encomium bestowed on it in the following 
-stanza, which one of its admirers has prefixed to it : 
-
-€h6\)&}niTSf^fas^^leo (au^ifi(i^(siB --- Qffnsi'6\)tiuSlL£i 
-
-When Kallader's xcork the Kulladam, eonsisting of a hundred 
-stanzas^ loas recited before the College of the learned, the Lord of 
-Madura having heard it, teas so much i)leascd that he nodded appro- 
-bation a hundred times. 
-
-Kallader was present when Tiruvalluver submitted the Kural 
-to the College bench, and we subjoin here tlie impronii)tu, which ho 
-is said to have uttered on the incomparable merits of that production. 
-
-e^asrQpQunQ^Q&rearsaflm QeuQp(SsruQi3ijQn)i^&^ 
-iRsrmQpasTueun^ijg^iDuu^finn --- is esrO/rxssT esr 
-
-QsL'UUn6\)Sij0lAI(omuJuQsu<aiJ<siT(ei^S>J(^IT 
-
-QpuunmQLonL^iis^QLDni£l. 
-
-Of the six sects, one tcill condemn the system of the other, but none 
-of them will condemn the system 2)ropounded by Valluver in his 
-Kural ; as it has the merit of harmonizing the sujfragcs of them all, 
-so lluit eoili sect would admit ii to hr its orcn 
-
-
-Kalattu R KizHA R --- sefTji^niQifiniT. 
-
-This poet wns n nntivo of KaJaltur, a town nbar IVtadurd, ahd he 
-is nnml)ercal among the forty-nine professors of the Madura College. 
-Tiie only relic of his cohipositions is the following stanza on the 
-
-jSS (J^ ID (IP ^ I'S n SS!(^<^ 3^(7 §il LDQ^LDOnpS 
-
-He who studies the two-lined verses in the three divisions of 
-Valluver's Kural will obtain the four things {virtue^ wealth, pleas- 
-ure and eternal happiness) ; for they contain the substance oj the fvc 
-Vedas (including the Mahdbhdrat), and the six systems of the six 
-sects. 
-
-Kambeu--- «ii;u/f. 
-
-Kambei- was the most eminent poet of his age. He was the son 
-of a king of Kanibanddu, a district in the Carnatic. His mother when 
-pregnant of him was forced to flee in disguise in consequence of a 
-rebellion, in wiiich her husband was assassinated, and to take refuge 
-in the house of an O'chchen* at Tiruralundur, where she gave him 
-birth. Under the hospitable roof of the O'clichen he remained until 
-his seventh year, when a wealthy farmer of the name of Sadetyen, 
-who lived at Vennei Nelliir, having been informed of the circumi 
-stances of his case, invited him, and his mother over to his village, 
-and placing them in a house, which he had prepared for them, sup- 
-plied them with all necessaries. He also carefully watched over 
-the studies bf his protege, whose superior genius developed itself even 
-i!i his childhood. The young poet it is said would not compose a 
-stanza for less than the reward of a hundred pons\. His fame reach- 
-ing the ears of Ra'je'ndra Cho'la, that king invited him to Ureiur, 
-and appointed him as one of the poets of his court; conferring oil 
-liim at the same time the title of Kavi Chakravati, or the king of 
-poets The Ramdyana being in Sanscrit, Kamber, Otteiku'tek, and 
-several others of the court poets, separately undertook to imitate it in 
-Tamil. When their inlitatidns Were finished, they Avere recited in 
-the presence of KIjlo'tunga Chola, who had succeeded Ra'je'ndra 
-Chola on the throne. This king preferred Kamber's imitation above 
-the rest, being of opinion that it was not only sublime in style and 
-sense, but that it approached nearest to the original. It was then by 
-the king's order submitted to the judgment of the learned assembly of 
-Brikinans at Sirangajn, who, although they fully approved of the work^ 
-
-* One of the Kudi-vmkkels or village lervnnts whose particular duly it is 
-fr> offer sacrifice to the godrluss Piddri for the villagfri. 
-) A coin, valued at 3s. Qd. sterling. 
-
-nevertlieless strenuously oltjected to the praise bestowed by Kambei; 
-on his patron Sadeiyen in every hundredth stanza of the poem, and 
-which he did upon the request of his mother*. They said that hu- 
-man praise should not be mixed up with the divine ; but on his re- 
-presenting to them the necessity of his paying at least some tribute 
-to" his patron, they allowed him to confine his praises to every thou- 
-sandth stanza. Overjoyed at the concession, he rose up in the midst 
-of the assembly and said, "I considered my patron as one in a hun- 
-dred, but this learned assembly has considered him as one in ft 
-thousand." The Brdhma7is admiring his wit bestowed c'n him the 
-title o( Mahd-Kavi, or the great poet, and he in return complimented 
-thern with a centum of verses, expressive of his veneration for SadU' 
-gopa Azhivdr, one of the Fa?sA«m'rt saints. VAHAGtrNA Pa ndiyen, 
-the king of Madura, having heard of him about this time, invited 
-him to his court. He there composed the Sarasrati Antadi {s^u&O 
-fiL'^tu'i^/T^), a poem in thirty stanzas in praise of Sardsvati^i\\e god- 
-dess of poetry, which obtained for him great honors, and munificent 
-presents from that king. Kamber's Rdninydnam consists of 12,016 
-stanzas, arranged in five books ; and a writer in the Calcutta Rfevifew 
-says that it "may be compared to Pope's Iliad "t. In one of thecoitr- 
-niendatory stanzas which is prefixed to the work tiie year of Saka 
-808 (A. D. 886) is specified as the date of its publication by Kam- 
-ber ; but the Rev. Mr. Caldwell, the authc-'r of the Com*i3arative 
-Grammar of the Dravidian Languages, rejects this date as spurious 
-from the evidence of certain inscriptions found at Cape Comorin, 
-and in the old Chalukya country, according to which the Chola kings 
-who patronized Kambcr lived only in the eleventh century of the 
-Christian era. 
-
-Other works ascribed to Kamber are the Knnji Purafium (an^^ 
-qufrsscnih) , Kdnji Pilleitamil {ans^iFuLS'^nQ£tT$a:i^i^), Chola Kitru- 
-vanji ((Ja=ntp<5,gnr)6r;g#), S'dci Yczhupadu {<^6u^Gi>Lgu^) and £>•- 
-Yezhupadu {qrQaL^us>)- Of these however only the .SZ/ei- i'ez/ij/- 
-padu., containing seventy stanzas in praise of the bo^v, and E'r-Yezltu- 
-padu, containing seventy stanzas in praise of the plough, are with- 
-in our reach, and as far as we can judge, their style and versification 
-are worthy of the noble poet. 
-
-Ltiss is known of Kamber's personal histo'ry thcrn could be desired. 
-All that we gather from traditions is, that the latter part of his life 
-was a struggle between poverty, and ill-fortune. His son Ambika'pa- 
-TT, who was likewise a poet at the court of Kflo'tunga Cho'i.a, hav- 
-ing been carrying ort all amorWis intrigue with the king's daughter, 
-and betraying it in one of his poetical effusions, '^'as, by the king's 
-command, impaled alive |, rmd h6 died afler having lingered on the 
-stake for a couple of days, repeatitig incessantly thfe subjoined verse, 
-in the midst of his sulFerings. --- 
-
-* See liutnasabdpati Mdlei, vcrso 26. 
-f Culctitta llevit-w, Vol. xxv. p . 108. 
-{ See Jdtjankondan 9iiilagami verSe 20. 
-
-Wkat can I do? The f re which the divine damsel toilh venomed 
-eyes has kindled in my heart burns within vie, it hirns, yea it burris 
-fcithont extinguishing. 
-
-Kumber was so overwhelmed with grief rit this sad event, that he 
-discontinued attending on the king, and confined himself entirely to 
-his house. Whilst in this state of mind, the king's son, who was ref 
-turning from school, having taken refuge in his house from a fierce 
-elephant, which was at large in the street, he snatched the stylus 
-which the prince held in his hand, and with it stabbed and killed him 
-on the spot. The king immediately prdered Kamber to be brought 
-up, and shot at him w ilh an arrow ; but the wound not prov- 
-ing mortal, and through some intervention which ivS not stated, he ef- 
-fected his escape into the Pdndiyen country. He has commemorated 
-this event in the following impromptu : --- 
-
-eSineouciL^ Q ff" n 6V &) th lj Qm^esf^iiSleSl!Tem(Blssar(B 
-
-3i-iL(SlQfiL^nQs>jmsijnuSibQ3=nG\}. 
-
-There are tivo kinds of arrows on earth, of ivhich one is shot out 
-from the how, and the other from the mouth. O king ! thine arrow 
-from the how has lyit my breast, but mine, the icord of my mouth, has 
-purnt up thy race. 
-
-After his flight frgm the Chola Court, he entirely lost his poetical 
-inspiration, and being reduced to poverty was obliged to support him- 
-self by daily labour*. He died in the sixtieth year of his age, at 
-Ndttarasenkottei, in the Ramnad country, and was buried there in a 
-sitting posture as is custon^ary with the Vaishnava sect, to w-hich he 
-belonged. It is said that his grave now forms an object of pilgrimage 
-amongst the Hindus, and that the earth taken from it is given tq 
-children who are dull-headed, frpiii a supcrstitLous belief that it would 
-sharpen their intellect. 
-
-When the intelligence of his det|.th reaclied the ears of Otteiku'tur, 
-who was always his rival yifh^n alive, he is said to have 
-his sorrow and lamentation in the following impromptu : --- - 
-
-e61^ec!)/DdQsnQ'aU€!!rseiSl&s)^Qujp(^''in&T --- ^osretDjssQsir 
-
-miTLDi---iieis)^ ^eSipifiiBneir. 
-* See Jaiiavhonddn Sadngnm, verse, 11 
-
-
-86 THE TAMIL PLUTARCH- 
-
-Is it to day that Kamber has died ? 
-
-Is it to-day that he accepts my elegiac lay } 
-
-Is it to-day that Sai^asvati* ^has been widoiced ? 
-
-Whilst Lakshmif is blooming andPdrvatil is sitting in majesty. 
-
-There is a tradition tliat Kamber once visited a certain king of 
-Ceylon, and that the king was so charmed with his poetry that lie 
-was treated with unusual affability, so much so, that the Court poets 
-became jealous of him and formed a plot to keep him at a dis- 
-tance from the Palace, by bribing a barber to claim relationship with 
-him ; but he soon found means to expose their artifices and they had 
-the mortification to see him afterwards even honoured with a seat on 
-the throne by the side of the king. We cannot, however, vouch for 
-the truth of this tradition ; but the following stanza in praise of Suras- 
-vati, which is generally attributed to him is said to refer to it : --- 
-
-It is my mother who sits in majesty on the white lotus, robed, in 
-white garments and adorned with ichite ornaments, that gave me ai} 
-equal seat xoith the king on the throne^ borne by the ichite lion. 
-
-Kapileh --- siSieOn. 
-
-Kapiler was one of the forty-nine professors of the Madura Col- 
-lege. He was the brother of Tiruvalluver, and being exposed by 
-his mother soon after his birth at Trivalur, he was found and adopted 
-by a Brahman of that place. When he arrived at his seventh year, 
-his foster-father invited the other Brahmans at Trivalur in order tq 
-invest him with the sacred cord, but they all peremptprily refused tq 
-accept the invitation on the ground that he not being a Brahman was 
-not entitled to be initiated into the privileges of their order. Upon 
-hearing this, Kapiler repaired to the place where the Brahmans were 
-assembled, and in an Agavel'^, which he composed and recitpd before 
-them, refuted their high pretensions by proving that caste was not 
-innate but accidental, and they not beingable to rebut his arguments, 
-at once admitted him into their rank by investing him with the sacred 
-cord. A metrical version of the Agavel in English by the Rev C. 
-J. Robinson has been published in Rev. P. Percival's Land of the 
-Veda. 
-
-
-* Sarasvati, the goddesi of poetrv. 
-t Lakshumi, the goddeis fortune.' 
-t Farcati, tho coiiiort of S/nt. 
-§ A short poem in tlie .isirhji melrc. 
-
-Kupilcr was present in tlie Madiiru Collcgp wlieii his brutlicr''s 
-Kural was rcciled, ami lie conveyed his opiiiiun ui' the merits of tha^ 
-work in the following impromptu : --- 
-
-u'ccsuju&r Si^ i n lL'^ ihu uf./ ^ n SSI --- uicesTujetr(^ 
-QaUaii'Ssrrdi^pLLufrsSlifl. 
-
-O king of the fertile country where the birds reared in houses arc 
-lulled by the women's chants! Valluver's Kural is short in words 
-but extensii'C in sense, even as in a drop of water on the blade of the 
-Tinei (millet) might be seen refected the image of the tall Fanei 
-[Palmijra tree)'. 
-
-KaRUNAIPPRAKA'SA 'DE'SlKER --- 3^(r^dsssruL9pj.n3'^^9siT 
-
-Karunaijjprakasa Desiker was the j'oungcst son of Kuma'raswa': 
-MI Panda kam of Kanjipuram, and was like him a slaiinch adiicrent 
-qf the Vira Saira sect. Having studied under Velliaimbala Taimbi- 
-ra'n, the head ascetic of the Mutam at Sindupunturei, in Tinnevelly, 
-and who was distinguished for his extensive erudition, he became a 
-poet of the first order; but before he could fully display his poetical 
-talents, he was hurried away to a premature grave in the eighteenth 
-year of his age. He wrote a panegyric, under the title oi Ishtalinga 
-Agavil (ia'ci^t-t^fSfffiu-fsuoi;) on the Phallic emblem, which the 
-Vira Saicas wear, an(j afterwards began to write an epic poem^ 
-called Kulatti P-urdnam {infffiff.^uLjijness'.up), treating of the le- 
-gends of the Saira shrine on the mountain Kdlahasti, in the Carna; 
-tic ; but his death prevented him from finishing it. 
-
-Kavira'ja Pandi'ter --- sioSgnffu^iwi^^iT. 
-
-Kaviraja Panditer was a native of Virei, in the Carnatic, but noth 
-ing is known concerning his life, and the time in which he lived. He 
-is chiefly remembered as the auihor of a poem, entitled Saundariya- 
-laghiri (©S"6T7a,^ff'ueUiff'), consisting of 104 stanzas, and which is 
-highly esteemed by the Saktyas on account of its exiolling the great- 
-ness of Pdrvati, whom they worship as the mother of the worlds. 
-So far as regards its versification this poem has considerable merits; 
-but the licentious metaphors with which it abounds, do not at all 
-suit its pretensions as a religious work. 
+To which the elder Iretteiyer immediately replied thus:
+
+[TAMIL].
+
+_Hear me!_  
+_Was not Mūdevi (the Goddess of misfortune) born in the same milky sea before Sidevi (the Goddess of fortune)._
+
+On another occasion having lodged for a night in a _Pilleiyar's_ temple, they had taken the precaution to deposit under the altar the money, which they had earned during the day, wrapt in a cloth, and missing it the next morning, they railed against the god in the following stanza:
+
+[TAMIL].
+
+_Thy younger brother (Skanda) is a stealer of maidens, and that vile Māyen (Vishnu), who was born with thy mother, is a stealer of butter, and O Pilleiyur (Ganesa)! thou hast now stolen the money which was wrapt in the cloth. Will the natural disposition of the family be never changed._
+
+Neither the place, nor the date of the Iretteiyer's death is known, but a tradition would have it that they both died simultaneously. The Rev. Mr. **Taylor** in the 2d volume of his Oriental Historical Manuscripts, Appendix, D., quotes the following stanza in praise of **Prākrama Pandiyen**, as the production of the two brothers, and the reader will find that we have adopted his translation, with a few alterations in order to make it approximate to the original:---
+
+[TAMIL].
+
+_O Lady! Was it from the mount Kolli the dwarfish sage (Agastiyer) produced the Tamil language?_ (_No, from the Pothiya in the Pāndiya country._)
+
+_O Lady! Did the incomparable sports (of Siva) take place at Ureiūr?_ (_No, at Madura, the metropolis of the Pāndiya country._) 
+
+_O Lady! Was Vishnu ever metamorphosed into a tiger?_ (_No, into a fish, the device on the banner of the Pāndiya kings._)
+
+_O Lady! Is it the sun which Siva wears over the tuft of hair upon the crown of his head?_ (_No, it is the moon the progenitor of the Pāndiya race_).
+
+_O Lady! Was it the bank destroying Kāveri which saw the writing (of Sampanter) ascend up against its stream?_ (_No, it was Vaigai, the river of Madura._)
+
+_O Lady! What is more heroic, the Ātti or Veppa garland?_ (_the Veppa, worn by the Pāndiya kings, vowing thereby to conquer or die._)
+
+_O Lady! Was it at the feet of the Chola the sea submitted?_ (_No, it was at the feet of Ugra Pāndiyen._)
+
+_O Lady! Is it then a light thing to declare the praise of Prākrama Pāndiyen?_
+
+N. B. The answers within brackets are our own, placed for the purpose of rendering the sense of the questions intelligible. It would appear that the poets praise _Pāndiya_, at the expense of _Chola_, by reminding that the latter cannot glory in such things as the former can.
+
+## Kachiyapper. --- [TAMIL].
+
+Kachiyapper was a _Brāhman_ of the _Adi Saiva_ sect, who officiated in the temple of _Ekāmbeswara_ at Kanjipuram, in the Carnatic. He was no less conspicuous as a poet than as a _Vedāntist_, as is evident from the poetical talents which he has displayed in his imitation of the _Sankara Sanhita_ of the _Skanda Purāna_ in Tamil, under the title of _Kandapūranam_ ([TAMIL]), comprising 13,305 stanzas in six books. He undertook this work upon the request of certain illustrious personages at Kānjipuram, and finished it, according to the date specified in the following stanza prefixed to **Parasirāma Mudeliar's Kandapurāna Vāsakam**, in the _Saka_ year 700, corresponding with CE 778.
+
+[TAMIL].
+
+The _Saivas_, especially in Jaffna, consider it as one of their most sacred works next to the _Vedas_, and regularly recite it in their temples once a year with great solemnity.
+
+## Kadigaimuttu Pulaver. --- [TAMIL].
+
+Kadigaimuttu Pulaver was a celebrated poet retained at the court of **Jagavīrarāma Venkateswara Ettappa Nāyaker**, Rāja of Ettiāpuram, of which place he was a native. Of his compositions the _Sāmudra Vilāsam_ ([TAMIL]), a panegyric in 100 stanzas, is deservedly esteemed for its elegant style. It is inscribed to the Rāja himself, between whom and the ocean many curious similes are drawn with an ingenuity scarcely surpassed. The _Dikvijayam_ ([TAMIL]), another panegyric, consisting of 325 stanzas, has also much merit, and redounds to his credit. The hero of this poem is **Varagunarāma Vanniyanar**, Rāja of Sivāgiri, the pomp and splendour of whose court, and his bravery and successful forays the author describes in the most enthusiastic strains.
+
+## Kallāder. --- [TAMIL].
+
+This poet was one of the forty-nine professors of the Madura College, and like many of the learned men of his time, he lived and died an ascetic. He appears to have devoted his attention chiefly to Grammar and Rhetoric, of the principles and rules of which two sciences he wrote a treatise, calling it after his own name _Kallādam_ ([TAMIL]). This work, however, is not now in general use, but it nevertheless deserves the encomium bestowed on it in the following stanza, which one of its admirers has prefixed to it:
+
+[TAMIL].
+
+_When Kallader's work the Kulladam, consisting of a hundred stanzas, was recited before the College of the learned, the Lord of Madura having heard it, was so much pleased that he nodded approbation a hundred times._
+
+Kallader was present when **Tiruvalluver** submitted the _Kural_ to the College bench, and we subjoin here the impromtu, which he is said to have uttered on the incomparable merits of that production.
+
+[TAMIL].
+
+_Of the six sects, one will condemn the system of the other, but none of them will condemn the system propounded by Valluver in his Kural; as it has the merit of harmonizing the suffrages of them all, so that each sect would admit it to be its own._
+
+## Kalattūr Kizhār. --- [TAMIL].
+
+This poet was a native of _Kalattūr_, a town near Madura, and he is numbered among the forty-nine professors of the Madura College. The only relic of his compositions is the following stanza on the _Kural_.
+
+[TAMIL].
+
+_He who studies the two-lined verses in the three divisions of Valluver's Kural will obtain the four things (virtue, wealth, pleasure and eternal happiness); for they contain the substance of the five Vedas (including the Mahābhārat), and the six systems of the six sects._
+
+## Kamber. --- [TAMIL].
+
+Kamber was the most eminent poet of his age. He was the son of a king of _Kambanādu_, a district in the Carnatic. His mother when pregnant of him was forced to flee in disguise in consequence of a rebellion, in which her husband was assassinated, and to take refuge in the house of an _Ochchen_* at _Tiruvalundūr_, where she gave him birth. Under the hospitable roof of the _Ochchen_ he remained until his seventh year, when a wealthy farmer of the name of **Sadeiyen**, who lived at _Vennei Nellūr_, having been informed of the circumstances of his case, invited him, and his mother over to his village, and placing them in a house, which he had prepared for them, supplied them with all necessaries. He also carefully watched over the studies of his protege, whose superior genius developed itself even in his childhood. The young poet it is said would not compose a stanza for less than the reward of a hundred _pons_.* His fame reaching the ears of **Rājendra Chola**, that king invited him to _Ureiūr_, and appointed him as one of the poets of his court; conferring on him at the same time the title of _Kavi Chakravati_, or the king of poets. The _Ramāyana_ being in Sanscrit, Kamber, **Otteikūter**, and several others of the court poets, separately undertook to imitate it in Tamil. When their imitations were finished, they were recited in the presence of **Kulotunga Chola**, who had succeeded **Rājendra Chola** on the throne. This king preferred Kamber's imitation above the rest, being of opinion that it was not only sublime in style and sense, but that it approached nearest to the original. It was then by the king's order submitted to the judgment of the learned assembly of _Brāhmans_ at _Sirangam_, who, although they fully approved of the work, nevertheless strenuously objected to the praise bestowed by Kamber on his patron **Sadeiyen** in every hundredth stanza of the poem, and which he did upon the request of his mother.* They said that human praise should not be mixed up with the divine; but on his representing to them the necessity of his paying at least some tribute to his patron, they allowed him to confine his praises to every thousandth stanza. Overjoyed at the concession, he rose up in the midst of the assembly and said, "I considered my patron as one in a hundred, but this learned assembly has considered him as one in a thousand." The _Brāhmans_ admiring his wit bestowed on him the title of _Mahā-Kavi_, or the great poet, and he in return complimented them with a centum of verses, expressive of his veneration for _Sadagopa Azhwār_, one of the _Vaishnava_ saints. **Varaguna Pāndiyen**, the king of Madura, having heard of him about this time, invited him to his court. He there composed the _Sarasvati Antādi_ ([TAMIL]), a poem in thirty stanzas in praise of _Sarasvati_, the goddess of poetry, which obtained for him great honors, and munificent presents from that king. Kamber's _Rāmāyānam_ consists of 12,016 stanzas, arranged in five books; and a writer in the Calcutta Review says that it "may be compared to **Pope's** Iliad."* In one of the com- mendatory stanzas which is prefixed to the work the year of _Saka_ 808 (CE 886) is specified as the date of its publication by Kamber; but the Rev. Mr. **Caldwell**, the author of the Comparative Grammar of the Dravidian Languages, rejects this date as spurious from the evidence of certain inscriptions found at Cape Comorin, and in the old Chalukya country, according to which the Chola kings who patronized Kamber lived only in the eleventh century of the Christian era.
+
+*) One of the _Kudi-makkels_ or village servants whose particular duty it is to offer sacrifice to the goddess _Pidāri_ for the villagers.
+
+*) A coin, valued at 3 s. 6 d. sterling.
+
+Other works ascribed to Kamber are the _Kānji Purānum_ ([TAMIL]), _Kānji Pilleitamil_ ([TAMIL]), _Chola Kuruvanji_ ([TAMIL]), _Silei Yezhupadu_ ([TAMIL]) and _Er-Yezhupadu_ ([TAMIL]). Of these however only the _Silei-Yezhupadu_, containing seventy stanzas in praise of the bow, and _Er-Yezhupadu_, containing seventy stanzas in praise of the plough, are within our reach, and as far as we can judge, their style and versification are worthy of the noble poet.
+
+Less is known of Kamber's personal history than could be desired. All that we gather from traditions is, that the latter part of his life was a struggle between poverty, and ill-fortune. His son **Ambikāpati**, who was likewise a poet at the court of **Kulotunga Chola**, having been carrying on an amorous intrigue with the king's daughter, and betraying it in one of his poetical effusions, was, by the king's command, impaled alive,* and he died after having lingered on the stake for a couple of days, repeating incessantly the subjoined verse, in the midst of his sufferings. ---
+
+[TAMIL].
+
+_What can I do? The fire which the divine damsel with venomed eyes has kindled in my heart burns within me, it burns, yea it burns without extinguishing._
+
+*) See _Ratnasabāpati Mālei_, verse 26.
+
+*) Calcutta Review, Vol. 25. p. 108.
+
+*) See _Jāyankondān Sudagam_, verse 20.
+
+Kamber was so overwhelmed with grief at this sad event, that he discontinued attending on the king, and confined himself entirely to his house. Whilst in this state of mind, the king's son, who was returning from school, having taken refuge in his house from a fierce elephant, which was at large in the street, he snatched the stylus which the prince held in his hand, and with it stabbed and killed him on the spot. The king immediately ordered Kamber to be brought up, and shot at him with an arrow; but the wound not proving mortal, and through some intervention which is not stated, he effected his escape into the _Pāndiyen_ country. He has commemorated this event in the following impromptu:---
+
+[TAMIL].
+
+_There are two kinds of arrows on earth, of which one is shot out from the bow, and the other from the mouth. O king! thine arrow from the bow has hit my breast, but mine, the word of my mouth, has burnt up thy race._
+
+After his flight from the Chola Court, he entirely lost his poetical inspiration, and being reduced to poverty was obliged to support himself by daily labour.* He died in the sixtieth year of his age, at _Nāttarasenkottei_, in the Ramnad country, and was buried there in a sitting posture as is customary with the _Vaishnava_ sect, to which he belonged. It is said that his grave now forms an object of pilgrimage amongst the Hindus, and that the earth taken from it is given to children who are dull-headed, from a superstitious belief that it would sharpen their intellect.
+
+*) See _Jayankondān Sadagam_, verse, 11.
+
+When the intelligence of his death reached the ears of **Otteikūtur**, who was always his rival when alive, he is said to have his sorrow and lamentation in the following impromptu:---
+
+[TAMIL].
+
+_Is it to-day that Kamber has died?_  
+_Is it to-day that he accepts my elegiac lay?_  
+_Is it to-day that Sarasvati* has been widowed?_  
+_Whilst Lakshmi* is blooming and Pārvati* is sitting in majesty._
+
+*) _Sarasvati_, the goddess of poetry.
+
+*) _Lakshami_, the goddess fortune.
+
+*) _Parvati_, the consort of _Siva_.
+
+There is a tradition that Kamber once visited a certain king of Ceylon, and that the king was so charmed with his poetry that he was treated with unusual affability, so much so, that the Court poets became jealous of him and formed a plot to keep him at a distance from the Palace, by bribing a barber to claim relationship with him; but he soon found means to expose their artifices and they had the mortification to see him afterwards even honoured with a seat on the throne by the side of the king. We cannot, however, vouch for the truth of this tradition; but the following stanza in praise of _Sarasvati_, which is generally attributed to him is said to refer to it:---
+
+[TAMIL].
+
+_It is my mother who sits in majesty on the white lotus, robed in white garments and adorned with white ornaments, that gave me an equal seat with the king on the throne, borne by the white lion._
+
+## Kapiler. --- [TAMIL].
+
+Kapiler was one of the forty-nine professors of the Madura College. He was the brother of **Tiruvalluver**, and being exposed by his mother soon after his birth at Trivalur, he was found and adopted by a _Brahman_ of that place. When he arrived at his seventh year, his foster-father invited the other _Brahmans_ at Trivalur in order to invest him with the sacred cord, but they all peremptorily refused to accept the invitation on the ground that he not being a _Brahman_ was not entitled to be initiated into the privileges of their order. Upon hearing this, Kapiler repaired to the place where the _Brahmans_ were assembled, and in an _Agavel_,* which he composed and recited before them, refuted their high pretensions by proving that caste was not innate but accidental, and they not being able to rebut his arguments, at once admitted him into their rank by investing him with the sacred cord. A metrical version of the _Agavel_ in English by the Rev. **C. J. Robinson** has been published in Rev. **P. Percival's** Land of the Veda.
+
+*) A short poem in the _Asiriya_ metre.
+
+Kapiler was present in the Madura College when his brother's _Kural_ was recited, and he conveyed his opinion of the merits of that work in the following impromptu:---
+
+[TAMIL].
+
+_O king of the fertile country where the birds reared in houses are lulled by the women's chants! Valluver's Kural is short in words but extensive in sense, even as in a drop of water on the blade of the Tinei (millet) might be seen reflected the image of the tall Panei (Palmyra tree)._
+
+## Karunaipprakāsa Desiker. --- [TAMIL].
+
+Karunaipprakāsa Desiker was the youngest son of **Kumāraswāmi Pandāram** of Kanjipuram, and was like him a staunch adherent of the _Vira Saiva_ sect. Having studied under **Velliambala Tambirān**, the head ascetic of the _Matam_ at Sindupunturei, in Tinnevelly, and who was distinguished for his extensive erudition, he became a poet of the first order; but before he could fully display his poetical talents, he was hurried away to a premature grave in the eighteenth year of his age. He wrote a panegyric, under the title of _Ishtalinga Agavel_ ([TAMIL]) on the _Phallic_ emblem, which the _Vira Saivas_ wear, and afterwards began to write an epic poem, called _Kālatti Purānam_ ([TAMIL]), treating of the legends of the _Saiva_ shrine on the mountain _Kālahasti_, in the Carnatic; but his death prevented him from finishing it.
+
+## Kavirāja Pandīter. --- [TAMIL].
+
+Kavirāja Pandīter was a native of _Vīrei_, in the Carnatic, but nothing is known concerning his life, and the time in which he lived. He is chiefly remembered as the author of a poem, entitled _Saundariyalaghiri_ ([TAMIL]), consisting of 104 stanzas, and which is highly esteemed by the _Saktyas_ on account of its extolling the greatness of _Pārvati_, whom they worship as the mother of the worlds. So far as regards its versification this poem has considerable merits; but the licentious metaphors with which it abounds, do not at all suit its pretensions as a religious work.
 
 KaVUNIYANA'R S&jessfluj^lT. 
 
