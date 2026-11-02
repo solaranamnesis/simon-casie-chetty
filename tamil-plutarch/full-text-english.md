@@ -387,121 +387,65 @@ _As gold though melted in the fire, yet will not lose its lustre; the sandal-woo
 
 ## Ideikāder. --- [TAMIL].
 
-id'eikader, so named after Id'eikazhi-nddu, the land of his nalivilyj 
-was a poet from his earliest youth. Having lieard tliat Kulesa Pa'n- 
-DiYEN, who tlien reigned at Madura, added to the title of a king the 
-still more enduring distinction of a poet, and had a scat on the Col- 
-lege bench, Id eikader sought to secure his patronage by composing 
-n panegyric on him^and reciting it in his presence ; but the king took 
-no notice of it. Stung to the quick at the neglect, he retired to a 
-temple at Vada IMadura, whither Kapiler, and the rest of the pro- 
-fessors of the College, who did not approve of the king's conduct, fol- 
-lowed him. The king on receiving this intelligence went to Vada 
-Madura, and by much entreaty prevailed on him, and the professors 
-to return to the College and having heard his poem again recit- 
-ed, honored him by the gift of an elephant, and a horse, and by 
-the donation of lands and gold. Satisfied with this he took leave of 
-the king, and returned to his country. He again went to Madura to 
-be present when his friend Tikuvalluver submitted the Kural to 
-the judgment of the College bench. After having heard the forty- 
-nine professors each recite a stanza in praise of the Kural, he ex- 
-pressed his own opinion of the merits of that work in the following 
-distich :--- ^ 
+Ideikāder, so named after _Ideikazhi-nādu_, the land of his nativity, was a poet from his earliest youth. Having heard that **Kulesa Pāndiyen**, who then reigned at Madura, added to the title of a king the still more enduring distinction of a poet, and had a seat on the College bench, Ideikāder sought to secure his patronage by composing a panegyric on him, and reciting it in his presence; but the king took no notice of it. Stung to the quick at the neglect, he retired to a temple at Vada Madura, whither **Kapiler**, and the rest of the professors of the College, who did not approve of the king's conduct, followed him. The king on receiving this intelligence went to Vada Madura, and by much entreaty prevailed on him, and the professors to return to the College and having heard his poem again recited, honored him by the gift of an elephant, and a horse, and by the donation of lands and gold. Satisfied with this he took leave of the king, and returned to his country. He again went to Madura to be present when his friend **Tiruvalluver** submitted the _Kural_ to the judgment of the College bench. After having heard the forty-nine professors each recite a stanza in praise of the _Kural_, he expressed his own opinion of the merits of that work in the following distich:---
 
-The Kural contains muchin a little compass. Such is the ingenui- 
-ty of its author, that he has compressed within its narrow limits all 
-the branches of knowledge ; as if he had hollowed a mustard seed, and 
-inclosed all the loaters of the seven seas in it. 
+[TAMIL].
 
-When the professors found thatTiRtJVALLUVER had readily answer- 
-ed the many puzzling questions which they pfoposed to him, they 
-attempted to try Id'eikader. He improvised the following stanza 
-which they could not understand, and hence remained silent : --- 
+_The Kural contains much in a little compass. Such is the ingenuity of its author, that he has compressed within its narrow limits all the branches of knowledge; as if he had hollowed a mustard seed, and inclosed all the waters of the seven seas in it._
 
-Of Iileikadei's works we have not met with any ; but we find a 
-grammatical treatise of his, under the title of OosmwH {ssE^(ipS), 
-quoted by Gunasa'gaker, the Commentator of the Kirigai. 
+When the professors found that **Tiruvalluver** had readily answered the many puzzling questions which they proposed to him, they attempted to try Ideikāder. He improvised the following stanza which they could not understand, and hence remained silent:---
 
-This poet was one of the forty-nine professors of the Madura Col- 
-lege. AH that is known of his personal history is, that he was a na- 
-tive of Madura, and belonged to the caste of Aruvei-vaiiigars, or 
-linen-drapers. The following is the impromptu which he uttered in 
-approval of the Kxt-rnl : 
+[TAMIL].
 
-Pleasure and pain are hco different things (one constituting the 
-whole of positive happiness and the other the xohole of misery)^ and 
-Valluver is to he praised for teaching all mankind in his Rural 
-the yneans of securing the one, and avoiding the other. 
+Of Ideikāder's works we have not met with any; but we find a grammatical treatise of his, under the title of _Oosimuri_ ([TAMIL]), quoted by **Gunasāgarer**, the Commentator of the _Kārigai_.
 
-Inbakavi --- ^:€3ruseS. 
+## Ilāvettanār. --- [TAMIL].
 
-Inbakavi was a native of Manapar, in the Tinnevelly District, and 
-born of parents of the Parava caste. His Christian name was Xavi- 
-ER Hbnric Lea'h. The juvenile productions of his muse, although not 
+This poet was one of the forty-nine professors of the Madura College. All that is known of his personal history is, that he was a native of Madura, and belonged to the caste of _Aruvei-vānigars_, or linen-drapers. The following is the impromptu which he uttered in approval of the _Kural_:
+
+[TAMIL].
+
+_Pleasure and pain are two different things (one constituting the whole of positive happiness and the other the whole of misery), and Valluver is to be praised for teaching all mankind in his Kural the means of securing the one, and avoiding the other._
+
+## Inbakavi. --- [TAMIL].
+
+Inbakavi was a native of _Manapar_, in the Tinnevelly District, and 
+born of parents of the _Parava_ caste. His Christian name was **Xavi- 
+er Henric Leām**. The juvenile productions of his muse, although not 
 of the highest order, were nevertheless sufficient to secure him the pa- 
-tronage of Don Gabriel Vaz Gojiez, the Parava Chieftain of Tuti- 
+tronage of **Don Gabriel Vaz Gomez**, the _Parava_ Chieftain of Tuti- 
 korin. Going once on a visit to the Raja of Ettiapore, the ambition 
 of the poet was checked when he found that he had to stand, whilst 
-the Sainpi^ati or minister enjoyed a seat in the Raja's presence ; but 
+the _Samprati_ or minister enjoyed a seat in the Raja's presence; but 
 an impromptu stanza in which he praised the Raja, and respectfully 
 claimed a seat, soon procured him the desired privilege, and also 
 many presents. We subjoin the above mentioned stanza, and at- 
 tempt to give an English translation of it, which we are sorry to say 
-being stript of the melody and linkcd-swcctncss of the original, ap- 
-pears but too trite in a foreign language. 
+being stript of the melody and linked-sweetness of the original, ap- 
+pears but too trite in a foreign language.
 
+[TAMIL].
 
-O Shankara Kuma'ra, the bountiful, icho has sprung up like 
-a resplendent gem from the race of Ganga ! That seat is for the 
-Samprati, and this scat is for thee, but where is the seat for Inbakavi 1 
+_O Shankara Kumāra, the bountiful, who has sprung up like a resplendent gem from the race of Ganga! That seat is for the Samprati, and this seat is for thee, but where is the seat for Inbakavi?_
 
-Fiiuling so nuich success attend him in his native District, Inba- 
-kavi resolved to visit tiio neighbouring Districts, and obtain rewards 
-by singing the praises of the high personages there. lie was well 
-received wherever he went, and especially in Tanjorc, where Tatto- 
-GEE, the minister of the king Surfogee, treated him with marked dis- 
-tinction by presenting him with a palanquin. He had been long 
-while on his peregrination, when a severe attack of illness which 
-threatened his life, obliged him to return to Tutikorin. On his 
-presenting himself before the Parava chieftain, and being asked 
-where he had been so long absent, he answered in the following im- 
-promptu ; 
+Finding so much success attend him in his native District, Inbakāvi resolved to visit the neighbouring Districts, and obtain rewards by singing the praises of the high personages there. He was well received wherever he went, and especially in Tanjore, where **Tattogee**, the minister of the king **Surfogee**, treated him with marked distinction by presenting him with a palanquin. He had been long while on his peregrination, when a severe attack of illness which threatened his life, obliged him to return to Tutikorin. On his presenting himself before the _Parava_ chieftain, and being asked where he had been so long absent, he answered in the following impromptu: 
 
-Having^ appeared before Yama (the king of death), tvho summons 
-lefore his presence the mighty celestials as well as the sages 
-and magnates of this world, he asked me loho I teas, and I replied that 
-I teas the j)oet employed at the Gate of the eminent Parava Chieftain, 
-and he thereupon teas perplexed, and bade me go back to thy city, and 
-behold I am here ! 
+[TAMIL].
 
-Towards the latter part of his life, Inbakavi frequently visited Col- 
-ombo, and once Jaffna. He then unfortunately indulged himself in 
-spirituous liquor, and although this had in no measure impaired his 
-intellectual powers, it tended in no small degree to diminish that res- 
-pect, which was otherwise due to so clever a man. When his friends 
-remonstrated with him on his vicious habit, he was wont to excuse 
-himself almost in the same words with Anacreon : --- 
+_Having appeared before Yama (the king of death), who summons before his presence the mighty celestials as well as the sages and magnates of this world, he asked me who I was, and I replied that I was the poet employed at the Gate of the eminent Parava Chieftain, and he thereupon was perplexed, and bade me go back to thy city, and behold I am here!_
 
-When icine I quaff', before my eyes 
-Dreams of poetic glory rise ; 
-And freshened by the goblefs deivs, 
-My soul invokes the heavenly Muse. 
+Towards the latter part of his life, Inbakavi frequently visited Colombo, and once Jaffna. He then unfortunately indulged himself in spirituous liquor, and although this had in no measure impaired his intellectual powers, it tended in no small degree to diminish that respect, which was otherwise due to so clever a man. When his friends remonstrated with him on his vicious habit, he was wont to excuse himself almost in the same words with **Anacreon**:---
 
-We give a very well authenticated anecdote of Inbakavi, which 
-will prove that he was not to be taken advantage of even in his weak- 
-est moments. A poet at Jaffna happening to meet Inbakavi when in 
-a state of inebriety, in the house of Mr. Philip Rodrigo Muttukish- 
-NA, the Kutcherry Mudeliar, tried to ascertain whether the pow- 
-ers of mind, or the strength of alchohol predominated in him. 
-He asked Imbakavi to improvise a stanza, which should begin with 
-the word mai (black paini), and end with the word maiyir (hair). 
-Inbakavi hesitated not amomcntj but surprised the rival poet with ihe 
-following beautiful line:? :--- 
+_When wine I quaff, before my eyes_  
+_Dreams of poetic glory rise;_  
+_And freshen'd by the goblet's dews,_  
+_My soul invokes the heavenly Muse._
 
-To what shall I liken the colour of the hair of the conde of the dam- 
-sel, who is enamored of the noble Abraham* of the race of Ganga ? 
-Shall I liken it to the black paint, or to the black satid, or to the black 
-beetle, or to the black cloud, or to the black moss } 
+We give a very well authenticated anecdote of Inbakavi, which will prove that he was not to be taken advantage of even in his weakest moments. A poet at Jaffna happening to meet Inbakavi when in a state of inebriety, in the house of Mr. **Philip Rodrigo Muttukishna**, the Kutcherry Mudeliar, tried to ascertain whether the powers of mind, or the strength of alchohol predominated in him. He asked Imbakavi to improvise a stanza, which should begin with the word _mai_ (black paint), and end with the word _maiyir_ (hair). Inbakavi hesitated not a moment, but surprised the rival poet with the following beautiful lines:---
+
+[TAMIL].
+
+_To what shall I liken the colour of the hair of the condé of the damsel, who is enamored of the noble Abraham* of the race of Ganga? Shall I liken it to the black paint, or to the black sand, or to the black beetle, or to the black cloud, or to the black moss?_
 
 Before he quilted Jaffna he wrote a drama, called Kuravanji (^rr) 
 6ij^#), in honor of the Kutcherry Mudeliar, which eUcited general 
