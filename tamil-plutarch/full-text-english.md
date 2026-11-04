@@ -683,47 +683,25 @@ An annonymous admirer of Kālamegam, has commemorated him in the subjoined verse
 
 _Would Kamben, and Amben, (Kālidas), and Otteikūten, nay even Kumben (Agastiyer), have acquired poetical fame on earth, if the poet Kālamegam, who is the incarnation of Karna* himself, had been born in their days?_
 
+*) An ancient king of Angadesa famous for his liberality.
+
 ## Kāngayer. --- [TAMIL].
 
 Kāngayer was a _Siva_ ascetic, and poet, who appears to have lived prior to **Mandalapuruder**; but the exact date of his existence cannot be ascertained. He composed a Tamil lexicon in verse, under the title of _Urichol Nigandu_ ([TAMIL]), which unlike others of the kind, being written in the _Venba_ metre, and well adapted for beginners, is now generally used in schools. An edition of this work published at Pondicherry in 1840, comprises only 220 stanzas: but the one which issued from the Press at Jaffna in 1858, has 330 stanzas, and whether the addition is genuine, or not, it appears to us to be a great improvement.
 
 ## Kāreikal Ammeiyār. --- [TAMIL].
 
-The real name of this celebrated poetess was Punithavati. She 
-was the only daughter of Tanatattan, a Chetty who resided at Ka- 
-rikal. Her father married her early in life to the son of another 
-Chetty at Negapatam, but her husband sometime afterwards deserted 
-her, and going over to the Pdndi country, took another wife, and es- 
-tablished himself there. After having failed to effect a reconciliation 
-with him she assumed the habit of an ascetic, and repaired to the 
-Imaus, where she died. Of her several poems, the most admired are 
-the Atputhatiruvantddi {si^L]^^0'^suih^n^) Tiruviretteimanimdlei 
-(0(i^eSoL.es)i-ir)SS!fi(DnQ£v) and Muttatiruppafhikam ((^o^^^i^uui'aa)}, 
-which are in high esteem amongst the Saivas, 
+The real name of this celebrated poetess was _Punithavati_. She was the only daughter of **Tanatattan**, a _Chetty_ who resided at Karikal. Her father married her early in life to the son of another _Chetty_ at Negapatam, but her husband sometime afterwards deserted her, and going over to the _Pāndi_ country, took another wife, and established himself there. After having failed to effect a reconciliation with him she assumed the habit of an ascetic, and repaired to the _Imaus_, where she died. Of her several poems, the most admired are the _Atputhatiruvantādi_ ([TAMIL]) _Tiruviretteimanimālei_ ([TAMIL]) and _Mūttatiruppathikam_ ([TAMIL]), which are in high esteem amongst the _Saivas_.
 
-Ka'R1KANNA>?AR--- «/7//?i«6ZOT6S!7-j^ff. 
+## Kārikannanār. --- [TAMIL].
 
-This poet was a native of Kdveripatnam, in the Carnatic. He 
-ranks as one among the forty-nine professors of the Madura College, 
-but we are ignorant of the particulars of his life. His compositions 
-have all perished, save the following impromptu on the Rural: 
+This poet was a native of _Kāverīpatnam_, in the Carnatic. He ranks as one among the forty-nine professors of the Madura College, but we are ignorant of the particulars of his life. His compositions have all perished, save the following impromptu on the _Kural_:
 
+[TAMIL].
 
-* An ancient king of Angadega fainoui for hii Itbpraliti 
+_It is no other than Ayen (Brāhma) himself, who is seated on the beautiful lotus-flower, assuming the form of Valluver, has given to the world the truths of the Vedas in three hundred and thirty chapters, that they may shine without being mixed up with falsehood._
 
-G 
-
-
-ifi TTHL TAWII. rLUTARCH. 
-
-QiDUJiutTUjCDeu^u QuiT(T^&reSeiriEJSu --- Quniuiu/r^ 
-
-It is no other them Ayen (Brdhma) himself, who is seated on the 
-beautiful lotus-Jlower , assuming the fortn of Yallvv En., has given to 
-the world the truths of the Vedas in three hundred and thirty chap- 
-ttrs, that they may shine without being mixed up with falsehood. 
-
-Ka'riya'r --- sn(fiuunL 
+## Kāriyār. --- [TAMIL].
 
 Nothing is known of this poet but what is contained in the preface 
 to- his Kanakkadikdram (semaa^anath), according to which he was 
