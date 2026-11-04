@@ -617,185 +617,77 @@ Karunaipprakāsa Desiker was the youngest son of **Kumāraswāmi Pandāram** of 
 
 ## Kavirāja Pandīter. --- [TAMIL].
 
-Kavirāja Pandīter was a native of _Vīrei_, in the Carnatic, but nothing is known concerning his life, and the time in which he lived. He is chiefly remembered as the author of a poem, entitled _Saundariyalaghiri_ ([TAMIL]), consisting of 104 stanzas, and which is highly esteemed by the _Saktyas_ on account of its extolling the greatness of _Pārvati_, whom they worship as the mother of the worlds. So far as regards its versification this poem has considerable merits; but the licentious metaphors with which it abounds, do not at all suit its pretensions as a religious work.
+Kavirāja Pandīter was a native of _Vīrei_, in the Carnatic, but nothing is known concerning his life, and the time in which he lived. He is chiefly remembered as the author of a poem, entitled _Saundariyalaghiri_ (செளந்தரியலகரி), consisting of 104 stanzas, and which is highly esteemed by the _Saktyas_ on account of its extolling the greatness of _Pārvati_, whom they worship as the mother of the worlds. So far as regards its versification this poem has considerable merits; but the licentious metaphors with which it abounds, do not at all suit its pretensions as a religious work.
 
-KaVUNIYANA'R S&jessfluj^lT. 
+## Kavuniyanār. --- [TAMIL].
 
-The name of this poet occurs among the forty-nine professors of 
-the Madura College. E.xcepting the fact that he was the author qf 
-the following impromptu in commendation of the Kural, we know 
-nothing further about him : --- 
+The name of this poet occurs among the forty-nine professors of the Madura College. Excepting the fact that he was the author of the following impromptu in commendation of the _Kural_, we know nothing further about him:---
 
+[TAMIL].
 
-;;rt THi; ta>jil illiaklh. 
+_The short Distichs which the learned poet Valluver has composed in order that we may know the ancient right way are sweet to the mind to meditate on, sweet to the ear to hear, and sweet to the mouth to repeat; and they moreover form a sovereign medicine to promote good and prevent evil actions._
 
-u &5I scfi lu eS &sr (^pe^Q Sij ■ossi u n . 
+## Kādaver Kon. --- [TAMIL].
 
-The short Dis'ir.hs which the learned poet. Valluver has cQinpos- 
-ed in order that we may know the ancient right way are sweet to the 
-mind to mediude on, sweet to the ear to hear, and sweet to the mouth 
-to repeat ; and Lhey moreover form a sovereign medicine to promote 
-good and prevent evil actions. 
+This poet was one of the kings of the _Pallava_ dynasty, who reigned at Kanjipuram in former times, and he also figures among the sixty-three special votaries of _Siva_, whose legends constitute the subject of the _Tirutonder Purānam_. It is said that after a short reign he abdicated the throne in favor of his son, and passed the remainder of his life in devotional exercises. He wrote a panegyrical stanza on each of the _Saiva_ shrines in Southern India, but they are rarely met with at present.
 
-Ka'DAVER I.y.q'N--- <i/7i_Q//f5<S/7 6ar. * 
+## Kākaipādiniyanār. --- [TAMIL].
 
-Tills poet was one of the kings of the Pallava dynasty, whq reign: 
-ed at Kanjipuram in former times, and he. also figures among the 
-sixty-three special votaries of Siva, whose legends constitute the sub- 
-ject of the Tirutonder Purdnam. it is said that after a short reign 
-he abdicated the throne in favor of his son, and passed the remainder 
-of his life in devotional exercises. He wrote a panegyrical stanza 
-on each of the Saiva shrines in Southern India, but they are rarely 
-{net with at present. 
+This poet was one of the disciples of **Agastiyer**, and he appears to have been as learned as his fellow student **Tolkāppiyanār**. No other particulars concerning his life are known, and it is impossible to ascertain them at this distance of time. He wrote a treatise on grammar, called _Kākeipādiniyam_ ([TAMIL]), after his own name, and this has been cited by subsequent writers on the subject, as a standard authority.
 
-Ka'kaipa'dinivanar --- ■sniesisuufit^^ojiea)^. 
+## Kālamegam. --- [TAMIL].
 
-This poet was one of the disciples of Agastiver, and he appears to 
-have been as learned as his fellow student Tolka'ppiyana'r. Nq 
-other particulars concerning his life are known, and it is impossible 
-to ascertain th.em £).t this distance of time. He wrote a treatise on 
-grammar, called Kdkeijiddiniyam {&na,3S)a.Liuni^eS\u(b), after his 
-pwn name, and this has been cited by subsequent writers on the sub- 
-ject, as a standard authority. 
+The time when this poet flourished is usually referred to the reign of **Tirumalarāyen** in the fifteenth century of the Christian era. His real name is not known. He obtained the sobriquet of _Kālamegam_, or the hail-pouring cloud, for the sharpness of his invectives against those who failed to reward his poetry. There is no doubt that he was possessed of superior talents, but his character has been tainted by a deplorable egotism, in proof of which we subjoin one of his poetical epistles to **Tirumalarāyen**, wherein he trumpets forth his own attainments, and defies all other poets.
 
-K A 'lame 'gam --- sn&r^LOSth. 
+[TAMIL].
 
-The time whentliis poet flourished is usually referred toth.e reigo 
-pf Tirumalara'yen In the fifteenth century of the Christian era. His 
-^eal name is not known. He obtained the sobriquet of Kdlamegam, 
-pr the hail-pouring cloud, for the sharpness of his invectives against 
-those who failed lo reward his poetry. There is no doubt that he 
-was possessed of superior talents, but his character has been tainted 
-by a deplorable egotism, in proof of which we subjoin one of his po- 
-etical epistles to Tirumalara'yen, wherein he trumpets forth his own 
-attainments, and defies all other poets. 
+"_It is I the poet Kālamegam who have hoisted a flag, proclaiming thereby that I shall compose a Dūtu, in five Naligais*; a Maleī in six Naligais; an Antādi in seven Naligais; a Madal, or Kovai, in ten Naligais; a Parani in a day; and all kinds of epics in a couple of days. I will cut off the ears of the poets, who purloining the compositions of others, parade them as their own, and bluster and puff in the presence of the ever renowned king Tirumalarayen, of the race of the placid moon; I will whip them on their backs, slap them on their cheeks, and saddle and ride on them, bridling them with a hard bridle._"
 
-^ es>^ 1^^ ^ n L^ 'SiJiS tSi so n rii IB n L^ esis^ 6sfi p Qs=np<SFifiLDfT'26\}Q<^iT&) 
-eo^ --- ^ae(fi&)n3i.i^iT^Qtu(ipr5nL^esiS^esftp Q(v^<ss>sui^£StFi^^es)rT 
+*) A _Nāligai_ is equal to 24 minutes of an English hour.
 
-ih n em (y: Q^^Q ui --- unn9iieStuQLDeonQwjiP(Tff^fST^^Qeo us^dQatr 
+Kālamegam has however left no poems of any magnitude, and of his compositions the most admired is a series of stanzas, under the title of _Yamakandam_, which being composed of words two-fold in meaning, each contains a description of two different things, as will be seen by the subjoined specimens.
 
+[TAMIL].
 
-IHK TAMU. IM.r-l AJKM. 39 
+1\. _It has poison, it sheds its skin, it sits on the crown of Siva's head, its bite under irritation cannot be cured. O! Such is the case with the Cobra Capella in the city of the renowned Tirumalarayen, where the groves flow with honey._
 
-ld'^g\-' !T rr uj ^ Qp em --- ^^utsinQpm^ LS^^^ngniLn^setr Qffnm0(TTiL(^s 
+2\. _It is easily bruised, its skin peels off, it hangs from the top of the parent tree, and it will not recover its former state if it comes in contact with the teeth. O! Such is the case with the plantain fruit in the city of the renowned Tirumalarayen, where the groves flow with honey._
 
-SsSui^iS\)'ah(o!^!Td S fJ^ ISJ 'S ^' /^i d ff <S1^ d Q lL U. UjL/f^' S S^ U iSp Lf (oU) I--- 
+1\. _It takes up with the hand (the branches of trees), and beats (them) against the neck, it enters forts, and delights in battle. O! Such is the case with the Elephant in the city of Tirumalarayen, adorned with fields._
 
-'■'■It is I the pod Ka'lamh'gam irlio hare hoisted a Jlas, py'oclaim- 
-ing thereby that I shall compose a Diitu, in five Naligais*; a Malei 
-in six Naligais ; an Ahtddi in scrcn Naligais ; a Mti'dal, or Kovai, 
-in ten Naligais ; h . Pbrani in a day ; and all kinds of 'epits in 
-a couple of days. I icill cut off the eai's of the poets, xoho jnirloining 
-the compositions of others, parade them as their own, and Muster and 
-puff in the presence of the ever fenoicned king Tipumalarayen, of the 
-race of the placid moon ; I will whij? them oji their hacks, slap them on 
-their cheeks, and saddle und ridt on them, bridling them tcith a httrd 
-bridle. 
+2\. _It is taken up with the hand and beaten out in the thrashing floor, it is then stacked and being twisted into cord is used for tying around the heap of corn. O! Such is the cast with the straw in the city of Tirumalarayen, adorned with fields._
 
-Kalamefram has however left no poems jjf any magnitude, and of 
-his compositions the most admired is a series of stanzas, under the 
-tifle of Yamakandam, which being composed of words two-fold in 
-meaning, each contains a description of two different tilings, as will 
-be seen by the subjoined specimens. 
+Of the anecdotes related of Kālamegam, we think the following will interest the reader:---
 
-Qeu (^'^esTd^npupi^ll-L---nso uS'ipna^ --- •cS' (^ ^ lj 3 i^ 
-Q^s!5runiLj;iTQffn'bso ^' (f^in'^jev an turnup US' /b 
-unihL.'fT(£yih evneaLpuuL^ih. 
+One day as he was attending the temple at Tiruvalūr, his attention having been drawn to a diamond, which was sparkling on the breast plate of the image of _Tiyāgar_ (_Siva_), he cracked a joke at the expense of the god, in this impromptu:
 
-■s>jniB<ii<sfr^^is^i(^LD eu i^'tyg rsj '^ s a lL <sa: l- uS'px^tL 
-QunQ^i(^u:>niEjQs LjifliqiDnm --- QtsQir 
-QfftLd(Dsnii\'(i^Gs'UJLLji ^Q^LD'2evfffjuj.^ u^Qi'tleO 
-ic^sudQan§^LDne\iujn'2t^^ujnLD. 
+[TAMIL].
 
-1. // has poison, it sficds its hkin, it sits on the crown nf Siva's hrad, its bilk 
-iinder irritation cuniiotbe cUrcd. O ! Sitck Is tlie case with the Cobra Capelld 
-in the city of the renoioncd. Tikumalarayen, 7chere the grotts flow tcith honey. 
+_Has Tiyāgar of Arūr, which is surrounded by rice-fields, still Vairam (diamond, meaning also wrath) in his breast? Has he not been appeased, even after devouring the son of Sirutonden, killing the son of Chola, and striking Yama with his foot?_
 
-2. /{ is easily brhise.d, its skin peels off, it hangs from the top of the parent 
-tree, and it icill hbt recobcr its former state if it comes in contact -with the teeth. 
-0 ! Such is the case tcith tHb plantain ftuit in the city of the renowned Tmu- 
-MALARAYEN, whcf-c thb grovcs flow icith hoH'ey. 
+Another day he went to a temple of _Skanda_ to witness the feast, but found it difficult to push his way through the mass of the people that thronged the temple. Vexed at this disappointment, he gave vent to his feelings in an impromptu as follows:---
 
-i. tt takes up icith the hand (the branches of trees), and beats (them) against 
-the neck, it enters forts, and delights in battle. O .' Such is the case with thi 
-Elephant in the city o/ Tirumalakayen, adorned icith fields. 
+[TAMIL].
 
-2. It is taken up rcith the hand and beaten oiit in the thrashing floor, it is 
-then stacked and being twisted into cord is used for tying around the heap of 
-corn. Of Such is the cast with the straw in the city of TirCm at.aFwVYEN,' 
-adorned with fields. 
+_O Kumara! Why this vain parade for thee! All the world know that thy father (Siva) is a mendicant, thy mother (Pārvati) is an ogress, thy uncle (Kishna) is a professed thief, and thy brother (Ganesa) is a glutton._
 
-* A JVdligai is equal to 24 minutes of an English hour. 
+When he once visited Kannapuram, the _Brāhmans_, who officiated in the _Vaishnava_ temple there, having importuned him to chant the praise of their god, he improvised the following stanza:
 
+[TAMIL].
 
-»10 THE TAMIL PI.tTAKCH. 
+_O the Lord of Kannapuram! thou art greater than Siva, but I am greater than thee; for hear me, thou hadst ten births, and Siva had none, but my births are too many to be counted._
 
-Of the anecdotes related of Kalamegam, we ihink the following 
-will interest the reader: --- 
+An annonymous admirer of Kālamegam, has commemorated him in the subjoined verse:
 
-One day as he was attending the temple at Tiruvalur, his attention 
-having been drawn to a diamond, which was sparkling on the breast 
-plate of the image of Tiyrjgar (Siva), he cracked a joke at the ex- 
-pense of the god, in this impromptu : 
+[TAMIL].
 
-^ «Sr «jr «!/ UJ 6V @ (Z^ LD /T^ /f^^(iJ /T -? /f Q /5 @ S 
+_Would Kamben, and Amben, (Kālidas), and Otteikūten, nay even Kumben (Agastiyer), have acquired poetical fame on earth, if the poet Kālamegam, who is the incarnation of Karna* himself, had been born in their days?_
 
-Has Tiy g'lr of Ariir, u-hich is sun-oiaidc'd hy riccTfidds. still 
-Vairam (diamond, meaning also icratii) in his Ircast ) Has he not 
-been appeased, even after d'ccouring the son of Sirutonden, killing 
-the son of Cno'hx, and striking Yama 2cith his foot / 
+## Kāngayer. --- [TAMIL].
 
-Another day he went to a temple of SkaYida to witness the feast, 
-hut found it difficult to push his way through the mass of the people 
-that thronged the temple. Vexed at this 'disappointment, he gave 
-Vent to his feelings in an impromptu as follows : --- 
+Kāngayer was a _Siva_ ascetic, and poet, who appears to have lived prior to **Mandalapuruder**; but the exact date of his existence cannot be ascertained. He composed a Tamil lexicon in verse, under the title of _Urichol Nigandu_ ([TAMIL]), which unlike others of the kind, being written in the _Venba_ metre, and well adapted for beginners, is now generally used in schools. An edition of this work published at Pondicherry in 1840, comprises only 220 stanzas: but the one which issued from the Press at Jaffna in 1858, has 330 stanzas, and whether the addition is genuine, or not, it appears to us to be a great improvement.
 
-jij u u 6eB J i^ esBT essfi u n^^ n errQ u T^S 6\9 
-
-i^: s'fT/bO Lj rfi Lu ton Lcek Q (ir^ t^p /SI (T^l- as: --- ^ J i-j eiS vSI 6\) 
-
-(■^ LDff n eiijeS' ■■r^'di 6ST aS 5001 Sk^ ^. 
-
-O Kumara! Why this vain j)ar ad c for thee J All the world kndie 
-that thy father (Siva) is a mendicant, thy mother (Pdnati) is an 
-ogress, thy uncle (Kishna) is a professed thief and thy brother ( Ga- 
-nesa) is a glutton. 
-
-When he once visited Kannapuram, the BrJhmans, who ofliciated 
-in the Vaishnara temple there, having importuned him to chant the 
-praise of their god, he improvised the following stanza: 
-
-Qpasieafle^QiixT^n'eisr^iAQiLnfiaQa^ 
-&.0sn3jruQunu^^ Qsunn^sn^i Q ^ n ws' ^".jS eo teo 
-Qtuasi L9pu^unQsiisssi asar^-o^nieoajn^j. 
-
-0 the Lord of Kannapurain ! thou art greater than Siva, hut I 
-'am greater than thee ; for hear ?ne, thou hadst ten births, and Siva 
-had none, but my births are too many to be counted. 
-
-Anannonymous admirer of Kalanicgam, has commemorated him 
-in the subjoined verse : 
-
-Would Kamben, and Amben, (Kdlidas), and Otteiku'ten, nay ciJen 
-KuMBEX (Agastiijer), have acquired poetical fame on carlh^ if the 
-poet Ka'lame'gam, who is the incarnation of Karna* himself, had 
-been horn in their days ? 
-
-KA'NOAtER SITlijQsUJir. 
-
-Kangayer was a Siva ascetic, and poet, who appears to have Wved. 
-prior to Mandalapuruder; but the exact date of his existence cannot 
-be ascertained. He composed a Tamil lexicon in verse, under the 
-title of Urichol Nigandu {^(PffG^^nio i^'sisaQ)., which unlike 
-others of the kind, being written in the Ve7iba metre, and well adapt- 
-ed for beginners, is now generally used in schools. An edition of 
-this work published at Pondicherry in 1840, comprises only 220 
-stanzas : but the one which issued from the Press at Jaffna in 1858, 
-has 330 stanzas, and whether the addition is genuine , or not, it ap- 
-pears to us to be a great improvement. 
-
-Ka'reikal AmmeiYA'r --- ■snssijisne)LD<oSiu:ijjnn. 
+## Kāreikal Ammeiyār. --- [TAMIL].
 
 The real name of this celebrated poetess was Punithavati. She 
 was the only daughter of Tanatattan, a Chetty who resided at Ka- 
