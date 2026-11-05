@@ -757,121 +757,41 @@ Little more is known of Kovūrkizhlar than that he was one of the forty-nine pro
 
 _None of the works even of the sages of antiquity will bear comparison with the Kural, whereby Valluver has enlightened the world with the knowledge of virtue, wealth, pleasure, and eternal happiness._
 
-## 
+## Kuhei Namasivāyer. --- [TAMIL].
 
-This Saiva iisceti,; was alike distinguished as a Vedantist and a 
-puet, and his memory is still held in high estimation by his co-reli - 
-gionists. He first established himself at Tirunamali, but afterwards 
-went over to Chillambaram, and spent the renuiinder of his life there. 
-His principal poem, the Shonaghirimdlci {(l3=n6Ssif^'(PiDnGi£v), is a soli- 
-loquy addressed to his own soul. In the following stanza, which 
-we have selected from it as a specimen, the reader will find that the 
-author in exhorting his soul to reinember Siva, before the calamities 
-of old age and death shall have overtaken him, expresses himself in 
-the same strain as SoLOMOif in the Ecclesiastes, Ch. .\ii. 1. et seq. 
+This _Saiva_ ascetic was alike distinguished as a _Vedantist_ and a poet, and his memory is still held in high estimation by his co-religionists. He first established himself at Tirunamali, but afterwards went over to Chillambaram, and spent the remainder of his life there. His principal poem, the _Shonaghirimālei_ ([TAMIL]), is a soliloquy addressed to his own soul. In the following stanza, which we have selected from it as a specimen, the reader will find that the author in exhorting his soul to remember _Siva_, before the calamities of old age and death shall have overtaken him, expresses himself in the same strain as **Solomon** in the Ecclesiastes, Ch. 12. 1. et seq.
 
+[TAMIL].
 
-Before the hod y decays, before the eyes grow di7}i, before the teeth 
-drop, and before Yama (the god of death), watching the opportuni- 
-ty, swiftly approaches ; O my soul ! turn thy thoughts to the mountain 
-Shona ( Tirunamali) and icalk on toioards it, saying I adore thee. 
+_Before the body decays, before the eyes grow dim, before the teeth drop, and before Yama (the god of death), watching the opportunity, swiftly approaches; O my soul! turn thy thoughts to the mountain Shona (Tirunamali) and walk on towards it, saying I adore thee._
 
-Kulapatiya'b --- (^eou^tuna. 
+## Kulapatiyār. --- [TAMIL].
 
-Kulapatiyar, called also Kulachireiydr, was minister of Ku'na 
-Pa'ndiyen, as well as one of the forty-nine professors of the Madura 
-College. When the king embraced the Jaina religion he did not fol- 
-low his example, but continued a Saiva, and carried his zeal for his 
-own religion to such extremes that no sooner had he, in concert with 
-Sampanter, succeeded in persimding the king to recant, than he raised 
-a cruel persecution against the Jainas, and caused eight thousand of 
-them to be impaled alive, and the rest driven from the country. Of 
-his poetical compositions there is nothing now forthcoming except 
-the subjoined impromptu in praise of the Rural. 
+Kulapatiyār, called also _Kulachireiyār_, was minister of **Kūna Pāndiyen**, as well as one of the forty-nine professors of the Madura College. When the king embraced the _Jaina_ religion he did not follow his example, but continued a _Saiva_, and carried his zeal for his own religion to such extremes that no sooner had he, in concert with **Sampanter**, succeeded in persuading the king to recant, than he raised a cruel persecution against the _Jainas_, and caused eight thousand of them to be impaled alive, and the rest driven from the country. Of his poetical compositions there is nothing now forthcoming except the subjoined impromptu in praise of the _Kural_.
 
+[TAMIL].
 
-sl err isrr <s « ld 60 uiso n^^l ul\ m^^en err 
-jgare(r/bs>rflajeS0i---&r(&^^6\}rT6\) --- ojerr^SiJ ^n 
+_As the Kural of Valluver causes the lotus-flower of the heart to expand, and dispels from it the darkness which cannot otherwise be dispelled, it may well be compared to the hot-rayed sun, which causes the lotus flower of the tank to expand, and dispels the darkness from the face of the earth._
 
-Qsneire(T^^(^fa(^eaBr^ss)jsdQ<sn6mQ. 
+## Kulasekhara Perumal. --- [TAMIL].
 
-As the Rural of Valluver causes the lotus-flower of the heart to 
-expand, and dispels from it the darkness which cannot otherwise be 
-dispelled, it may well be compared to the hot-rayed sw?i, which causes 
-the lotus flower of the tank to expand, and dispels the darkness from 
-the face nf the earth. 
+Kulasekhara Perumal being considered as one of the twelve _Āzhvārs_, or special votaries of _Vishnu_, who have been deified by the Hindus, his history is consequently very much intermixed with fable; but we may nevertheless glean from it some facts which are worthy of credence. He was the son of the king **Dridharrata**, who ruled over Malayālam, holding his court at _Tiruvanji_. On succeeding his father he reigned but a few years, when abdicating the throne, he became a devotee, and set out on a course of pilgrimages to the different _Vaishnava_ fanes in the Carnatic. Whilst staying at Mannanārkovil, after a visit to Sirangam, Kānjipuram and Tirupati, he was suddenly overtaken by death. He appears to have been well skilled both in Sanskrit and Tamil poetry as he wrote the _Mukunda Malei_ ([TAMIL]) in the former, and one hundred and five stanzas in the latter, which form a part of the _Nālayira prabhandam_ ([TAMIL]) now extant amongst the _Vaishnavas_. The period of his existence cannot now be determined, but the fable would have that he was born in the twenty-eight year of the _Kali_ age.
 
+## Kumaragurupara Desiker. --- [TAMIL].
 
-46 THF, Tamil plutarcm. 
+Kumaragurupara Desiker was a _Saiva_ ascetic and poet of considerable eminence, born of _Velāla_ parents at _Strivyguntam_, in the Tinnevelly district, about two hundred years ago. He established his fame as a poet while yet a child; for it is reported of him that when only five years old, he composed a poem, called _Kalivenba_ ([TAMIL]), in praise of the shrine of _Skanda_ at Tiruchendur, and a few years later another poem, called _Pilleitamil_ ([TAMIL]), in praise of the shrine of _Menākshi_ at Madura, which he recited before the king **Tirumalanāyaker**. He soon afterwards entered the _Matam_ at Dharmapuram, and after studying there the _Saiva_ system of philosophy, and improving his knowledge of the Tamil and Sanskrit languages and poetry, assumed the habit of an ascetic; and the heads of the _Matam_ being convinced of his deep learning, invested him with the title of _Tambiran_. He then repaired to Benares, and presided over a _Matam_ in that city until his death, which occurred in the prime of his manhood. Besides his two juvenile productions, he was also the author of twelve others, of which the last one entitled _Nīdineri-vilakkam_ ([TAMIL]), consisting of 102 stanzas on moral subjects, is considered the best, and has been translated into English in prose by Mr. **Stokes** of the Madras Civil service. The following selections from the _Nīdineri-vilakkam_, with Mr. **Stoke's** translation, may not be found uninteresting:---
 
-Kl'lase'k'hara Perumal --- ^6\}Q.fanuQu(r^u)n&r. 
+[TAMIL].
 
-Kalasek'hara Perumal being considered as one of the twelve A'zh' 
-rdrs, or special votaries of Vishnu, who have been deified by the 
-Hindus, his history is consequently very much intermixed with fable ; 
-but we may nevertheless glean from it some facts which are worthy 
-of credence. He was the son of the king Drid'harrata, who ruled 
-over Malayalam, holding his court at Tiruvanji. On succeeding his 
-father he reigned but a i'ow years, when abdicating the throne, he 
-became a devotee, and set out on a course of pilgrimages to the dif- 
-ferent Vaishnava fanes in the Carnatic. Whilst staying at Manna- 
-narkovil, after a visit to Sirangam, Kanjipuram and Tirupati, he was 
-suddenly overtaken by death. He appears to have been well skilled 
-both in Sanskrit and Tamil poetry as he wrote the Mukunda Malei 
-((ifii§ih^iS)n6iso) in the former, and one hundred and five stanzas in the 
-latter, which form a part of the Nalayira prabhanda7n {mednnSaLSa 
-uih^ii) now extant amongst the Vaishnavas. The period of his ex- 
-istence cannot new be determined, but the fable would have that he 
-was born in the twenty-eight year of the Kali age. 
+_Learning at first painful, will afterwards afford pleasure. It will destroy ignorance and extend knowledge. But the pain which succeeds to the short lived pleasure of immoderate lust, is great, O thou adorned with perfect jewels!_
 
-Kumaragurupara De'siker --- (^LLir(S(7^uffQ^9aiT. 
+[TAMIL].
 
-Kumaragurupara Desiker was a Saiva ascetic and poet of consid- 
-erable eminence, born of Veldla parents at Strivyguntam, in the Tin- 
-nevelly district, about two hundred years ago. He established his 
-fame as a poet while yet a child ; for it is reported of him that when 
-only five years old, he composed a poem, called Kalivenba (aeS<Gsu 
-eiisiun), in praise of the shrine of Skanda at Tiruchendur, and a few 
-years later another poem, called Pilleitamil (L^STTeitons^uPil)), in 
-praise of the shrine of Mendkshi at Madura, which he recited before 
-the king Tirumalana'yaker. He soon afterwards entered the Ma- 
-tarn at Dharmapuram, and after studying there the Saiva system of 
-philosophy, and improving his knowledge of the Tamil and Sanskrit 
-languages and poetry, assumed the habit of an ascetic ; and the 
-heads of the Matam being convinced of his deep learning, invested 
-him with the title of Tambiran. He then repaired to Benares, and 
-presided over a Matam in that city until his death, which occurred in 
-the prime of his manhood. Besides his two juvenile productions, he 
-was also the author of twelve others, of which the last one entitled 
-Kidineri-vilakkam {^^QfhrS'eSens.sd), consisting of 102 stanzas on 
-moral subjects, is considered the best, and has been translated into 
-English in prose by Mr. Stokes of the Madras Civil service. The 
-following selections from the Nidineri-viUkkam, with Mr. Stoke's 
-translation, may not be found uninteresting : --- 
+_Learning, however extensive, will be useless, unless there be discretion to display it in the proper place; and even then, without the power of language, of what avail is it? With that, it is a flower of gold that possesses fragrance._
 
-O^ /T L_ fli/ (5 /B « n/f)^' eJr u t£i ff uj] «5r tj ii u uj <s (5 
-uit---iijQsiTeiTp/6lsiJ3jr>^/ijseoeS --- QisQii/aiTUi 
+[TAMIL].
 
-
-tMF; TAMn, puTincff. 47 
-
-Learjiing at first painful, u-ill aj'tcrivards afford pleasure. It will 
-destroy ignorance and extend knoicledge. But the pain which suc- 
-ceeds to the short lived pleasure of immoderate lust, is great, 0 thou 
-adorned luith perfect jewels ! 
-
-Q u n &sr Loso n -i npp Qp issi L-^^ . 
-
-Learning., however extensive, jvill be useless, imlcss there he discre- 
-tion to display it in the proper place ; and even then, icithout the 
-power of language, of ichut avail is it 7 With that, it is a flower of 
-gold that possesses fragrance. 
-
-sp(irj-!TS(^ss<s^sS ^■^■s^Q(csrs60ism60&inek 
-
-The learned need no other ornament than the excellence of learn^ 
-ing. Nothing is wanting to adorn an ornament perfectly set with 
-every precious stone. Who would beautify beauty itself! 
+_The learned need no other ornament than the excellence of learning. Nothing is wanting to adorn an ornament perfectly set with every precious stone. Who would beautify beauty itself!_
 
 Kuma'rasinga Mudeliar --- (^Lsnff&mjiQp^eQiunn. 
 
