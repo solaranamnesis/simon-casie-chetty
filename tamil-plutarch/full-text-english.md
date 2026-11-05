@@ -703,148 +703,61 @@ _It is no other than Ayen (Brāhma) himself, who is seated on the beautiful lotu
 
 ## Kāriyār. --- [TAMIL].
 
-Nothing is known of this poet but what is contained in the preface 
-to- his Kanakkadikdram (semaa^anath), according to which he was 
-a native of Kurkai, the ancient residence of ths Pdvdiyans, situated 
-on the northern bank of the river Tamhraparni, and that he claimed 
-descent from one of those kings. The Kanakkadikaram is a treatise 
-in verse on Arithmetic, compiled from materials derived from the 
-Ganitasastra, Bhuvanadipa, and other Sanskrit works on the same 
-subject. After the usual invocation to Ganesa it first describes the 
-system of weights and measures, and then the different operations 
-o-f Arithmetic, and concludes with a series of arithmetical problems 
-with their solution. It is on the whole a valuable work. 
+Nothing is known of this poet but what is contained in the preface to his _Kanakkadikāram_ ([TAMIL]), according to which he was a native of _Kurkai_, the ancient residence of the _Pāndiyans_, situated on the northern bank of the river _Tambraparni_, and that he claimed descent from one of those kings. The _Kanakkadikāram_ is a treatise in verse on Arithmetic, compiled from materials derived from the _Ganitasāstra_, _Bhuvanadipa_, and other Sanskrit works on the same subject. After the usual invocation to _Ganesa_ it first describes the system of weights and measures, and then the different operations of Arithmetic, and concludes with a series of arithmetical problems with their solution. It is on the whole a valuable work.
 
-Ka'riya'r --- mniFliunir. 
+## Kāriyār. --- [TAMIL].
 
-Little is known of the personal history of Kariyar beyond the fact 
-that he was a Brahman of Tirukkadavur, in the Carnatic, who dis- 
-tinguished himself by composing amatory poems called Kovei {Garr 
-6S)Su), which being recited before the Chera, Cho'la, and Pandiya 
-kings of his time, obtained for him their patronage. The date of his 
-existence is uncertain ; but it was no doubt anterior to the reign of 
-Anab'ha'ya Cho'la, as he figures as one of the sixty three special 
-votaries of Siva in the Tirutonder Purdnam, which was written by 
-Se'kilar under the auspices of that king. Ho is said to have lavish- 
-ed all his fortune in building, paid endowing temples for the worshif 
-of Siva, and in maintaining tlie Brahmans. 
+Little is known of the personal history of Kāriyār beyond the fact that he was a _Brāhman_ of _Tirukkadavūr_, in the Carnatic, who distinguished himself by composing amatory poems called _Kovei_ ([TAMIL]), which being recited before the **Chera**, **Chola**, and **Pandiya** kings of his time, obtained for him their patronage. The date of his existence is uncertain; but it was no doubt anterior to the reign of **Anabhāya Chola**, as he figures as one of the sixty three special votaries of _Siva_ in the _Tirutonder Purānam_, which was written by **Sekilar** under the auspices of that king. He is said to have lavished all his fortune in building, and endowing temples for the worship of _Siva_, and in maintaining the _Brahmans_.
 
-Ki'kandeiya'r --- Snissi^'UfTn. 
+## Kīrandeiyār. --- [TAMIL].
 
-Kirandeiyar was one of the forty-nine professors of the Madun 
-College, but there is nothing extant of his compositions besides th» 
-subjoined impromptu, which he uttered in admiration of the Kural 
+Kīrandeiyār was one of the forty-nine professors of the Madura 
+College, but there is nothing extant of his compositions besides the 
+subjoined impromptu, which he uttered in admiration of the _Kural_ 
 
+[TAMIL].
 
-QpuuneSl(^pu(TasrQLDnL^irB^&jQ[iLJun§)iit}> 
+_It is the divine Valluver, who by his great skill in poetry, has imparted in a series of verses of the first class, arranged in three parts, the means of obtaining the four things (meaning virtue, wealth, pleasure, and eternal happiness), that the heart of Pāndiyen, who wields the edged javelin may be delighted therewith._
 
+## Kodignāzhanmāni Pūdanār. --- [TAMIL].
 
-TflK TAMIL PLUTARCH. 4* 
+This poet was one of the forty-nine professors of the Madura College; but neither his birth place, nor his personal history can be ascertained at present. His name however has survived the lapse of time by the following impromptu, which he uttered in approbation of the _Kural_:
 
-II is the divine Valluv^er, who ly his great skill in poetry, hat 
-imparted in a scries of verses of the Jirst class, arranged in three 
-parts, the means jof ohtaining the four thi7igs (meaning viriue, loealth, 
-pleasure, and eternal happiness), that the heart of Pa'ndiyen, who 
-wields the edged javelin may be delighted thereivith. 
+[TAMIL].
 
-KoDIGNA'ZUANMA'NI Pu'BANA'il Osn L^(^nLp ek innssf] Uj^^^fj . 
+_O Pāndiya, the mighty king, who wields the sword brandished among the enemy! Having heard to-day from the mouth of Valluver what we never heard before, and comprehended their meaning, we have been enlightened with the knowledge of eternal happiness._
 
-This poet was one of the forty-nine professors of the Madura Col- 
-kge ; but neither his birth place, nor his personal history can be as- 
-certained at present. His name however has survived the lapse of 
-time by the following impromptu, which he uttered in approbu" 
-tion of the Kural : 
+## Kongkaner. --- [TAMIL].
 
-^pssrrSihQ^iii<sS(Sl Q^Gifl iQ^inpQesrfS i^ 
-QjnefTnnQisQLCifTp su&i (&^Qj(eu)ajSu>sunuj/Tp 
+Kongkaner was a celebrated philosopher, and physician, probably a native of (as his name would seem to imply) _Konganādu_, the modern Coimbatore country. It is said that he became an ascetic in the prime of his youth, and having associated himself with the sages who then abode on the _Pothiya_ mountain, was instructed by them in all branches of knowledge. Some make him contemporary with **Agastiyer**, and some with **Tiruvalluver**, but nothing certain is known of his epoch. He wrote a treatise against polytheism, under the title of _Konganar Gnānam_ ([TAMIL]), and two treatises on medicine, one of which is entitled _Kadeikandam_ ([TAMIL]), and the other _Gunavagadam_ ([TAMIL]).
 
-O Pa'ndiya, the mighty king, who wields the sword brandished 
-among the enemy ! Having heard to-day from the mouth of ValltI' 
-VER what we never heard before, and comprehended their mean- 
-ing, we have been enlightened with the knowledge of eternal happi- 
-ness. 
+The following is a stanza taken from his _Gnānam_.
 
-Kongkaner --- QarriasssBTiT. 
+[TAMIL].
 
-Kongkaner was a celebrated philosopher, and physician, probably 
-a native of (as his name would seem to imply) Konganddu, the 
-modern Coimbatore country. It is said that he became an ascetic in 
-the prime of his youth, and having associated himself with the sages 
-who then abode on the Pothiya mountain, was instructed by them 
-in all branches of knowledge. Some make him contemporary with 
-Agastiyer, and some with Tiruvalluver, but nothing certain is 
-known of his epoch. He wrote a treatise against polytheism, under 
-the title of Konganar Gndnam {G&niEisessine^nesJih), and two trea- 
-tises on medicine, one of which is entitled Kadeikandam (aeo)L.«4a 
-€K3rL_(i)), and the other Gimavagadam {^emeunau-ih). 
+_There is but one God, there is but one Veda, there is but one way of initiation by the good spiritual guide, there is but one kind of bliss which he grants, and there is but one genus amongst mankind upon the earth. They who hold the contrary by asserting that there are four Vedas, and six sects, and many gods, will surely enter the fiery hell._
 
-The following is a stanza taken from his Gndnam. 
+## Koraker. --- [TAMIL].
 
-si-.eijQ(3!TnQ<^0^^^Qi--- Qsu^QiondsrQp sn[jestsTS=p(^(r^^LL 
-es)^ ^n^QiLfrearQ'p --- ujs»l_(S)//_G'«ot luajemQTji^LDu^eSQuLinissiQp lu 
-ib-^eSuS&ST LO^uiSlpsSujfjesr0^rjei!rQp --- iBeayi---suL^iijmuedLD^Qisurr 
+Koraker is reckoned among the nine _Siddhas_, who had acquired supernatural qualifications and powers by intense austerities. Be this as it may, there is no doubt that he was well versed in poetry as well as in medicine, and chemistry. He has left a work in 100 verses, under the title of _Koraker Vyppu_ (கோரக்கர்வைப்பு), treating of the composition and preparation of medicines, and it is said that it was he who first introduced the use of _Ganja_ (_Cannabis indica_) in the Tamil practice; hence that weed is now generally called _Koraker_ (கோரக்கர்மூலி) _mūleī_ Koraker's drug.
 
-There is but one God, there is but one Veda, there is hit one loay 
-cf iiiitiaiiov fnj the good .'ipin'tnal guide, there is hut one kind of 
+## Kothamanar. --- [TAMIL].
 
+Kothamanar was one of the forty-nine professors of the Madura College. His personal history has been lost, and of his compositions there is nothing remaining, except the following impromptu on the _Kural_:
 
-44 THE TAMIL PLUTARCH- 
+[TAMIL].
 
-bliss which he grants, and there is hut one genus amongst mankind 
-upon the earth. They who hold the contrary hy asserting that there 
-are four Vedas, and six sects, and many gods, will surely enter the fieri/ 
+_The Brāhmans preserve the four Vedas orally, and never commit them to writing for reason that if they were read by all, they would be less valued; but the Kural of Valluver though committed to writing, and read by all, would nevertheless not lose its value._
 
-Ko'RAKER --- QsnaiaH. 
+## Kovūrkizhlar. --- [TAMIL].
 
-Koraker is reckoned among the nine Siddhas, who had acquired 
-supernatural qualifications and powers by intense austerities. Be 
-this as it may, there is no doubt that he was well versed in poetry 
-93 well as in medicine, and chemistry. He has left a work in 100 
-verses, under the title q( Koraker Vyppu {QsnaAsns^siiuLj), treat- 
-ing of the composition and preparation of medicines, and it is said 
-that it was he who first introduced the use of Ganja (Cannabis in- 
-dica) in the Tamil practice ; hence that weed is now generally called 
-Koraker {QanDdan(ipsS>) midei Koraker's drug. 
+Little more is known of Kovūrkizhlar than that he was one of the forty-nine professors of the Madura College. The subjoined impromptu on the _Kural_, is the only relic of his compositions which has been preserved:
 
-Ko'thamaNAB --- Qsn^SLD^rr. 
+[TAMIL].
 
-Kothamanar was one of the forty-nine professors of the Madura 
-College. His personal history has been lost, and of his compositions 
-there is nothing remaining, e.Ncept the following impromptu on the 
-Kural : 
+_None of the works even of the sages of antiquity will bear comparison with the Kural, whereby Valluver has enlightened the world with the knowledge of virtue, wealth, pleasure, and eternal happiness._
 
-61/ 6\) g)^ (B (T^ il) eu eo eo n (t^ th suefrief^<sv^iTQpLJun'2ev,f 
-QsFneoeSjf-^LDnppeoQffnnsSlm^. 
-
-The Brdhmans preserve the four Vedas orally, and never commit 
-them to writing for reason that if they were read by all, they would 
-be less valued ; but the Kural o/"Valluver though committed to writ- 
-ing, and read by all, icoiild nevertheless not lose its value. 
-
-Ko'yy'pKi^ULAR --- Q sn&^^nAQifniT. 
-
-Little more is known of Kovurkizhlar than that he was one of the 
-forty-nine professors of the Madura College. The subjoined im- 
-promptu on the Kural, is the only relic of his compositions which hat 
-been preserved : 
-
-^pQfi^i^asT(^u:>3eSlL---^Q^aQns)}eon!S 
-^pQpp^Q^nk^ Q^erRujs --- (^peirQeuesBTunu 
-u<S5reBBuj'SU'!siT(&^<Sij^iT un&srQpsmpQhQaneLJSiinQ^ 
-
-None of the ivorks even of the sages of antiquity will hear compari- 
-son with the Kural, whereby Valluver has enlightened the world 
-with theknou'ledgt of virtue, wftalth, pleasure, and eternal happiness. 
-
-
-TlIK TAMMi PLLTARCH. 
-
-
-Ki'iiKi Namasiva'yek --- (5ero« if L£i<f9l6iin'jun, 
-
-
-45 
-
+## 
 
 This Saiva iisceti,; was alike distinguished as a Vedantist and a 
 puet, and his memory is still held in high estimation by his co-reli - 
@@ -857,8 +770,6 @@ author in exhorting his soul to reinember Siva, before the calamities
 of old age and death shall have overtaken him, expresses himself in 
 the same strain as SoLOMOif in the Ecclesiastes, Ch. .\ii. 1. et seq. 
 
-
-Q^m^'Sua^synrrfTQp^jehefTQLpQs'nesmSlrfl 
 
 Before the hod y decays, before the eyes grow di7}i, before the teeth 
 drop, and before Yama (the god of death), watching the opportuni- 
