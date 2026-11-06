@@ -1008,239 +1008,84 @@ Nattattanār was one of the twelve disciples of **Agastiyer**; but no account of
 
 Nayanappa Mudeliar was born of a _Velāla_ family at Pondicherry in CE 1779, and he acquired the reputation of a poet at an early period of his life. In his eighteenth year he left Pondicherry, and went to Madras, where he found employment as a Tamil Pundit in the College of Fort St. George. While he was thus employed he devoted his leisure hours in revising and editing the poems respectively called _Sittambalakovei_ ([TAMIL]), _Tanjeīvānan-kovei_ ([TAMIL]), and _Reghunātha Setupati Oruturei-kovei_ ([TAMIL]), as well as the _Nāladiyār_ ([TAMIL]), the ninth and tenth parts of the _Divākara Nigandu_ ([TAMIL]), and the eleventh part of the _Sudāmani Nigandu_ ([TAMIL]), with their explanations in prose, which were written by himself, and which exhibit much critical acumen. When a Committee was formed at Madras amongst the principal Tamil Gentlemen in the place for the purpose of publishing an edition of **Villiputturer's** Imitation of the _Mahābharat_, the Editorship was entrusted to Nayanappa Mudeliar; but whilst he was engaged in collating the different manuscripts of the work he died suddenly on the 25th of January 1845.
 
-Na'gande'vana'k --- !5nfEmQf)Sij(^n. 
+## Nāgandevanār. --- [TAMIL].
 
-This poet is now remembered chiefly on account of his connec- 
-tion with the Madura College, in which he was one among the forty- 
-nine professors. Of his poetical compositions, only the following 
-impromptu on the Kural survives : --- 
+This poet is now remembered chiefly on account of his connection with the Madura College, in which he was one among the forty-nine professors. Of his poetical compositions, only the following impromptu on the _Kural_ survives:---
 
-Q'aumnGl^n L^^eceSujuusisrgu --- s>j m^n^n 
-LDuunQ<oCn(T^un<ss)@j lu n iLi wsij Q su n ou m (GfK ■oi' ^ it 
+[TAMIL].
 
-It is no uoidtr ij those uho have bathed in the icater of a tank 
-abounding with lotus-fowcrs will not desire to bathe in any other 
-water ; but it is a wonder indeed if they trho have read Vali.uvf.r's 
-irork will desire to read any other work. 
+_It is no wonder if those who have bathed in the water of a tank abounding with lotus-fowers will not desire to bathe in any other water; but it is a wonder indeed if they who have read Valluver's work will desire to read any other work._
 
+## Nārāyanabhārati. --- [TAMIL].
 
-62 THK TAMIL PIATARCH. 
+This poet was a _Brahman_ who lived at _Venmani_, the exact location of which in the Carnatic we have not been able to ascertain. He is chiefly known as the author of a very popular poem, called _Tiruvenkata Sadagam_ ([TAMIL]), containing a centum of stanzas on moral, and social duties, and which he composed under the patronage of one **Manavāla Narāyanen** of Āmalūr, and whom he celebrates at the end of every stanza as the favorite of _Tiruvenkata_, the form of _Vishnu_ worshipped at Tirupati. The Rev. W. **Taylor** has translated ten stanzas of this poem into English, and the translation forms one of the Appendices to the second volume of his Oriental Historical Manuscripts.
 
-Na'uayanauu.v liATl --- .■bimnuusssruns^. 
+## Nātkavirāja Nambi. --- [TAMIL].
 
-Tiiis pod was a Brnh,nnn who lived at Venmam, the exact loca- 
-lion of which in the Caiualic we have not been able to ascertain. 
-lie is chiefly known as tlic author of a very popular poem, called 
-Tirnvenkal'a Sadagain {^^s>2sii't^(-3=^s>ih), containing a cenluin cf 
-stanzas on n»ora!, and social duties, and whicli he composed under 
-the patronage of one Manavai,a Naka yanen of A'malur, and whom 
-ho celebrates at the end of every stanza as the favorite of Tiruven- 
-knta, the form of Vishnu worshipped at Tirupati. The Rev. W. 
-Taylor has translated ten stanzas of tliis poem into English, and the 
-translation forms one of the Appendices to the second volume of his 
-Oriental llislo»-jcal IManuscripts. 
+Of the biography of this poet very few particulars have been preserved. All that is known of him is, that he was a native of _Putiankudi_, in the Carnatic, born and bred up in a _Jaina_ family; and having made poetry the exclusive object of his study, acquired the high distinction of being considered the king of the poets, and as an improvisatore he had scarcely any equal in his day. He has left behind him a treatise containing rules for composing amatory poems, under the title of _Agapporal Illakkanam_ ([TAMIL]), which is now generally consulted as a standard authority on the subject.
 
-NATfcAViu\JA Nambj --- .rnjhseSan^ nihiSl. 
+## Ottakūter. --- [TAMIL].
 
-Of the biography of this poet very few particulars have been 
-preserved. AH that is known of him is, that he was a native of Pu- 
-liankudi, in the Carnatic, born and bred up in a Jaina family ; and 
-having made poetry the exclusive object of his s'tudy, acquired the 
-high distinction of being considered the king of the poets, and as an 
-improvisatore he had scarcely any equal in his day. He has left hc- 
-liind him a treatise containing rules for composing amatory poems, 
-under the title of Ayappond lUakkanum (<5?auGua(5£Tp6\)<5<s6C5rii)), 
-which is now generally cousulted as a standard authority on the sub- 
-ject. 
+Ottakūter was one of the poets who flourished at the court of **Rājendra Chola**, and that of his son **Kulotunga Chola**. He excelled all his colleagues in the composition of war chants, called _Parani_. His _Kalingattu Parani_ ([TAMIL]), in which he celebrated the conquest of the _Kalinga_ country by **Kulotunka Chola** is a matchless production of the kind, and it is related that the hero of the poem was so much pleased with it, that he rewarded him by rolling a golden cocoanut at the end of every stanza, as it was recited; but this is manifestly an oriental exaggeration. The _Uttarakānda_ which forms the seventh book of the _Ramayanam_ was composed by Ottakūter, and was with the approval of **Kamber** himself incorporated with his own work. This though written in the same metre and style as the other six books, yet on a close inspection an inferiority is perceptible, as much as can be discovered between the first part of **Dryden's** _Absolom_ and _Achitophel_, and the second part of it by **Tate**. A good deal of rivalry appears to have existed between Ottakūter and **Kamber**. On one occasion the king going out on a visit to one of his mistresses, found on his return that the door of the palace was closed against him by the Queen, and that no entreaty or persuation would make her relent. The king at length sent for Ottakūter, and desired him to soothe her by his song, and cause her to open the door; and he thereupon addressed her in the following impromptu:
 
-Ottaku'ter --- 5?/leoL_<s.3n_/^/f. 
+[TAMIL].
 
-Ottakuter was one of tlie poets who flourished at the court of 
-Ra'je'ndra Cuo'la, and that of his son Kulotunga Cho'la. He ex- 
-celled all iiis colleagues in the composition of war chants, called 
-Parani. His KaJingattu Parani {aeSiiEias^^uuuesufi), in which he 
-celebrated the conquest of the Kalinga countryjjy Kulo'tunka Cho'- 
-la is a matchless production of the kind, and it is related that the he- 
-ro of the poem was so much pleased with it, that he rewarded him 
-by rolling a golden cocoanut at the end of every stanza, as it was re- 
-cited ; but this is manifestly an oriental exaggeration. The Uttara- 
-kdnda which forms the seventh book of the Ramayanam was com- 
-posed by Ottakuter, and was with the approval of Kamber himscK in- 
-corporated with his own work. This though written in the same 
-metre and style as the other six books, yet on a close inspection an 
-inferiority is perceptible, as much as can be discovered between the 
-first parlof Dkyden's Ahsolom and Achitophel, and the second part 
-of it by Tate. A good deal of rivalry appears to have existed be- 
-tween Ottakuter and Kambek. On one occasion the king going out 
-on a visit to one of his mistresses, found on his return that the door of 
-the palace was closed against him by the Queen, and that no entreaty 
+_O thou whose speech is as sweet as honey! No more shall I entreat thee. Deign to open the door, if not, the arrival at thy door of the king of the solar race who commands the seven clouds, will make thy lotus-like hand open it spontaneously._
 
+But this instead of soothing her had only the contrary effect. She bolted the door with an additional bolt, saying, ([TAMIL]), i. e. "_Ottakūter's song is worth two bolts._" The king next sent for **Kamber** who knowing full well the weak point in women flattered her self-conceit in the following impromptu, and obtained his request:---
 
-THE TAMll, PLL'TARCH. 03 
+[TAMIL].
 
-or pcrsualion wouM iu;ik.«> her relent. The king nt !<^ngtfi seat tor 
-Oitakuter, and desired him to soothe her by liis song, and caits'e lier 
-to open the door; and he tliereupon addressed her in the Tolfowing 
-impromptu : 
+_O thou with the slender waist, and dark blue eyes and ears adorned with golden jewels! Calm thine anger; for when the illustrious sovereign whose country is blessed with rain twice a month, waits at thy door, it is thy duty to forgive him once, nay even twice._
 
-Q^(o est s u IT L--- i ^/Di^^r^&T'SSjnuj ^p'Sun^ts^Qe^n 
+## Padikāsu. --- [TAMIL].
 
-(m>Q<osr^/D d^Qp^<5ns uSs^ip nQ^Uj^ n ld sasjQiu. 
+Padikāsu was a native of _Kalandei_, in the Carnatic. He flourished as a poet at the Court of **Kilaven Setupati**, otherwise called **Regunatha Setupati**, who reigned at Ramnad from CE 1686 to 1723. His principal work was a poem, entitled _Tondamandala Sadagam_ ([TAMIL]), consisting of a hundred stanzas in praise of the _Tonda_ country. He appears to have been very expert in the composition of poetical epistles, some of which are still extant. It should, however, be remarked that he was excessively conceited of his own accomplishments, and moreover a severe satirist of his time, calling himself in that respect the representative of **Kālamegam**.
 
-O thou ii-hose speech is as sweet as honeij ! No more shall I enlrecH 
-thee. Deign to open the door, if not, the arrival at thy door of the 
-king of the solar race loho commands the seven clouds, will make thy 
-lotiis-like hand open it spontaneously. 
+## Padumanār. --- [TAMIL].
 
-But this instead of soothinc; her had only tlie contrary efTcct. She 
-bc>ltcd the door with an aCkh'lional b61t, saying, (gptlL-sffn^j^oSTun 
-(10)5^5 ©atloC^f-^^iiuu/ToYj), i. e. "Otlakuter''s song is worth two 
-ioitsy The king next sent for Kamber who' knowing full well the 
-weak point in women flattered her self-conc'eit in the fo^llo\vi'ng ini- 
-promptu, and obtained his request : --- 
+This poet appears to have flourished at an early period; but no particulars of his life have reached us. He is however well known as the author of a learned commentary on the _Nāladyār_, a poem containing 400 stanzas on moral subjects, and supposed to have been the joint composition of four hundred poets who visited the court of a certain _Pāndiya_ king, each of them being the author of a stanza.
 
-iDSS)i^Qujn^rSljj6^(SQuiLiLnfTi^m)u rr^^saresflsisT SijnuSI&)3ij i^np 
+## Panambāranār. --- [TAMIL].
 
-O thou until the slender u-aist, and dark Uueeyes and ears adorn- 
-ed xoith golden jewels ! Calm thind anger ; for when the ilhistrioiis 
-sovereign ichose country is blessed with rain twice a 7no^ifh, rcaits at 
-thy door, it is thy duty tofor'^ice him once, nay even twice. 
+Panambāranār, so called from the town _Panambāram_, where he lived, was one of the twelve disciples of **Agastiyer**. Having devoted himself with great assiduity to study, he acquired a high reputation as a grammarian and poet, and wrote an able treatise on Grammar under the title of _Panambāranār Sūtram_ ([TAMIL]). He also wrote the preface to the _Tolkāppiyam_, a Grammar which his fellow student **Tolkāppiyanār** had composed.
 
-PaDIKA'sU UL9-<5<S/T<9?. 
+## Paraner. --- [TAMIL].
 
-Padikasu was a native of Kalandei, in the Carnatic. He flourish- 
-ed as a poet at the Court of Kilaven Setupati, otherwise called Re- 
-GUNATHA Setupati, who reigned at Raranad from A. D. 1686 to 
-1723. His principal work was a poem, entitled Tondamandala Sa- 
-dagam {Gsnsssn---iDisai-eOffSySih), consisting of a hundred stanzas in 
-praise of the Tonda country. He appears to have been very expert 
-in the composition of poetical epistles, some of which are still extant. 
-It should, however, be remarked that he was excessively conceited of 
-his own accomplishments, and moreover a severe satirist of his time, 
-calling himself in that respect the representative of Ka'lame'gam. 
+Paraner was one of the forty-nine professors of the Madura College and primus inter pares; but scarcely any thing is known of his biography. He was present on the College bench when the _Kural_ was submitted to its judgement, and is stated to have expressed his opinion of that work in the following impromptu:---
 
-Padumana'r --- u^LDi^n. 
+[TAMIL].
 
-This poet appears to have flourished at an early period ; but no 
-particulars of his life have reached us. He is however well known 
-as the author of a learned commentary on the Ndladydr, a poem con- 
-laining 400 stanzas on moral subjects, and supposed to have been the 
+_Māl (Vishnu) in his Kural or dwarfish incarnation measured the whole earth, with his two expanded feet; but Valluver has measured the thoughts of all mankind, with his (stanza of) two short feet._
 
+## Paranjoti Tambirān. --- [TAMIL].
 
-C4 
+Paranjoti Tambirān, who was a _Saiva_ ascetic and superior of the _Saiva Matam_ at Madura during the reign of **Athivira Pāndiyen**, signalized himself by his profound skill in the Sanskrit and Tamil languages and poetry, as well as in the Hindu metaphysical philosophy. At the request of the king, by whom he was patronized, he wrote for him a poem, under the title of _Tiruvilliyādel Purānam_ ([TAMIL]) comprising 3363 stanzas, in 72 cantos. It treats of the sixty-four sports of _Siva_ at Madura, as originally related in the Sanskrit legend called _Hāla-sya Mahatmya_; and Professor **Wilson**, in his Historical Sketch of the Kingdom of _Pāndiya_, states that it is reputed to have been written in the _Saka_ year 973, corresponding with CE 1051.* Paranjoti Tambirān also wrote for himself another poem, entitled _Potikali venba_, ([TAMIL]) on the same subject as the above, but on a contracted scale, and in the form of hymns addressed to _Siva_.
 
+*) See Journal of the Royal Asiatic Society, Vol. 3. p. 203.
 
-THL TA511L l^LLTAKCH. 
+An analysis of the _Tiruvilliyādel Purānam_ has been published by the Rev. **W. Taylor**, in his Oriental Historical Manuscripts, Vol. 1.
 
+## Parimel-azhagar. --- [TAMIL].
 
-joint c-oiii|)0:silioii of I'uur huiKiic-tl [)octs whu vis. ted the cuurt.uf a 
-OLTtain FAndiya king, cacli of them being the author of a stunza. 
+Parimel-azhagar was a _Brahman_ poet who owes his celebrity to a Commentary which he wrote on the _Kural_; but nothing is known of his personal history, or the era of his existence. There are nine other Commentaries on the _Kural_ written by different poets at different times, but his work has thrown them all in the shade, and fixed itself in popular esteem as the most classical production. Mr. **Ellis** has availed himself of the aid of this work in framing the valuable notes and illustrations which accompany his metrical version of the first twelve chapters of the _Kural_; and the Rev. Mr. **Drew** has published a great portion of it with his prose translation of the sixty-three chapters of the _Kural_.
 
-Pa.\amb\'i{ANa R --- ussruciun!j^fr(^^^nLD. 
+## Patirakiriyār. --- [TAMIL].
 
-Panambaranar, so called from the town Panamburam, where he 
-lived, was one of the twelve disciples of Agastiyitr. Having de- 
-voted himself with great assiduity to study, he acquired a high repu- 
-tation as a grammarian and poet, and wrote an able treatise on Gram- 
-mar under the title of Prtnrt//ii«/Y/««/* Sutram (ussr iu.ia.^^-^^^j'r). 
-He also wrote the preface to the Tolkrippii/am, a (n-ammar which his 
-fellow student Tolkappiyana'r had composed. 
+Patirakiriyār is generally believed to have been a king, but of what country is not known. He was a contemporary with **Pattanattupilleiyār**, and like him abandoning all his worldly possessions became a naked _Sanniyāsi_, and begged his bread from door to door, enduring the privation of every thing that could in any way have served to gratify his senses. He left a series of 235 couplets, collectively known as his _Pulambel_ or laments, and of which we subjoin a few as being illustrative of his religious opinions.
 
-Parage R --- unsmn. 
+[TAMIL].
 
-Parancr w-as one of the forty-nine prc'fcssors of the Madura Col- 
-lege and primus inter pares ; but scarcely any thing is known of his. 
-biograpliy. He was |)resent on the College bench when the Kural 
-was submitted to' its judgement, ohid is stated to have expressed his 
-opinion of that work in the follow-ing impromptu : --- 
+_Oh! When will the time come that I shall know the secret mover of the machinery within me, and obtain the reward of my penance?_
 
-M/il ( Vishnu) in his Kural or dwarfish incarnation measured the 
-u-hdie earth, with his two expanded feet ; but Valluver has measured 
-the thoughts of all mankind, with his (stanza oj) two short feet. 
+_Oh! When will the time come that I shall study the mystery of the letter A, which stands the first of all letters, and comprehend its meaning?_
 
-Paranjo'ti Tambiran --- uiT^Q<fa^ji-^iMiSlj!Jesr. 
+_Oh! When will the time come that I shall burn the Sastras, and prove the four Vedas to be false and he made whole by discovering the mystery?_
 
-Pp.ranj6li Tambiran, who was a Saira ascetic and superior of the 
-Saiva Matam at Madura during the reign of Athivira Pa'ndiyen, sig- 
-nalized himself by his profound skill in the Sanskrit and Tamil lan- 
-guages and pocti'y,as well as in the Hindu metaphysical philosophy. 
-At the request of the kin<r, by whom he was patronized, he wrote for 
-him a poem, under the title of TiruviUiijndd Puranani {^^eS&soiua 
-t-rbqaric-csiLc) comprising 3363 stanzas, in 72 cantos. It treats of the 
-sixty-four sports of S/i-« at Madura, as originally related in the Sans- 
-I'vrit legend called Hdla-sj/a Mahatmija ;' and Professor Wilson, in his 
-Historical Sketch of the Kingdom of Fond ii/a, stales that it is reputed 
-to have been written in the Saka year 973, corresponding with A. D. 
-1051.* Paranjoti Tambiran also wrote for himself another poem, en- 
-titled Polikaii vcnha, [Qunn)^3,a-6^Gsusts\uu) on the same subject as 
-the above, but on a contracted scale, and in the form of hymns address- 
-ed to Siva. 
+_Oh! When will the time come that the chisled stone, the moulded red clay, and the burnished copper shall be rendered profitable?_
 
-" See Journal (if the Royal .\siatic Sociclv, Vol. ill p' '-'03. 
-
-
-THE TAMIL PLL'TAKCH. 
-
-
-^§ 
-
-
-An analysis of the TiruvWciyddel Pio'dnam 1ms been published 
-by th-e Rev. W, Taylor, in his Oriental Historical iMRnuscripts, 
-Vol. 1. 
-
-Pa'rime'l-azhagar --- u iflQ Lneo ip s n . 
-
-Parim'el-azhagar was a Brahman poet who owes his celebrity to a 
-Commentary which he wrote on the Kural ; but nothing is known of 
-his personal history, or the era of his existence. There are nine 
-other Commentaries oh the Kural written by different pofets at differ- 
-ent times, but his work has thrown them all in the shade, and fixed it- 
-self in popular esteem as the most classical production. Mr. Ellis has 
-availed himself of the aid of this work in framing the valuable notes 
-and illustrations which accompany his metrical version of the first 
-twelve chapters of the Kural ; and the Rev. Mr. Drew has publish- 
-ed a great portion of it with his prose translation of the sixty-three' 
-chapters of the Ktiral. 
-
-Patirakiriya'r --- u^^nQiBiunn. 
-
-Patirakiriyar is generally believed to have been a king, but of what 
-country is not known. He was' a contemporary with Pattanattu- 
-riLLEiYA'R, and like him abandoning all his worldly possessions be- 
-came a naked Sanniydsi, and begged his bread from door to door, 
-enduring the privation of every thing that could in any way have 
-served to gratify his senses. He left a series of 235 couplets, col- 
-lectively known as his Pulamhel or laments, and of which we sub= 
-join a few as being illustrative of his religious opinions. 
-
-67 6W ^iS3r UJ ff$? OJ /7^ (5 /F^ /r il ® (^ @/^ //? ^ 6BT 
-
-ffn^^!X^(Sts)js^3^Ll.<Si^ ff^iDaDpGsujuQunujtLtni@<^ 
-(^ji^ff^<3s>fiis6sm(Sl a-SLhOu^suQ^dsireoih. 
-
-usffjuS u-i---.Q<^uiLjLh QunQT^en nshQjsssneOi}). 
-
-Oh ! When toill the time come that I shall know the setret mover oj 
-the ?nachinery within me, and obtain the reioard of my penance ? 
-
-Oh ! When xoill the time come that I shall study the mystery of the 
-letter A, which stands thefrst of all letters, and comprehend its mean- 
-ing ? 
-
-Oh ! When loill the time come that I shall hum the Sdstras, and 
-prove the four Vedas to he false and he made whole hy discovering the 
-mystery 1 
-
-
-66- THE TAMIL PLLTARCM- 
-
-Oh ! When mill the time come that the chided stone , the moulded 
-red clay, and the hirnished copper shall he rendered prof table ? 
-
-Oh ! When will the time come that men shall live together tcithoni 
-any distinction of caste, according to the doctrine promulgated inthe 
-beginning by Kapiler. 
+_Oh! When will the time come that men shall live together without any distinction of caste, according to the doctrine promulgated in the 
+beginning by Kapiler?_
 
 Pattanattu-pilleiya'r --- uiLi-essr^^uSeiT'2eiTuun!T. 
 
@@ -1258,7 +1103,7 @@ mendicant thereupon went away, leaving with her a slip of o/rt/i wrapt
 in a rag, and requesting her to deliver it to her husband on his re- 
 turn. When Pattanattu-pilleiyar returned to his house, he looked 
 into the slip of olah and finding the words (an^riip^^mih ejnnn^&iT 
-^}iiEi a<os^L.QjifsQs) ^' Mind that even a needle with a broken eye 
+^}iiEi aos^L.QjifsQs) ^' Mind that even a needle with a broken eye 
 will 7wt follow thee in thy last day,''"' he at once imbibed an aversion 
 to the worldly life, gave away all his wealth to the people around, 
 and he, abandoning his house, became a naked ascetic, and passed the 
