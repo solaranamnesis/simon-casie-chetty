@@ -793,479 +793,127 @@ _Learning, however extensive, will be useless, unless there be discretion to dis
 
 _The learned need no other ornament than the excellence of learning. Nothing is wanting to adorn an ornament perfectly set with every precious stone. Who would beautify beauty itself!_
 
-Kuma'rasinga Mudeliar --- (^Lsnff&mjiQp^eQiunn. 
-
-Kumarasinga Mudeliar was descended from a respectable Velala 
-family at Ndvetkuli, in Mantolte, and enjoyed some reputation both as 
-a clever poet, and an experienced physician. Having unf(jrtunate- 
-ly taken an active pari in the tumult which occurred in the district of 
-Man-aar, in consequence of the imposition of a tax upon ornaments 
-by Governor North in A. D. 1800, he was tried for sedition, and 
-being convicted, was sentenced to be whipped. There is a very pa- 
-thetic address to the Blessed Virgin, in a series of stanzas, which he 
-repeated impromptu while being whipped, craving her intercession 
-that he may be endowed with fortitude to bear the affliction. He was 
-also the author of several hymns now sung in the Catholic churches 
-in Mantotte, at Novenas, and which exhibit his strong devotional feel- 
-ing. 
-
-Ku'langkaiyer --- s^ Lg Ej (ss) B uj rr . 
-
-Kulangkaiyer was a highly celebrated poet and philosopher, well 
-skilled both in the Sanskrit and Tamil languages. No less a place of 
-sanctity amongst the Hindus than Kanjipurani claims him as its na- 
-tive, and his parents it would appear traced their lineage to the Vela- 
-lers, who colonized Tondamandalam under the auspices of Adondaj 
-Chakbavarti, before the commencement of the Christian era. HV 
-
-
-48 THE Tamil pi.ltabcm, 
-
-was educated at first in n country school, whore he gave early indi- 
-cations of his superior genius, and afterwards in the Saiva Matam 
-at Tiruvatur, in the Tanjore country, under the tuition of the learn- 
-ed Tamhirans or ascetics, who resided in it, and whose profession it 
-was to assist the youth in the prosecution of the study of the Hindu 
-system of Metaphysics and Theology. Having distinguished him- 
-self while a student by his various attainments, and earned for him- 
-self the title o^Tamhirdn, he was selected in the first instance for the 
-office of Junior teacher in the Matam ; the duties of which he per- 
-formed in an admirable manner, evincing a great solicitude to pro- 
-mote the interests of his pupils. The superior of the Matam soon 
-becoming jealous of the young Tdmbiran.^ who from his zeal and learn- 
-ing seemed to bear away the palm of praise, falsely accused him of 
-some crime, in consequence of which he was required to take up a 
-piece of red-hot iron, to prove his innocence. He submitted to the 
-ordeal ; but in its performance he was unfortunately deprived of the 
-use of his right hand, and henceforth he passed under the sobriquet 
-oi Kidangkaiyer, (one with a crippled hand), and his real name 
-became forgotten by disuse. Subsequently he came to Jaffna, and 
-settled there under the kindness and hospitality of Vytilixga Che'S- 
-TiAR, the principal merchant in the place, and it appears that teaching 
-was the sole occupation in which he engaged himself for the remain- 
-der of his life. He not only taught the children of his benefactor, but 
-likewise of many others who had sought his assistance, in order to 
-secure for them a classical education. The fame of his deep erudi- 
-tion soon spread over to Colombo, from which place he received sev- 
-eral invitations from various individuals to come and help them in 
-their studies. With his characteristic desire to diffuse knowledge, 
-he accepted their invitations, and paid several visits to Colombo, 
-where he always met with a warm reception from all parties. To 
-his guidance was the Reverend Father Gabriel Pacheco chiefly in- 
-debted for that thorough knowledge of Tamil, which afterwards ena- 
-bled him to produce in that language those valuable religious works, 
-especially the History of the People of God {Q^euu\3a6S)3'u^6ls'0^s,s 
-63)^), in two ponderous volumes, whereby his name has been emi- 
-nently distinguished. 
-
-Kijlangkaiyer was the author of an exposition of the Nannul, and 
-he also composed some epic poems, and several minor pieces of poet- 
-
-2', remarkable for their elegant and harmonious versification, 
-mongst his epics may be mentioned Yosep Purdnam {QiunQffuq 
-ffneccrti)), which treats of the history of the patriarch Joseph, in 1023 
-stanzas, arranged in twenty one cantos. He inscribed it to the learn- 
-ed Df. Meliio, who was his friend and literary associate, ds a tribute 
-of respect to his eminent worth and abilities ; but unfortunately only 
-a fragment of it is now e.xtant. As a specimen of its poetry, we sub- 
-join the five following stanzas, extracted from the second canto en- 
-titled A'ttnpadalam : 
-
-
-tllK TAMir. IM.UTAUCH. 49 
-
-UajL0L/a9f rfS(75>jfr uQiuir^jLSIujnei^QLci^SsmiruJnjb 
-uujiSjQarrsirQsu'^uSlp u!ji^sunifl^iiS<ss)i^uuf.i^ 
-u tu la s str n Gsr iss) Sij UQ^Qujuun'S!S>siiiiS(^isiiuf.(Sundju 
-uujiEjsmQdinassys Osncmi^L-uurri^^ihuaQLDeo. 
-
-^(50/50 ff/B^'fevtJ LSsSluLjQLDQs^rreir^Q^s'^ism^ 
-LDQ^ Sif (^ n asr IB e\)Q so n&flQiu ear LSIerr6^LD/bO(n/'<oksijnuJs= 
-
-<S02ioSWUJirQLD<oBTuQuiTL^ii^^ S It ifl (T^ lL t^ iU Q 6\) . 
-^mSe\)ns;^(7^:BlTtMQLD fiUU!kl(^£>I(^'3f-S^ 
-
-Q eo n eS s\) n iLsa ifi Quuj^(5!sr&js\}(^Q(Strn0QJLJU. 
-
-Qaj^tx)Lj^ujL£iLjeOGSI(r^iij(^t---nsyuf.QiusonuS'n^^ 
-rE^tliu^GSiirJ^^j-erriws'^dQsfTL^d^c^esri---iE^ 
-
-The clouds which supply the earth loith water, having overspread^ 
-and settled upon the sea abounding with formidable zvaves, imbibed 
-the tcater of the sea, and assuming the form of the sea itself spread 
-over the sky. 
-
-When the darksome clouds rapidly moved along the sky, extending 
-Ihemselves to the eight points of the compass, and covering over the earth 
-ruled by kings, they resemhled d black canopy hanging as it tcere be- 
-neath the pavilion of heaven. 
-
-The clouds darted lightnings, bright as the light of wisdom in the 
-mind of the learned teacher Philip De Melho ; sounded as the words 
-of instruction proceeding from his 7nouth ; and poured doivn rain 
-xvith a benevolence like his to promote the happiness of mankind. 
-
-Gladdening the inhabitants of the earth, the rains ptiurcd down inces- 
-santly ; and it seemed as if they ivere bathing the mount Sion, whereon 
-the holy name of our God, the God of gods is peculiarly distinguished. 
-
-The waters falling on the summit of the mount descended along its 
-sides, and having filed both the holes of ants, and the caves of lions 
-tigers and bears, pursued their course towards the sea, traversing the 
-hilly country, and carrying icith them the gems which they had collect- 
-ed together. 
-
-During the latter part of his life, Kulangkaiyer chiefly resided at 
-Chiviateru, in the parish of Chundikuly ; and he died at the same 
-place advanced far in vears, a short time after the surrender of 
-7 
-
-
-50 
-
-
-THE TAMIL PLUTARCH: 
-
-
-Jaflnu to tilt; British. He was buried at Tinnevelly, in the parisli of 
-Nellore, and the Rev. Mr. Roberts in the "Oriental Illustrations of 
-the Sacred Scriptures", p. 205, notices his sepulture, thus : •' Some 
-of those who are reported to be very holy are buried in salt, and in 
-a sitting posture, so that they are considered to be still at their de- 
-votions Thus Koonakaitamharan (Kulangkai Tambiran), of Jaffna 
-was buried." 
-
-Kulangkaiyer was free from prejudice, liberal in his views, friend- 
-ly to all, and identified himself with no party, hence he was univer- 
-sally respected and admired by people of every class and creed. His 
-constant intercourse with De Melho enabled him to acquire a know- 
-ledge of the Bible, and whenever so disposed he was ready to argue 
-very ably and warmly in favor of the divine origin of Christianity, 
-which excited the astonishment of the votaries of Hinduism. It is 
-said that when at the dedication of the Saiva temple at Vannarponne, 
-which was built and endowed by Vytilinga Chettiar ; he went to 
-witness the solemnities, the officiating Brahman presented him with 
-the holy ashes to be rubbed on the forehead ; but he took and rubbed 
-it on his slippers, observing at the same time '■'■ let the like join the 
-like,'''' that is, that as the one was made of cow-dung, and the other of 
-cow's hide, let them" be joined together. We, however, much regret 
-that, convinced as he was of the truths of Christianity and the falsity 
-of Hinduism, and treating the one with respect, and the other with 
-contempt, he should nevertheless have lived and died a Rindii. 
-
-It should be mentioned that Kulangkaiyer, after his arrival and 
-settlement in Jaffna, directed his attention to the study of the Dutch, 
-and Portuguese languages, and made himself so far acquainted witli 
-them as to be able to speak them with tolerable fluency, and obviat- 
-ed the necessity of an interpreter in his intercourse with the Dutch 
-Commandeur, antl other high functionaries in the place, whom he vis- 
-ited, and who always received him with civility and courteousness.* 
-
-" Lorenzo Pulaver --- Q&)rrQ!T<i^3^uLj&)suiT. 
-. Lorenzo Pulaver was born of Veldla parents at pisikulam, in 
-Mantotte, and brought up in the Catholic religion which his family 
-professed from the time of its introduction into Manaor by St. Fkan- 
-cis Xavier, the Apostle to India. He lived in the middle of the 
-last century, and though he did not write any large poems, yet his 
-abilities are manifest from the many excellent hymns which he com- 
-posed in honor of our Saviour, and tfie Blessed Virgin. It is said 
-that while he was on a visit to Putlam, Allah PiTciiEr' Annaviya'r, 
-a Moorish poet of some repute, who lived there, endeavoured to be- 
-wilder him in a contest respecting the Kanam (seraU), or foot of an 
-invocation in a poem, by producing a forged rule in support of his 
-false proposition ; but he soon exposed the forgery, and carried away 
-
-* We arc indebted for the particulars of the life of Kulanghaiyer and those 
-o/De Meiho to the liindncss of M. V Jl'BOE.n O.suatji ,Es<mire of the Colo- 
-nial Office, Colombo 
-
-
-THE TAMIL PLUTARCH. 5i 
-
-.i\\e palm in the conlcst. He was remarkably quick at makwig re- 
-partees. One day a poet from Colombo, meeting him for the first 
-time near the church at Mantotte, apd wishing to be facetious at his 
-expense, asked him, "Is the Mantotte buffalo very big 7 "{u-^nQs^tr 
-(li_^^rr63T <5t_n GLD^^uQutP(S,^ir) and the ready reply was, "Yes 
-it is little bigger tha7i the Colombo ffss" (Qsnt^ihunoist QanQeu^sus 
-6S)^a9i) Oanfr,ffthGuifs>)' Notandain est, in Tamil both the words 
-"buffalo'''' and "ass" are metaphorically applied for a blockhead. 
-
-MaCHAMUUI LDffS:(Tp<5sfl. 
-
-Machamuni, who was both a distinguished poet and pliilosopher, 
-lived at the same time with Agastiyer ; but nothing further is known 
-of him. None of his compositions had escaped the ravages of time, 
-save the Vdda Negandu {svn^t^aessiQ)^ a treatise on the nostrums 
-and mysteries of alchemy, which science now justly holds in contempt, 
-which appears to have been once much cultivated among the Tamils 
-and an anecdote is still current of a merchant in the Carnatic, who 
-after having spent all his wealth in trying to make gold, was reduced 
-to beggary, and used to exclaim as he went about begging (suEiffluP 
-S)}^^sc62£o eS>iBa(tp^g06i)Q£o) ^^ the lead wotdd no.t be hardened and 
-the cinnabar would not n\eU.^'' 
-
-Madura Pa'la'siriyana'b. --- m^(^!ruuneorT9ifliLi(ev)iT. 
-This poet must have been a man of great erudition, as may be in- 
-ferred from the fact of his having had the title of A'siriyan or Doctor 
-conferred on him, by his contemporaries. His name occurs among 
-the forty-nine professors of the Madura College but none of his corn- 
-positions has been preserved, save the following impromptu on the 
-Kural. 
-
-
-(r^'Sfreffi(T^es<}Fd(^QijDnfnf). 
-
-The planets Ve7ius, Jupiter, Sun and Moon .would smffly dispel 
-the darkness fro7n the face oj the earth ; but the Kural of the learned 
-Valluver would more swiftly dispel the darkness from the hearts of 
-men. 
-
-Madura Perumaruthana'r --- if^mnuQufTnLDQ^^i^n. 
-
-This poet was one of the forty-nine professors of the Madura Col- 
-lege. Nothing further is known of him beyond that he uttered the 
-following impromptu on the Kural, which contains merely an enu- 
-meration of the chapters of that work, with an eulogy on Tiruval- 
-LUVER, for having imparted through them the sublime truths of thp 
-Vedas, and redeemed the world from it? errors : --- 
-
-
-^2 
-
-
-HE TAMIL PLLiARCH. 
-
-
-^/DLSl(^us;€^^{h^rrjt(o)perf)aj --- (ipe!S)/D6iaLDiuneo 
-
-Madura Tamil-na'yaganar --- iD^'<oS3jjs:^iAli^!snujs;ev)ir. 
-
-This poet was one of the forty-nine professors of the Madura Col- 
-lege. His real name is not known, and the one under which he is 
-Tioticed is merely titular, referring to his liigh attainments in 
-Tamil literature. When the Kural was submitted to the judgment 
-of the College Bench, he expressed his aj)probation of that work 'n\ 
-the following impromptu : --- 
-
-eSI4\)6ViT^QeuuQurT(i^(ef^LSl6\)'?ecujn/b --- Qffnso&)np 
-u!Tii^ufTSunQe\}^uuj^Sij6irim&j^6V):T 
-
-What is the use of xoorks of great lengthy when thp short work of 
-Valluver olone is enough to edify the xcorhl I It contains all things 
-and there is nothing ichich it does not contain. 
-
-Manava'lada'ser --- LLSsrstj n&r^ns^n. 
-
-IvIanavaUidaser was a Brdhman poet of the Vaishnava sect. His 
-real name is said to have been Pilleiperumdl Aiijankar. He wrote 
-a poem under the title of Tiruvenkata Mdlei {^t§QsuiBa.i-iCinQ£0), 
-consisting of a centum of verses in praise of the shrine of Vishnu at 
-Tirupati. The first fifty verses of this i)oem is plain enough to be 
-understood, but the last fifty have been purposely rendered obscure 
-by the use of words which are susceptible of difierent interpretations. 
-
-MaNDALAPURURER LD6Sliri---&)Lj0U.IT. 
-
-Mandalapuruder was a Jaina ascetic, equally eminent as a poet 
-and lexicographer. He is commonly called Vira Mandalaver, but 
-why so is not known. His poetic lexicon, entitled Suddviani Nigan- 
-du (gt_/TU)6scP^aflkir(J), outshines all similar productions in Tamil, 
-and its execution certainly redounds to his credit. This work, accord- 
-ing to his own averment, was composed by him at the suggestion of 
-GuNAPATTiREN, his spirjtual preceptor ; and it consists of 989 stan- 
-zas, arranged in twelve chapters, and treats of the synonyms of 
-the Flindu Deities, and of the objects of the Animal, Vegetable and 
-Mineral kingdoms as well as of the homonymous and generic terms 
-in nearly the same order with the Amera Kosha. He was also the 
-author of an epic poem in honor o( Arha, the God of the Jaina sect. 
-He appears to have lived in the lime of the king Krishna Ra'yek, 
-who reigned at Vijayanagaram from A. D. 1508 to A. D. 1530, and 
-whom he celebrated' in the 10th stanza of the ninth chapter of 1:;-^ 
-Nigandu. 
-
-
-Tllh' TAMIL riXTAIlCH. OO 
-
-Mauuttuvkn Tamo TiiAUANAU --- iii(Ti^^s:ieuiiifinQiDn^i],^ft. 
-
-This poet was one of the tbrtyriiine professors of llie Madura Col- 
-)^-ge ; but notliing further is known o( him than that he was also 
-well skilled in the medical art. His encomiastic impromptu on the 
-Ktintl, wliich we subjoin, is very curious, in as much as it contains 
-111 the same time a recipe for hpad-aphp. 
-
-QLDn!5^LS&7tUJniTd(^l5 ^'?G\) d (^ ^ ^1 &) S H 'k^ 
-
-LD'26vd(^d^u:,a6Vujn'2ssT <si(srr(sa<aij,'rQpuLJfT&)iTji) 
-
-O Ling, lolio resembles the huge elephant ichich thrusts its tusk at 
-ihe mountain (taking it fur an enemy) ! All are relieeed of their 
-head-ache by smelling the Sindil salt*, and sliced dry-ginger mixed 
-with honey; but Sa'tanar was 7'elieved of his oicn head-ache by heart 
-pig the three parts of the Rural rccitedi. 
-
-Ma'3IU I.ANa'R LDfT^Jp6\)(^IT. 
-
-This poet was one of the professors of the Madura College, and 
-liis memory has been preserved only by the following impromptu 
-which lie uttered on the Rural and its author : --- 
-
-j^puiQutiQ^efflekuih s^QL---eaT^LniiBa^wear 
-fSlpiQ^rflfB^Q fill iSliuQsFetasu--- tup id^iLjU) 
-
-Valluver icho after studying the four topics (of the moral philo-i 
-Sophy, viz : Virtue, Wealthy Pleasure aiid Eternal happiness) has im,', 
-parted their substance (through the medium of the Rural), is in rcz 
-ality a god, and if any shall so far forget his divine character, and 
-say that he is a mere mortal, not only loill the learned reject his sayt- 
-ing but likewise take him for an ignorant man. 
-
-Ma'ngkudi Marudana'r --- iLnii(^t^w(§^(^i. 
-
-Nothing more is known of this poet than that he was one of the 
-forty-nine professors of the Madura College. When the Rural pass- 
-ed the College bench he commended it in the following impromptu : 
-
-
-A kind of sii't produced from the stalk of the Mcnispermum cordifolmrr. 
-See thf Life of ^^M Al.EICIlATA^ ah 
-
-
-54 THE XAMII, rLlTARCIJ. 
-
-s^ifp G s effljg n ±1 sm ir^jh <s iP^ n 8 
-
-eiieir(er^SiJiTaunujQLonL^LDn^Li. 
-
-The beauty of Valluver's Rural is that it not only illustrates the 
-abstruse doctrines of the Vedas ; but is itself a Veda, easy to be 
-studied, and having the effect of melting the hearts of the righteous 
-who study it. 
-
-Ma'nikava'sagar --- iDne^ci asuns^air. 
-
-Manikavasagar was a Saiva devotee and poet of considerable em- 
-inence, who flourished during the reign of the king Arima'rta 
-Pa'ndiyen, which some place between the fifth and eighth century 
-after the Cliristian era. He belonged to a Brahman family of the race 
-pf Ama'tiyer at Vddavur,a. town on the banks of the Vaigai ; and 
-when we strip off the marvellous with which the particulars of his 
-life have been blended in the Tiruvddavurer Purdnam, it would ap- 
-pear that early in life his superior learning, and qualifications having 
-attracted the notice of the king he was summoned to the Court, and 
-appointed Minister of state, under the title of Tenncven Piramardyen, 
-but sometime afterwards when sent on a commission to buy horses for 
-tlie king, yielding to a delusion, he expended the money with which he 
-was entrusted in founding and endowing a Saiva temple at Tiruper- 
-unturei, and consequently incurred the royal displeasure and was put 
-in irons and cast into prison. At this juncture the Vaigai river hap- 
-pened to overflow its banks, threatening destruction to the capital, 
-and the king considering it as a retributive punishment sent by Siva 
-for ill-treating Manikavasagar, set him at liberty. He thereupon as - 
-.sumed the ascetic life and after making pilgrimages to other Saiva 
-.shrines, established himself at Chillambaram, where he died in the 
-thirty-second year of his age. While he was residing at Chillamba- 
-j-am, he distinguished himself by defeating the Buddhist priests, who 
-went over there from Ceylon, and challenged the Brdhmans to a dis- 
-putation, as related in the sixth Chapter of the Tiruvddavurer Pura- 
-nam, of which we have published an English translation in the sec- 
-ond number of the Journal of the Ceylon Branch of the Royal Asia- 
-lie Society. He is known as the author of a Tamil Grammar, under 
-X\\G \\\.\c oi Kuvalciydnandam {^eueisovnes^fh^ih), besides two other 
-works respectively called Sitlambala-kovei (#^p9irLi6tf<5G5fT6JSiaj),and 
-Tiruvdsagam{0^eunff3,ib). The Sittambala-kovci, consisting of 400 
-stanzas, is an epithalamium in which the mutual passion and love of 
-&iva and his consort Pdrvati are described with glowing imagery , 
-and the Hindus consider it an allegorical poem capable of a spiritual 
-interpretation. The TiV/zrasar/am contains a series of hymns address- 
-ed to Siva, which the Hindus esteem highly as being most aflecting ; 
-hence the proverb. {^,if)Q:nfrf^^^sp^,i^t,riff ep.ifKt.'nffBfS^^^ihf^nn) 
-
-
-THK TAMII, IM.LfAllUU. 55 
-
-Those wlio will not be moved by the Tiruvusagam (the holy word) 
-will not be moved by any other Vusafjam (word). The hymns are 
-certainly very impressive, as may be judged by the specimen which 
-Mr. Ellis has quoted in his Commentary on the Kural. 
-
-M'A'RGASAHA'y'A De'VER LLnfliss^a (JluQ^'SiJ H. 
-
-Margasahaya Dever is said to have been born a poet, and hence 
-he had the title of Vara Kavi ; but we are ignorant both of the place 
-of his birth, and the lime of his existence. Of his compositions we 
-have met with only a poem of the class called Pillci tamil {i3sr^i£n 
-^3)i£'i^), describing the gestures and amusements of the childliood of 
-Skanda in the character o( Mitruga, as worshipped at Tiruvirinchei,' 
-and which has acquired some repute amongst the Saicas. 
-
-Meikanda De'VER --- QiMihs(5ssn---Q^(oun. 
-
-Meikanda Dever, whose proper name \Vas Svetavanapcrumal, 
-claimed his descent from a Veldla family at Vennei-nellur, a town" 
-situated on the river Pcniiei, irl the Cafnatic. He is reputed to have 
-been a pupil of Paranjoti Tambiban, who flourished during the 
-eleventh century of the Christian era. He was an able poet, w^ell 
-studied in the Hindu metaphysics and theology. Of his various works 
-the most admired is the Sivagnana Pothafii (^euffjiTeorCufr^ti ), a 
-metaphysical and theological treatise, which has recently been trans- 
-lated into English by the Rev. H. R. Hoisikgton, and published in 
-the fourth volume of the Journal of the American Oriental Society, 
-■'' as worthy of notice and of preservation" covering as it does nearly 
-the whole field of Hindu philosophy. 
-
-MOSIKIRANAR Q LLn9Srf (€S)n . 
-
-This poet was one o? the forty-nine professors of the Madura Col- 
-lege ; but there is nothing remaining of his compositions save the 
-following impromptu on the Kural merely describing the divisions of 
-that work. 
-
-r5nLD/^&srsiJ6ir(sm<aij(^,iiim(^. 
-
-MuTTUSA'Mr PlLLEI --- Qf ^^ 3^ s= n lSI S m'^efT . 
-
-Muttusami Pillei was born of Catholic parents who belonged to a' 
-respectable class of VeJuIas at Pondicherry. Having early distin- 
-guished himself as a Tamil poet, and at the same time made himself 
-familiar with the Sanskrit, Telugu, Latin and English languages, he 
-obtained the offices of Manager of the College of Fort St. George 
-
-
-■}(j THL TAMfL PI-UTARCH. 
-
-anil Moonshco to the Tamil Translator tu Govcniiiient at Mailrasi 
-l)oth wliich he hehj until his death. In 1816 at the desire of Mr. 
-Ellis, the Senior member of the College Board, he made a journey 
-to the south for the purpose of procuring Useful Tamil works for the 
-College; and he availed iiimself of the opportunity to visit the differ- 
-ent places in the south which had been the scene of the labours of 
-Father Besciii and collect materials for a brief history of the life of 
-that celebrated Missionary, which he published both in Tamil and in 
-English. Some time afterwards a C//r//jf/rt poet, named Poxnamba- 
-la:m, who lived at Pursewakam, having published a blasphemous 
-lampoon on Christianity, which made a great sensation amongst both 
-Catholics and Protestant;?, Muttusanii Pillei undertook to refute it ; 
-and accordingly cdmpoged a very able work, under the title of Dhik- 
-karam (^ianu/i)), partly in poetry, and ]:farlly in prose ; and when 
-he had it recited before the assembly of learned men at Madras, it 
-was not only received \<^^ith great applause- but also obtainsd for him 
-the present df a breast-plate set with precious stones, and a suit of 
-Sural shawls ; and the Pundits of the College each addressed to hirri 
-a stanza in Sanskrit as well as in Tamil, commending his production 
-for the sublimity of its language and sense. Besides the two works 
-tipticed atjdvG, he wrott a Commentary on Mr. Ellis' stanzas, called 
-Tarai'u KachchdgakaUppa {^asi^Qans^ffS.daGS'L^un) \ this he did in 
-order to refute an idea which was prevalent amongst the Hindus that 
-Mr. Ellis haying ended each of his stanzas with the words Naina- 
-siiuiya, he had therefore become a convert to their religion : by prov- 
-ing that these words were never intended td represent the pentagram- 
-hiaton, but only to convey the meaning "reverence to the only 
-God." He died on the 23d df September 1840. 
+## Kumārasinga Mudeliar. --- [TAMIL].
+
+Kumārasinga Mudeliar was descended from a respectable _Velāla_ family at _Nāvetkuli_, in Mantotte, and enjoyed some reputation both as a clever poet, and an experienced physician. Having unfortunately taken an active part in the tumult which occurred in the district of Manaar, in consequence of the imposition of a tax upon ornaments by Governor **North** in CE 1800, he was tried for sedition, and being convicted, was sentenced to be whipped. There is a very pathetic address to the **Blessed Virgin**, in a series of stanzas, which he repeated impromptu while being whipped, craving her intercession that he may be endowed with fortitude to bear the affliction. He was also the author of several hymns now sung in the Catholic churches in Mantotte, at Novenas, and which exhibit his strong devotional feeling.
+
+## Kūlangkaiyer. --- [TAMIL].
+
+Kūlangkaiyer was a highly celebrated poet and philosopher, well skilled both in the Sanskrit and Tamil languages. No less a place of sanctity amongst the Hindus than _Kanjipuram_ claims him as its native, and his parents it would appear traced their lineage to the _Velalers_, who colonized _Tondamandalam_ under the auspices of **Adonda Chakravarti**, before the commencement of the Christian era. He was educated at first in a country school, where he gave early indications of his superior genius, and afterwards in the _Saiva Matam_ at Tiruvatur, in the Tanjore country, under the tuition of the learned _Tambirans_ or ascetics, who resided in it, and whose profession it was to assist the youth in the prosecution of the study of the Hindu system of Metaphysics and Theology. Having distinguished himself while a student by his various attainments, and earned for himself the title of _Tambiran_, he was selected in the first instance for the office of Junior teacher in the _Matam_; the duties of which he performed in an admirable manner, evincing a great solicitude to promote the interests of his pupils. The superior of the _Matam_ soon becoming jealous of the young _Tambiran_, who from his zeal and learning seemed to bear away the palm of praise, falsely accused him of some crime, in consequence of which he was required to take up a piece of red-hot iron, to prove his innocence. He submitted to the ordeal; but in its performance he was unfortunately deprived of the use of his right hand, and henceforth he passed under the sobriquet of _Kūlangkaiyer_, (one with a crippled hand), and his real name became forgotten by disuse. Subsequently he came to Jaffna, and settled there under the kindness and hospitality of **Vytilinga Chettiar**, the principal merchant in the place, and it appears that teaching was the sole occupation in which he engaged himself for the remainder of his life. He not only taught the children of his benefactor, but likewise of many others who had sought his assistance, in order to secure for them a classical education. The fame of his deep erudition soon spread over to Colombo, from which place he received several invitations from various individuals to come and help them in their studies. With his characteristic desire to diffuse knowledge, he accepted their invitations, and paid several visits to Colombo, where he always met with a warm reception from all parties. To his guidance was the Reverend Father **Gabriel Pacheco** chiefly indebted for that thorough knowledge of Tamil, which afterwards enabled him to produce in that language those valuable religious works, especially the History of the People of God ([TAMIL]), in two ponderous volumes, whereby his name has been eminently distinguished.
+
+Kūlangkaiyer was the author of an exposition of the _Nannūl_, and he also composed some epic poems, and several minor pieces of poetry, remarkable for their elegant and harmonious versification. Amongst his epics may be mentioned _Yosep Purānam_ ([TAMIL]), which treats of the history of the patriarch **Joseph**, in 1023 stanzas, arranged in twenty one cantos. He inscribed it to the learned **De Melho**, who was his friend and literary associate, as a tribute of respect to his eminent worth and abilities; but unfortunately only a fragment of it is now extant. As a specimen of its poetry, we subjoin the five following stanzas, extracted from the second canto entitled _Āttupadalam_:
+
+[TAMIL].
+
+_The clouds which supply the earth with water, having overspread, and settled upon the sea abounding with formidable waves, imbibed the water of the sea, and assuming the form of the sea itself spread over the sky._
+
+_When the darksome clouds rapidly moved along the sky, extending themselves to the eight points of the compass, and covering over the earth ruled by kings, they resembled a black canopy hanging as it were beneath the pavilion of heaven._
+
+_The clouds darted lightnings, bright as the light of wisdom in the mind of the learned teacher Philip De Melho; sounded as the words of instruction proceeding from his mouth; and poured down rain with a benevolence like his to promote the happiness of mankind._
+
+_Gladdening the inhabitants of the earth, the rains poured down incessantly; and it seemed as if they were bathing the mount Sion, whereon the holy name of our God, the God of gods is peculiarly distinguished._
+
+_The waters falling on the summit of the mount descended along its sides, and having filled both the holes of ants, and the caves of lions tigers and bears, pursued their course towards the sea, traversing the hilly country, and carrying with them the gems which they had collected together._
+
+During the latter part of his life, Kūlangkaiyer chiefly resided at Chiviateru, in the parish of Chundikuly; and he died at the same place advanced far in years, a short time after the surrender of Jaffna to the British. He was buried at Tinnevelly, in the parish of Nellore, and the Rev. Mr. Roberts in the "Oriental Illustrations of the Sacred Scriptures," p. 205, notices his sepulture, thus: "Some of those who are reported to be very holy are buried in salt, and in a sitting posture, so that they are considered to be still at their devotions. Thus _Koonakaitambaran_ (Kūlangkai Tambiran), of Jaffna was buried."
+
+Kūlangkaiyer was free from prejudice, liberal in his views, friendly to all, and identified himself with no party, hence he was universally respected and admired by people of every class and creed. His constant intercourse with De Melho enabled him to acquire a knowledge of the Bible, and whenever so disposed he was ready to argue very ably and warmly in favor of the divine origin of Christianity, which excited the astonishment of the votaries of Hinduism. It is said that when at the dedication of the _Saiva_ temple at Vannarponne, which was built and endowed by **Vytilinga Chettiar**; he went to witness the solemnities, the officiating _Brāhman_ presented him with the holy ashes to be rubbed on the forehead; but he took and rubbed it on his slippers, observing at the same time "_let the like join the like_," that is, that as the one was made of cow-dung, and the other of cow's hide, let them be joined together. We, however, much regret that, convinced as he was of the truths of Christianity and the falsity of Hinduism, and treating the one with respect, and the other with contempt, he should nevertheless have lived and died a Hindu.
+
+It should be mentioned that Kūlangkaiyer, after his arrival and settlement in Jaffna, directed his attention to the study of the Dutch, and Portuguese languages, and made himself so far acquainted with them as to be able to speak them with tolerable fluency, and obviated the necessity of an interpreter in his intercourse with the Dutch _Commandeur_, and other high functionaries in the place, whom he visited, and who always received him with civility and courteousness.*
+
+*) We are indebted for the particulars of the life of Kūlangkaiyer and those of De Melho to the kindness of M. P. Jurgen Ondatji, Esquire of the Colonial Office, Colombo.
+
+## Lorenzo Pulaver. --- [TAMIL].
+
+Lorenzo Pulaver was born of _Velāla_ parents at _Pāsikulam_, in Mantotte, and brought up in the Catholic religion which his family professed from the time of its introduction into Manaar by St. **Francis Xavier**, the Apostle to India. He lived in the middle of the last century, and though he did not write any large poems, yet his abilities are manifest from the many excellent hymns which he composed in honor of our **Saviour**, and the **Blessed Virgin**. It is said that while he was on a visit to Putlam, **Allah Pitchei Annaviyār**, a Moorish poet of some repute, who lived there, endeavoured to bewilder him in a contest respecting the _Kanam_ ([TAMIL]), or foot of an invocation in a poem, by producing a forged rule in support of his false proposition; but he soon exposed the forgery, and carried away the palm in the contest. He was remarkably quick at making repartees. One day a poet from Colombo, meeting him for the first time near the church at Mantotte, and wishing to be facetious at his expense, asked him, "_Is the Mantotte buffalo very big?_" ([TAMIL]) and the ready reply was, "_Yes it is little bigger than the Colombo ass_" ([TAMIL]). _Notandam est_, in Tamil both the words "_buffalo_" and "_ass_" are metaphorically applied for a blockhead.
+
+## Machamuni. --- [TAMIL].
+
+Machamuni, who was both a distinguished poet and philosopher, lived at the same time with **Agastiyer**; but nothing further is known of him. None of his compositions had escaped the ravages of time, save the _Vāda Negandu_ ([TAMIL]), a treatise on the nostrums and mysteries of alchemy, which science now justly holds in contempt, which appears to have been once much cultivated among the Tamils and an anecdote is still current of a merchant in the Carnatic, who after having spent all his wealth in trying to make gold, was reduced to beggary, and used to exclaim as he went about begging ([TAMIL]) "_the lead would not be hardened and the cinnabar would not melt_."
+
+## Madura Pālāsiriyanār. --- [TAMIL].
+
+This poet must have been a man of great erudition, as may be inferred from the fact of his having had the title of _Āsiriyan_ or Doctor conferred on him, by his contemporaries. His name occurs among the forty-nine professors of the Madura College but none of his compositions has been preserved, save the following impromptu on the _Kural_.
+
+[TAMIL].
+
+_The planets Venus, Jupiter, Sun and Moon would swiftly dispel the darkness from the face of the earth; but the Kural of the learned Valluver would more swiftly dispel the darkness from the hearts of men._
+
+## Madura Perumaruthanār. --- [TAMIL].
+
+This poet was one of the forty-nine professors of the Madura College. Nothing further is known of him beyond that he uttered the following impromptu on the _Kural_, which contains merely an enumeration of the chapters of that work, with an eulogy on **Tiruvalluver**, for having imparted through them the sublime truths of the _Vedas_, and redeemed the world from its errors:---
+
+[TAMIL].
+
+## Madura Tamil-nāyaganār. --- [TAMIL].
+
+This poet was one of the forty-nine professors of the Madura College. His real name is not known, and the one under which he is noticed is merely titular, referring to his high attainments in Tamil literature. When the _Kural_ was submitted to the judgment of the College Bench, he expressed his approbation of that work in the following impromptu:---
+
+[TAMIL].
+
+_What is the use of works of great length, when the short work of Valluver alone is enough to edify the world? It contains all things and there is nothing which it does not contain._
+
+## Manavāladāser. --- [TAMIL].
+
+Manavāladāser was a _Brāhman_ poet of the _Vaishnava_ sect. His real name is said to have been _Pilleiperumāl Aiyankar_. He wrote a poem under the title of _Tiruvenkata Mālei_ ([TAMIL]), consisting of a centum of verses in praise of the shrine of _Vishnu_ at Tirupati. The first fifty verses of this poem is plain enough to be understood, but the last fifty have been purposely rendered obscure by the use of words which are susceptible of different interpretations.
+
+## Mandalapuruder. --- [TAMIL].
+
+Mandalapuruder was a _Jaina_ ascetic, equally eminent as a poet and lexicographer. He is commonly called _Vira Mandalaver_, but why so is not known. His poetic lexicon, entitled _Sūdāmani Nigandu_ ([TAMIL]), outshines all similar productions in Tamil, and its execution certainly redounds to his credit. This work, according to his own averment, was composed by him at the suggestion of **Gunapattiren**, his spiritual preceptor; and it consists of 989 stanzas, arranged in twelve chapters, and treats of the synonyms of the Hindu Deities, and of the objects of the Animal, Vegetable and Mineral kingdoms as well as of the homonymous and generic terms in nearly the same order with the _Amera Kosha_. He was also the author of an epic poem in honor of _Arha_, the God of the _Jaina_ sect. He appears to have lived in the time of the king **Krishna Rāyer**, who reigned at Vijayanagaram from CE 1508 to CE 1530, and whom he celebrated in the 10th stanza of the ninth chapter of his _Nigandu_.
+
+## Maruttuven Tamotharanar. --- [TAMIL].
+
+This poet was one of the forty-nine professors of the Madura College; but nothing further is known of him than that he was also well skilled in the medical art. His encomiastic impromptu on the _Kural_, which we subjoin, is very curious, in as much as it contains at the same time a recipe for head-ache._
+
+[TAMIL].
+
+_O king, who resembles the huge elephant which thrusts its tusk at the mountain (taking it for an enemy)! All are relieved of their head-ache by smelling the Sindil salt,* and sliced dry-ginger mixed with honey; but Sātanar was relieved of his own head-ache by hearing the three parts of the Kural recited._*
+
+*) A kind of salt produced from the stalk of the _Menispermum cordifolium_.
+
+*) See the Life of Sitaleichatanar [Chithalai Chathanar].
+
+## Māmūlanār. --- [TAMIL].
+
+This poet was one of the professors of the Madura College, and his memory has been preserved only by the following impromptu which he uttered on the _Kural_ and its author:---
+
+[TAMIL].
+
+_Valluver who after studying the four topics (of the moral philosophy, viz: Virtue, Wealth, Pleasure and Eternal happiness) has imparted their substance (through the medium of the Kural), is in reality a god, and if any shall so far forget his divine character, and say that he is a mere mortal, not only will the learned reject his saying but likewise take him for an ignorant man._
+
+## Māngkudi Marudanār. --- [TAMIL].
+
+Nothing more is known of this poet than that he was one of the forty-nine professors of the Madura College. When the _Kural_ passed the College bench he commended it in the following impromptu:---
+
+[TAMIL].
+
+_The beauty of Valluver's Kural is that it not only illustrates the abstruse doctrines of the Vedas; but is itself a Veda, easy to be studied, and having the effect of melting the hearts of the righteous who study it._
+
+## Mānikavāsagar. --- [TAMIL].
+
+Mānikavāsagar was a _Saiva_ devotee and poet of considerable eminence, who flourished during the reign of the king **Arimārta Pāndiyen**, which some place between the fifth and eighth century after the Christian era. He belonged to a _Brāhman_ family of the race of **Amātiyer** at _Vādavūr_, a town on the banks of the _Vaigai_; and when we strip off the marvellous with which the particulars of his life have been blended in the _Tiruvādavūrer Purānam_, it would appear that early in life his superior learning, and qualifications having attracted the notice of the king he was summoned to the Court, and appointed Minister of state, under the title of _Tenneven Piramarāyen_, but sometime afterwards when sent on a commission to buy horses for the king, yielding to a delusion, he expended the money with which he was entrusted in founding and endowing a _Saiva_ temple at Tiruperunturei, and consequently incurred the royal displeasure and was put in irons and cast into prison. At this juncture the _Vaigai_ river happened to overflow its banks, threatening destruction to the capital, and the king considering it as a retributive punishment sent by _Siva_ for ill-treating Mānikavasagar, set him at liberty. He thereupon assumed the ascetic life and after making pilgrimages to other _Saiva_ shrines, established himself at Chillambaram, where he died in the thirty-second year of his age. While he was residing at Chillambaram, he distinguished himself by defeating the _Buddhist_ priests, who went over there from Ceylon, and challenged the _Brāhmans_ to a disputation, as related in the sixth Chapter of the _Tiruvādavūrer Purānam_, of which we have published an English translation in the second number of the Journal of the Ceylon Branch of the Royal Asiatic Society. He is known as the author of a Tamil Grammar, under the title of _Kuvaleiyānandam_ ([TAMIL]), besides two other works respectively called _Sittambala-kovei_ ([TAMIL]), and _Tiruvāsagam_ ([TAMIL]). The _Sittambala-kovei_, consisting of 400 stanzas, is an epithalamium in which the mutual passion and love of _Siva_ and his consort _Pārvati_ are described with glowing imagery, and the Hindus consider it an allegorical poem capable of a spiritual interpretation. The _Tiruvasagam_ contains a series of hymns addressed to _Siva_, which the Hindus esteem highly as being most affecting; hence the proverb, ([TAMIL]). Those who will not be moved by the _Tiruvāsagam_ (the holy word) will not be moved by any other _Vāsagam_ (word). The hymns are certainly very impressive, as may be judged by the specimen which Mr. **Ellis** has quoted in his Commentary on the _Kural_.
+
+## Mārgasahāya. --- [TAMIL].
+
+Mārgasahāya Dever is said to have been born a poet, and hence he had the title of _Vara Kavi_; but we are ignorant both of the place of his birth, and the time of his existence. Of his compositions we have met with only a poem of the class called _Pillei tamil_ ([TAMIL]), describing the gestures and amusements of the childhood of _Skanda_ in the character of _Muruga_, as worshipped at Tiruvirinchei, and which has acquired some repute amongst the _Saivas_.
+
+## Meikanda Dever. --- [TAMIL].
+
+Meikanda Dever, whose proper name was _Svetavanaperumal_, claimed his descent from a _Velāla_ family at _Vennei-nellūr_, a town situated on the river _Pennei_, in the Carnatic. He is reputed to have been a pupil of **Paranjoti Tambiran**, who flourished during the eleventh century of the Christian era. He was an able poet, well studied in the Hindu metaphysics and theology. Of his various works the most admired is the _Sīvagnana Potham_ ([TAMIL]), a metaphysical and theological treatise, which has recently been translated into English by the Rev. **H. R. Hoisington**, and published in the fourth volume of the Journal of the American Oriental Society, "as worthy of notice and of preservation" covering as it does nearly the whole field of Hindu philosophy.
+
+## Mosikiranar. --- [TAMIL].
+
+This poet was one of the forty-nine professors of the Madura College; but there is nothing remaining of his compositions save the following impromptu on the _Kural_ merely describing the divisions of that work.
+
+[TAMIL].
+
+## Muttusāmi Pillei. --- [TAMIL].
+
+Muttusāmi Pillei was born of Catholic parents who belonged to a respectable class of _Velālas_ at Pondicherry. Having early distinguished himself as a Tamil poet, and at the same time made himself familiar with the Sanskrit, Telugu, Latin and English languages, he obtained the offices of Manager of the College of Fort St. George and Moonshee to the Tamil Translator to Government at Madras; both which he held until his death. In 1816 at the desire of Mr. **Ellis**, the Senior member of the College Board, he made a journey to the south for the purpose of procuring useful Tamil works for the College; and he availed himself of the opportunity to visit the different places in the south which had been the scene of the labours of Father **Beschi** and collect materials for a brief history of the life of that celebrated Missionary, which he published both in Tamil and in English. Some time afterwards a _Chanda_ poet, named **Ponnambalam**, who lived at Pursewākam, having published a blasphemous lampoon on Christianity, which made a great sensation amongst both Catholics and Protestants, Muttusami Pillei undertook to refute it; and accordingly composed a very able work, under the title of _Dhikkaram_ ([TAMIL]), partly in poetry, and partly in prose; and when he had it recited before the assembly of learned men at Madras, it was not only received with great applause; but also obtained for him the present of a breast-plate set with precious stones, and a suit of Surat shawls; and the Pundits of the College each addressed to him a stanza in Sanskrit as well as in Tamil, commending his production for the sublimity of its language and sense. Besides the two works noticed above, he wrote a commentary on Mr. **Ellis'** stanzas, called _Taravu Kochchagakalippa_ ([TAMIL]); this he did in order to refute an idea which was prevalent amongst the Hindus that Mr. **Ellis** having ended each of his stanzas with the words _Namasivāya_, he had therefore become a convert to their religion: by proving that these words were never intended to represent the pentagrammaton, but only to convey the meaning "reverence to the only God." He died on the 23d of September 1840.
 
 Mut'TU T.t'NDAVElt --- Qp^^^^^smu.(Sijt. 
-. . Muttd Tandaver was a native of Shiyalhj, near Chillrin-lbaram. 
+
+Muttd Tandaver was a native of Shiyalhj, near Chillrin-lbaram. 
 tlis parents Were bo'Ji nlusicians of the Saira temple at Shiyally ; 
 but a disease with which he w^as afllictcd in his youth disabled him 
 from following their profession. He however, it is said, became a 
