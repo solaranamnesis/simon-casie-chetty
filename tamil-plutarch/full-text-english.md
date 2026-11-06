@@ -929,209 +929,84 @@ Nachumanār is known as one of the forty-nine professors of the Madura College; 
 
 _When and by whom was a poem ever composed so entirely faultless both in versification and sense as the Kural which he (Tiruvalluver) has this day recited?_
 
-Nalku'r-VE'LVIYa'R --- fSe\)s^nQisu(3(T'sSujnn. 
+## Nalkūr-velviyār. --- [TAMIL].
 
-This poet claims notice as one of the forty-nine professors of the 
-Madura College, and it would appear from his surname, which is a 
-contracted form of the epithet Velviydler, usually applied to the 
-Brdhmans, that he must have belonged to their class. His composi- 
-tions are not now forthcoming, with the exception of tha following 
-impromptu in praise of Tiruvalluver. 
+This poet claims notice as one of the forty-nine professors of the Madura College, and it would appear from his surname, which is a contracted form of the epithet _Velviyāler_, usually applied to the _Brāhmans_, that he must have belonged to their class. His compositions are not now forthcoming, with the exception of the following impromptu in praise of **Tiruvalluver**.
 
 [TAMIL].
 
-They say, that he (Siva), who reclines on the shoulders of Upake- 
-si (Parvati), is the patron of North Madura loliither he loent (loith 
-Iddeika'dar^ ; hut he (Tiruvalluver), the poet tcho pours out instruc- 
-tion in honeyed u'ords with a parental solicitude, is the patron of 
-South Madura ahounding with zcafer. 
+_They say, that he (Siva), who reclines on the shoulders of Upakesi (Pārvati), is the patron of North Madura whither he went (with Iddeikādar); but he (Tiruvalluver), the poet who pours out instruction in honeyed words with a parental solicitude, is the patron of South Madura abounding with water._
 
-Nalla'pillei --- iBei^eoiTiSl&j'^&T. 
+## Nallāpillei. --- [TAMIL].
 
-Nallapillci was born of a Karimiker famWy ai Muthalampedu, in' the 
-Carnatic. Such was the precocity of his talents, that before he had 
-passed his sixteenth vear he mastered the Tamil, Sanskrit and Tel- 
+Nallāpillei was born of a _Karuniker_ family at _Muthalampedu_, in the Carnatic. Such was the precocity of his talents, that before he had passed his sixteenth year he mastered the Tamil, Sanskrit and Telugu languages and their literature, and obtained a distinguished rank among the poets of his time. He first composed an epic poem, entitled _Deivayānei Purānam_ ([TAMIL]), in 3000 stanzas, and then set about enlarging **Villiputturer's** imitation of the _Mahabhārat_ by adding to its 3372 stanzas, 14728 more. The latter work occupied him from CE 1732 to 1744, and he survived its completion but one year.
 
+## Nallāthanār. --- [TAMIL].
 
-Otf THF. TaMII, PLUTARCH. 
+Nallāthanār was a poet, who flourished during the Augustan age of Tamil literature. Though we have no records of the particulars of his life; yet a centum of epigrams, which he has left behind him, prove that his poetical talents were far above mediocrity. His epigrams are collectively called _Trikadugam_ ([TAMIL]), and are said to have had the unanimous approval of the professors of the Madura College. Each epigram contains a comparison of three things and their result: as,
 
-ugu langunges find their literature, and obtained a distinguished rtiiik 
-among the poets of his time. He fust composed an epic poem, en- 
-titled Dcivaydnci Purdnam (Q^iLsuiLne:^!SJLinnessrit), in 3000 stanzas, 
-and then set about enlarging Villipi'tturer's imitation of the Ma- 
-hahhdrat by adding to its 3372 stanzas, 14728 more. The latter 
-work occupied him from A. D. 1732 to 1744, and he survived its 
-completion but one year. 
+[TAMIL].
 
-NaLL.\'THANA'R 5a)6V'/7^(CT)/f. 
+_He who runs against the killing elephant;_  
+_He who stands outside his neighbour's door in the night time;_  
+_He who causes the snake to dance;_  
+_These three do so at their peril._
 
-Naliathanar was a poet, who flourished during the Augustan ago 
-of Tamil literature. Though we have no records of the particulars 
-of his life ; yet a centum of epigrams, which he has left behind him, 
-prove that his poetical talents were far above mediocrity. His epi- 
-grams are collectively called Tril-adngam (0'fiaQ&ii], and are said 
-to have had the unanimous approval of the profes.sors of the Madura 
-College. Each epigram contains a comparison of three things and their 
-result : a.-^, 
+## Nambiyāndār Nambi. --- [TAMIL].
 
-Qsn&iinn'hssisQsiTQtEJ (^smiSaQa^Qm'S\}eSp 
+Nambiyāndār Nambi was a poet, who flourished amongst the _Brāhmans_ of the _Adi Saiva_ sect at _Nāreiyur_, in the Carnatic, during the reign of the king **Rājarāja-abhaya Chola**, under whose patronage he composed a poem, entitled _Kalitturei Antādi_ ([TAMIL]), treating of the legends of the sixty-three special votaries of _Siva_; and which on being recited before the king and the learned assembly of _Brāhmans_ was very much applauded as a masterly performance. He was an enthusiastic admirer of **Sampanter**, and wrote two poems, one entitled _Mummanikkovei_ ([TAMIL]), and the other _Sanbeiviruttam_ ([TAMIL]), in praise of that ascetic.
 
-He who 7'uns against the killing elephant ; 
+## Namāzhvār. --- [TAMIL].
 
-He who stands outside his neighbour''s door in the nighttime ;- 
+Nam Āzhvār deserves notice as a poet as well as one of the twelve_Āzhvars_ or special votaries of _Vishnu_. He was born of a _Velāla_ family at _Tirukurugai_, on the _Tāmbraparni_ river, and his genius having displayed itself while yet a child to the astonishment of his parents, they not being able to account for it otherwise persuaded themselves into the belief that he was an incarnation of **Sena Mudellar**, one of their saints. He was the author of four different poems in honor of _Vishnu_ containing in all 1296 stanzas, and they now form a part of the _Nālāyiraprabhandam_ ([TAMIL]), which the _Vaishnavas_ regard next to the _Vedas_.
 
-He icho causes the snake to dance ; 
+## Nappālattanār. --- [TAMIL].
 
-These three do so at their peril. 
+Nappālattanār was one of the forty-nine professors of the Madura College, and we know nothing more about him. His impromptu on the _Kural_ is as follows:---
 
-N^aMBIYa'nda'r Nambi --- SLhiSldJnessri---nniBLLiSI. 
+[TAMIL].
 
-Nambiyandar Nambi was a poet, who flourished amongst the 
-Brdhmans of the Adi Saivasect at Nnreiyur/m the Caniatic, during 
-tlie reign of the king Ra'jara ja-abhaya Chola, under whose 
-patronage he composed a poem, entitled Kaliiturei Anlddi {aeS< 
-^^6S)n)iui'f,^rj0), treating of the legends of the si.xty-threc special 
-votaries of Siim ; and which on being recited before the king and the 
-learned assembly of Brdhmans was very much applauded as a mas- 
-terly performance. He was an enthusiastic admirer of Sampanter, 
-aiid wrote two pocnis, one entitled Mummanikkovei {dptbwesd^sQan 
-eG)Su), and the other Saiiheiviruttam {s-esc\cS)u6&iiri0^th), in praise of 
-that ascetic. 
+_Valluver has lighted a lamp for dispelling the darkness from the hearts of those who live in the world; having virtue for its bowl, wealth for its wick, pleasure for its oil, the fire of expression for its flame, and the short stanza for its stand._
 
-NaMAZIIVa'r IBUDUtTI^SuniT. 
+## Nariveruttaleiyār. --- [TAMIL].
 
-Nam A'zhvar deserves notice as a poet as well as oncof the twelve- 
-A'zhvars or special votaries of Vishnu. He was born of a Vetala 
-family at Tirukurugai, on the Tdmhraparui river, and his genius 
-having displayed itself while yet a child to the astonishment of his 
-parents, they not being able to account for it otherwise persuaded 
+Though this poet occupied an honorable place among the forty-nine professors of the Madura College; yet we have neither the particulars of his life, nor are we aware of the existence of any of his compositions. He is, however, reported to have been the author of an impromptu on the _Kural_, which we give below.
 
+[TAMIL].
 
-THE TAMIL rH'T.VRCll. '^^ 
+_Virtue, wealth, pleasure, and eternal bliss; these four were obscurely revealed to mankind in the ancient Veda; but Valluver has now rendered them plain in his Kural, that they may be fully known by the world._
 
-tbcmsclvcs into the bcliut'tlmt he wus an iiicarnatiuu of Sena iMuuel- 
-lAK, one of Ibeir saints. He was the author of four ditlerent poems 
-in honor of Vishnu containing in all 1296 stanzas, and they now 
-form a part of the Nalayiraprahhandam ((EfT6OfTuilaLSi0U(B^tJ)), which 
-the Vaishnavas regard next to the Vedas. 
+## Narkīrer. --- [TAMIL].
 
-Nappa'lattana'u --- iBLjun&)^^(GW)n. 
+Narkīrer was a poet, who had the enviable distinction of occupying a seat in the Madura College as its head in the ninth century of the Christian era. The incidents of his life as narrated in the _Tiruvilleiyādel Puranam_, are involved in fiction. He, it is stated, having cavilled at a song, which _Siva_ himself had composed for a _Brahman_, named **Tarumi**, _Siva_ cast his fiery eye on him in order to reduce him to ashes, and he only escaped from its effects by plunging himself in the sacred pool of _Pottamerei_ and chanting the praises of _Siva_. He appears to have belonged to the caste of chank-cutters; for when _Siva_, according to the fable, taunted him with his low birth by observing: "Is he who cuts the chank able to scan my verse?" he is represented to have retorted upon the god with the following impromptu:---
 
-Nappalaltanar was one of tlie forty-nine professors of the Madura 
-College, and we know nothing more about him. His impromptu on 
-ihe Ku?'al is as follows : --- 
+[TAMIL].
 
-Valluver has lighted a lamp for dispelling the darkness from the 
-hearts of those rvho live in the loorld ; having virtue for its boiol, 
-wealth for its ivick, pleasure for its oil^ the f re of expression for its 
-flame, and the short stanza for its stand. 
+_Our caste is certainly that of chank-cutters, but what is the caste of Sankara (Siva)? It would be a disgrace to mention it: O Hara (Siva)! We live indeed by cutting chanks; but not by begging alms like thee._
 
-NaRiveruttaleiya'b --- is[flQ^0^^'Zc\Jujnn. 
+He was the author of an epic, entitled _Sriharni-puranam_ ([TAMIL]), which he composed at the request of **Kulachchireināyanār**, the prime minister of the king **Kūna Pandiyen**, and likewise of a hymn, entitled _Tirumurugāttuppadei_ ([TAMIL]), in honor of _Skanda_.
 
-Though this poet occupied an honorable place among the forty- 
-nine professors of the Madura College; yet we have neither the part- 
-iculars of his life, nor are we aware of the existence of any of his 
-compositions. He is, however, reported to have been the author of 
-an impromptu on the Kural, which we give below. 
+The subjoined is a stanza which Narkīrer uttered in praise of the _Kural_ after it was reviewed and sanctioned by the College bench:---
 
+[TAMIL].
 
-^ SBT u Lo Q (J ff (5 (off- ff) ti) ffl?Q i_ 6org2/ ii? ffi /F /7 ssr @ 
+_What recompense can the world make to the poet (Tiruvalluver), who fully understanding the four subjects (virtue, wealth, pleasure and eternal happiness), has explained them in sweet Tamil distichs, that the ignorant may be enlightened, or to the cloud that showers down fertilizing rain?_
 
-Vi)-tue^ wealth, pleasure, and eternal bliss ; these four loere obscure- 
-ly revealed to mankind in the ancient Veda; but Valluver has now 
-rendered them plain in his Rural, that they may be fully known by 
-ihe world. 
+## Nattattanār. --- [TAMIL].
 
-NaRKI'UBR IBdSjIT. 
+This poet was one of the forty-nine professors of the Madura College, and he is known only by the following impromptu which he uttered in praise of the _Kural_.
 
-Narkirer was a poet, who had the enviable distinction of occupy- 
-ing a seal in the Madura College as its head in the ninth century of 
-the Christian era. The incidents of his life as narrated in the Tiru- 
-villeiyndel Puranam, are involved in fiction. He, it is stated, having 
-cavilled at a song, which Siva himself jiad composed for a Brahman, 
-named Tarumi, Siva cast his fiery eye on him in order to reduce 
-him to ashes, and he only escaped from its cfTecls by plunging him- 
+[TAMIL].
 
+_After studying the one thousand three hundred and thirty distichs of the Kural, including the introduction, there is no other work to be studied; for they are enough to make one a perfect poet in Tamil from whom others may seek instruction._
 
-60 THE TAMIL Pl.LTARCH. 
+## Nattattanār. --- [TAMIL].
 
-self ill llie sacred pool o( Pottnmerei and chanting the praises of Si- 
-va, lie appears to have belonged to the caste of chank-cutters ; for 
-when Siva, according to the fable, taunted him with his low birth by 
-observing. "Is he who cuts the chank able to scan my verse ?" he 
-is represented to have retorted upon the god with the following im- 
-promptu.--- 
+Nattattanār was one of the twelve disciples of **Agastiyer**; but no account of his life has reached the present times. He wrote a treatise on Prosody and Versification, called after his own name _Nattattam_ ([TAMIL]); but it is now scarcely to be met with.
 
-.:f ikj s ^' u uQfl ra 3: or (^GO 1^ g iE]/i!j,^iriQ3^(^eOLh 
+## Nayanappa Mudeliar. --- [TAMIL].
 
-Our caste is certainly that of chunk- cutters , but what is the caste 
-of Sankara {Siva) ? It would he a disgrace to mention it : O Hara 
-fSiva.) ! We live indeed hy cutting chunks ; hut not hy begging alms 
-like thee. , • - 
-
-
-He was the author of an epic, entitled Sriharni-jmranam 
-GGtf'uqansmih)., wliich he composed at the request of Kulaciichirei- 
-na'yana'r, the prime minister of the king Ku'na Pandiyen, and like- 
-wise of a hymn, entitled Tirumurug'attiqrpadei (0t!^(ip^sn^^uuetsii-), 
-in honor of Skanda. 
-
-The subjoined is a stanza whicli Narkirer uttered in praise of the 
-Kural after it was reviewed and sanctioned by the College bench.--- 
-
-6ij IT i£l uj&)Q a an /e^/bjiii L£>p£)j • 
-
-What recompense can the world make to the poet (Tiruvalluver), 
-who fully understanding the four subjects (virtue, wealth, pleasure 
-and eternal happiness), has explained them in sweet Tamil distichs, 
-that the ignorant may be enlightened, or to the cloud that shotcers 
-down fertilizing rain ? 
-
-Nattattana K --- r5^^^^ies)iT. 
-
-This poet was one of the forty-nine professors of the Madura Col- 
-lego, and he is known only by the following impromptu which he ut- 
-tered in praise of the Kural. 
-
-
-TAMII, I'LUTAnCtl. 
-
-
-01 
-
-
-Alter studi/iiig llie one llioiisaiid three Inindrcd and l/iirl;/ distichs 
-of lite Kiiral, including the introduction, there is no other work ^ to lie 
-studied ; for they are enough to make one a pcrject poet in Tamil 
-from u-lw'm others may seek instruelion. 
-
-NaTT ATTA N a' R !fpp^fl ^ IT. 
-
-NalUUtanar was one of the twelve disciples of Agastiyer ; hut no 
-a<xount of his life has reached the present times. He wrote a trea- 
-tise on I'rosody and Versification, called after his own name Nat- 
-tattam {[hfbroprpii) ; hut it is now scarcely to be met with. 
-
-Nayanappa Mudeliau --- ituu6muu(Lp^f^iLinn. 
-Nayanappji Mudeliar was born of a Fc7o/o fixmily at Pondichcrry 
-in A. b. 1779, and he acquired the reputation of a poet at an 
-early period of his life. In his eighteenth year he left Pond- 
-ichcrry, and went to Madras, where he found employment as a 
-Tamif Pundit in the College of Fort St. George. While he w-as 
-thus employed he devoted his leisure hours in revising and editing 
-the poems respectiv:ely called Sittamhalakovei (<^^^truffO ifJ^newei/}, 
-Tanjcivanan korci (^^jgjD^^eurrororisrGiVrfcisu), and Reghundtha 
-Setupati Oruturci-kovei {@o^!hn^Qs=S'U0 q>(i^^3!S>rDi<3s,fTu-si6u), as 
-well as the Ndladiydr {thnet'i^ium), the ninth and tenth parts of the 
-Divi'kara Nigandu {^Qjn&uifi^a^emQ), and the eleventh part of the 
-Sudamani Nigandli (gi_fT.cP!ScPr&«c-i;wO;), with their explanations in 
-prose, which were written by himself, ftnd which exhibit much crit- 
-ical acumen. When a Committee was formed at Madj-as amongst 
-the principal Tamif Gentlemen in the place for the purpose of pub- 
-lishing an edition of Villiputturer's Imitation of the Mahdbharat, 
-the Editorship was entrusted to Kaynappa Mudeliar ; but whilst he 
-was engaged in collating the different manuscripts of the work he 
-died suddenly on the 25th of January 1845. 
+Nayanappa Mudeliar was born of a _Velāla_ family at Pondicherry in CE 1779, and he acquired the reputation of a poet at an early period of his life. In his eighteenth year he left Pondicherry, and went to Madras, where he found employment as a Tamil Pundit in the College of Fort St. George. While he was thus employed he devoted his leisure hours in revising and editing the poems respectively called _Sittambalakovei_ ([TAMIL]), _Tanjeīvānan-kovei_ ([TAMIL]), and _Reghunātha Setupati Oruturei-kovei_ ([TAMIL]), as well as the _Nāladiyār_ ([TAMIL]), the ninth and tenth parts of the _Divākara Nigandu_ ([TAMIL]), and the eleventh part of the _Sudāmani Nigandu_ ([TAMIL]), with their explanations in prose, which were written by himself, and which exhibit much critical acumen. When a Committee was formed at Madras amongst the principal Tamil Gentlemen in the place for the purpose of publishing an edition of **Villiputturer's** Imitation of the _Mahābharat_, the Editorship was entrusted to Nayanappa Mudeliar; but whilst he was engaged in collating the different manuscripts of the work he died suddenly on the 25th of January 1845.
 
 Na'gande'vana'k --- !5nfEmQf)Sij(^n. 
 
