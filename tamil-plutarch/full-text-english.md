@@ -911,58 +911,23 @@ This poet was one of the forty-nine professors of the Madura College; but there 
 
 Muttusāmi Pillei was born of Catholic parents who belonged to a respectable class of _Velālas_ at Pondicherry. Having early distinguished himself as a Tamil poet, and at the same time made himself familiar with the Sanskrit, Telugu, Latin and English languages, he obtained the offices of Manager of the College of Fort St. George and Moonshee to the Tamil Translator to Government at Madras; both which he held until his death. In 1816 at the desire of Mr. **Ellis**, the Senior member of the College Board, he made a journey to the south for the purpose of procuring useful Tamil works for the College; and he availed himself of the opportunity to visit the different places in the south which had been the scene of the labours of Father **Beschi** and collect materials for a brief history of the life of that celebrated Missionary, which he published both in Tamil and in English. Some time afterwards a _Chanda_ poet, named **Ponnambalam**, who lived at Pursewākam, having published a blasphemous lampoon on Christianity, which made a great sensation amongst both Catholics and Protestants, Muttusami Pillei undertook to refute it; and accordingly composed a very able work, under the title of _Dhikkaram_ ([TAMIL]), partly in poetry, and partly in prose; and when he had it recited before the assembly of learned men at Madras, it was not only received with great applause; but also obtained for him the present of a breast-plate set with precious stones, and a suit of Surat shawls; and the Pundits of the College each addressed to him a stanza in Sanskrit as well as in Tamil, commending his production for the sublimity of its language and sense. Besides the two works noticed above, he wrote a commentary on Mr. **Ellis'** stanzas, called _Taravu Kochchagakalippa_ ([TAMIL]); this he did in order to refute an idea which was prevalent amongst the Hindus that Mr. **Ellis** having ended each of his stanzas with the words _Namasivāya_, he had therefore become a convert to their religion: by proving that these words were never intended to represent the pentagrammaton, but only to convey the meaning "reverence to the only God." He died on the 23d of September 1840.
 
-Mut'TU T.t'NDAVElt --- Qp^^^^^smu.(Sijt. 
+## Muttu Tāndaver. --- [TAMIL].
 
-Muttd Tandaver was a native of Shiyalhj, near Chillrin-lbaram. 
-tlis parents Were bo'Ji nlusicians of the Saira temple at Shiyally ; 
-but a disease with which he w^as afllictcd in his youth disabled him 
-from following their profession. He however, it is said, became a 
-fioet by inspiration, and was all his life emploj^cd in chanting the 
-praises of Sira in the teniplc at Chillambaram, receiving daily five 
-gold fanams for his services. He used to chant a song every day, 
-beginning it with the wdrd which first caught his cars as he entered 
-the temple. It appears that on a certain day as he was chanting a 
-^dng in the temple, he died suddenly. The Saivas however would have 
-it that \«'hilst h^ chanted the song beginning with the chorus (ictrsst^s 
-s>eunaran Qi^G.pmi^^^iJeijioeondiunajirS'Q'Vefs') "I know not whether 
-ihoii art able to give me the same bliss which thou didst give to Ma- 
-Nikava'sagar or 7jo," he was absorbed in the glory which appeared 
-in the sanctuary. 
+Muttu Tāndaver was a native of _Shiyally_, near Chillambaram. His parents were both musicians of the _Saiva_ temple at _Shiyally_; but a disease with which he was afflicted in his youth disabled him from following their profession. He however, it is said, became a poet by inspiration, and was all his life employed in chanting the praises of _Siva_ in the temple at Chillambaram, receiving daily five gold fanams for his services. He used to chant a song every day, beginning it with the word which first caught his ears as he entered the temple. It appears that on a certain day as he was chanting a song in the temple, he died suddenly. The _Saivas_ however would have it that whilst he chanted the song beginning with the chorus ([TAMIL]) "_I know not whether thou art able to give me the same bliss which thou didst give to Manikavāsagar or no_," he was absorbed in the glory which appeared in the sanctuary.
 
-All liis chants have been carefully preserved and they form tlie 
-best recitative poem in the Tamil language, but some of them abound 
-iti licentious imairerv. 
+All his chants have been carefully preserved and they form the best recitative poem in the Tamil language, but some of them abound in licentious imagery.
 
+## Nachinārkiniyar. --- [TAMIL].
 
-illE lAMIL i-LLTAHCH. St 
+Of the life of this poet we have no account; but he appears to have been a man of considerable attainments. His commentaries on the _Tolkāppiyam_ and _Tirumurugāttupadei_ are much esteemed, and they are certainly masterly productions of a logical mind. The exact period of his existence is very uncertain; but we think we shall not be far from the point in placing it before the tenth century of the Christian era.
 
-Nachinakkinivar --- •'B^&^ndQesfl.ijniT. 
+## Nachumanār. --- [TAMIL].
 
-. Of the life of this poet wc have no account ; but he appears to 
-liave been a man of considerable attainments. His commentaries on 
-the Tolkuppiyain and TirumurugdUupadci are much esteemed, and 
-they are oertaiidy masterly productions of a logical rnind. The ex- 
-act period of his existence is very uncertain ; but we think we shall 
-not be far froni the point in placing it before the tenth century of the 
-Christian era. 
+Nachumanār is known as one of the forty-nine professors of the Madura College; but no particulars of his history are forthcoming. The subjoined impromptu on the merits of the _Kural_ is ascribed to him:---
 
+[TAMIL].
 
-N 
-
-
-ACHUMANA'R fb^^^LO^n. 
-
-
-■ : Nachuman.ar is known as one. of the forty-nine professors of the 
-Madura College ; but no particulars of his history are forthcoming. 
-The subjoined impromptu on the mrrit-; of the Kural is ascribed to 
-him : --- 
-
-<mj OP d Q 6\) su 6sr u u essfl <Sh csar soBT --- lSI Qp d 8 ^ rSI 
-
-When and by whom loas a poem ei'er composed so. entirely faidtlesi 
-both in versification and sense as the Kural ichich he (Tiruvalluvek) 
-has this day recited 7 
+_When and by whom was a poem ever composed so entirely faultless both in versification and sense as the Kural which he (Tiruvalluver) has this day recited?_
 
 Nalku'r-VE'LVIYa'R --- fSe\)s^nQisu(3(T'sSujnn. 
 
@@ -973,8 +938,7 @@ Brdhmans, that he must have belonged to their class. His composi-
 tions are not now forthcoming, with the exception of tha following 
 impromptu in praise of Tiruvalluver. 
 
-^■^fi[!LDnLDS!<ss)ndsdQ3'sbru --- eSuuds 
-LDrT^n^uiEjQLD^'aSeOLjeodQs^iimnu 
+[TAMIL].
 
 They say, that he (Siva), who reclines on the shoulders of Upake- 
 si (Parvati), is the patron of North Madura loliither he loent (loith 
