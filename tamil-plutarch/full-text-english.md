@@ -1139,9 +1139,9 @@ The author of the _Kavisāgaram_ carried his admiration of the _Kural_ to the hi
 
 _The best among flowers is the lotus; the best among metals is gold; the best among kine is Kamadhenu (the celestial cow); the best among elephants is Irāvata (the white elephant of Indra); the best among gods is Vishnu; and the best among books is Valluver's Kural._
 
-## Philip De Melho --- [TAMIL].
+## Philip De Melho. --- [TAMIL].
 
-The name of Philip De Melho, the first native who was admitted to the office of Minister of the Dutch Reformed Church in Ceylon, and who occupied a prominent place in the literary world, stands foremost among the divines and linguists, whether of European or Ceylonese birth, who flourished in the island during the eighteenth century. As an oriental poet also, he ranks high, and his qualifications as a Biblical translator were unsurpassed. Such was in fact his great learning that Governor **Falk** [Falck], a wise politician and an elegant scholar, complimented him with the title of "Rabbi De Melho."
+The name of Philip [Philippus] De Melho, the first native who was admitted to the office of Minister of the Dutch Reformed Church in Ceylon, and who occupied a prominent place in the literary world, stands foremost among the divines and linguists, whether of European or Ceylonese birth, who flourished in the island during the eighteenth century. As an oriental poet also, he ranks high, and his qualifications as a Biblical translator were unsurpassed. Such was in fact his great learning that Governor **Falk** [Falck], a wise politician and an elegant scholar, complimented him with the title of "Rabbi De Melho."
 
 De Melho was born at Colombo, on the 23d of April 1723. He belonged to a Tamil family distinguished for its respectability and opulence, and was the second son of Mr. **Simon De Melho**, who occupied the important post of Chief Tamil Mudeliar of the Gate,* and as such, was attached to the personal staff of no fewer than ten Dutch Governors, including the tyrant **Peter Vuyst** and the good Baron **Von Imhoff**. De Melho studied at an early age at the Colombo Seminary, which the Dutch Government founded in 1705, for the purpose of qualifying native youths for ecclesiastical as well as secular professions. Here he was taught Hebrew, Greek, Latin, Dutch, Portuguese and Tamil, as well as Theology. His accademical career was a brilliant one and before his seventeenth year he had become the senior student. At the age of 20 he finished the prescribed course of study and was the most qualified student to be sent to the University of Leyden. The Government desired him to proceed to Holland, which he refused to do. He was therefore on the suggestion of the Rev. J. P. Witzelius, Rector of the Seminary, appointed as a Native Proponent at Colombo, on the 16th April 1744, after he had passed with great credit a public examination in Hebrew and Greek as also in Theology by the learned members of the Consistory. On the 2d of August 1744, De Melho married Miss Magdalene Jurgen Ondaatje, daughter of Mr. **Philip Jurgen Ondaatje**, Translator to the "_Hoff van Justitie_" (the highest tribunal in the island) and sister of the Rev. **W. Jurgen Ondaatje**, Clergyman of Colombo and Rector of the Seminary. By this union he had a large number of daughters and only two sons who both died at an early age whilst successfully pursuing their studies, one at Amsterdam, and the other in the island.
 
@@ -1151,198 +1151,29 @@ Though De Melho, as Native Proponent, was to confine his ministrations to Native
 
 De Melho having served with great efficieney as a Native Proponent and Assistant Dutch Preacher for a period of five years, applied in 1749 for ordination in Ceylon, with a view to enlarge the sphere of his usefulness. Both Governor **Gollenesse** and the Consistory marked their sense of the appreciation of his eminent abilities and valuable services by willingly and earnestly recommending him to the Supreme Government of Netherland's India, who thereupon permitted his ordination in the Island itself, after previous examination by the Consistory. On the 21st January 1750, De Melho, having been examined by the members of the Consistory assembled in the Fort Church at Colombo on various important theological points, and found to be in every respect a fit candidate for the ministerial office, was with the sanction of the Governor, ordained according to the rules of the Church of Holland, and appointed Minister to the Western District* with the usual pay and emoluments assigned to a clergyman on the establishment of the East India Company. This is the solitary instance of an individual, being ordained in the island, under the Dutch Government without previous University education. As a reward for his good services in connexion with the Normal School, he was in March following, promoted to be Rector of that institution.
 
-In the same year in which De Melho was ordained, he completed 
-the revision of the Tamil version of the New Testament up to the 
-Epistle to the Ephesians. This was a work whi^h devolved on him- 
-exclusively from the want of zeal and co-operation on the part of his 
-colleagues. In the preparation of the version, he was guided by the 
-original Greek and aided by various standard versions of the New 
-Testament. He also consulted many approved theological and phi- 
-lological works, with all which he appears to have been familiar at 
-an early age. In consequence, however, of a discussion which took- 
-place respecting the version, the Government deferred its publica- 
-tion and referred the matter for the decision of the Supreme authori- 
-ties at Batavia. They felt it their duty to thank the reviser for the 
-zeal and attention he had hitherlo devoted to this highly important 
-and difficult undertaking, and to direct the examination of the version- 
-by a Committee of Clergymen and Laymen skilled in the languages ? 
-and on the receipt of their report, the Ceylon Government ordered it tC 
-be printed and circulated amongst the natives. But although the re-" 
-vision of the Tamil version of the New Testament was a work of 
+*) Under the Dutch Government, Ceylon, was for ecclesiastical and educational purposes, divided into three Districts, viz. the Northern, Western and Southern districts, the principal stations of which were respectively Jaffna, Colombo and Galle.
 
+In the same year in which De Melho was ordained, he completed the revision of the Tamil version of the New Testament up to the Epistle to the Ephesians. This was a work which devolved on him exclusively from the want of zeal and co-operation on the part of his colleagues. In the preparation of the version, he was guided by the original Greek and aided by various standard versions of the New Testament. He also consulted many approved theological and philological works, with all which he appears to have been familiar at an early age. In consequence, however, of a discussion which took place respecting the version, the Government deferred its publication and referred the matter for the decision of the Supreme authorities at Batavia. They felt it their duty to thank the reviser for the zeal and attention he had hitherto devoted to this highly important and difficult undertaking, and to direct the examination of the version by a Committee of Clergymen and Laymen skilled in the languages, and on the receipt of their report, the Ceylon Government ordered it to be printed and circulated amongst the natives. But although the revision of the Tamil version of the New Testament was a work of itself more than sufficient for one individual, how gifted soever he may be, yet it was not the only work in which he was engaged at the time. He also wrote an elaborate work in Dutch under the title of "The Triumph of Truth, or a Refutation of the Principal Dogmas of the Church of Rome," with a view of arresting, as he thought it would, the rapid progress which Catholicity was making in Ceylon about the time through the persevering labours of the Goanese Fathers.* This work being approved by the Consistory was afterwards rendered by himself into Tamil, under the title of _Sattiyattin-jeyam_ ([TAMIL]), and published at the expense of Government in 1753, with a dedication in Latin, Dutch and Tamil to the Governor General **Vander Paar** and the members of the Council of Netherland's India, couched in the most elegant language. At the conclusion of the preface to this work, De Melho announced that he was preparing for publication in Tamil a translation of the Liturgy of the Dutch Reformed Church and that of a selection of the Psalms of David, the Decalogue, the Lord's Prayer, the Creed and the Songs of the Blessed Virgin, Zacharias and Simeon in metre besides a work to be called a Refutation of Hinduism. The two former were published respectively in 1755 and 1760; the latter appears to have remained in manuscript and is not now forthcoming.
 
-* Under the Dutch Government, Ceylon, was for ecclesiastical and educa- 
-tional purposes, divided into tJiree Districts, viz. the Northern, Western and* 
-Southern districts, the principal stations of which were rcBpectively Jaffna, Col- 
-ombo and CJalle. 
+*) See Governor Imhoff's Report, in Lee's Rebeyro, p. 176.
 
-itself more tlian sufficient,for one indiviJual, how gifted soever he 
-may be, yet it was not the only work in which he was engaged at the 
-time. He also wrote an elaborate work in Dutch under the title of 
-•■' The Triumph of Truth, or a Refutation of the Principal Dogmas of 
-the Clmrch of Rome," with a view of arresting, as he thought it would, 
-the rapid progress which Catholicity was making in Ceylon about the 
-lime through the persevering labours of the Goanese Fathers*. This 
-work being appro^'ed by the Consistory was afterwards rendered by 
-himself into Tanril, under the title of SaUiyattin-jeyam {s=i^aj^0^ 
-Os'tuii), and pul)l-ish6d at the expense of Government in 1753, with a 
-dedication in Latin, Dutch and Tamil to the Governor General Vander 
-PAARand the members of the Council of Netherland's India, couched 
-in the most elegant language. At the conclusion of the preface to this 
-work, De iMelho a'nnovmced that he was preparing for publication in Ta- 
-mil a translation of the Liturgy of the Dutch Reformed Church and 
-that of a selection of the Psalms of Da->rd, the Decalogue, the Lord's 
-Prayer, the Creed and the Songs of the Blessed Virgin, Zacharias and 
-Simeon in metre besides a work to be called a Refutation of Hinduism. 
-The two former were published respectively in 1755 and 1760; the 
-latter appears to have remained in manuscript and is not now forth- 
-coming.' 
+In November 1753, De Melho was appointed Minister to the Northern District in the room of the Rev. **G. Potken**, who was his examiner in the Sacred languages. He did not, however, leave Colombo till the 25th of February 1754, for the scene of his future labours, which with his family he reached on the 12th March following. The duties which devolved on him in this his new appointment were too onerous for any but a man like him of boundless activity; for he had however to superintend not only the numerous churches and schools in Jaffna and Wanny, but those at Trincomalie and Batticaloa, which he periodically visited, and in 1758, he was relieved of a portion of these duties, by the appointment as his colleague of the Rev. **B. Jansza**, a Tamil native, who was educated in Holland.
 
-In November 1753, De Melho was appointed Minister to the North- 
-ern District in the room of the Rev. G. Potken, who was his exam- 
-iner in the Sacred languages. He did not, however, leave Colombo 
-till the 25th of February 1754, for the scene of his future labours, 
-which with his family he reached on the 12th March following. The 
-duties which devolved on him in this his new appointment were too 
-onerous for any but a man like him of boundless activity ; for he had 
-however to superintend not only the numerous churclies and schools 
-in .latlha and Wanny, but those at Trincomalie and Balticaloa, which 
-he periodically visited, and in 1758, he was relieved of a portion of 
-these duties, by the appointment as his colleague of the Rev. B. 
-Jansza, a Tamil native, who was educated in Holland. 
+In October 1756, the death of his father compelled him to visit Colombo, where he remained for some time. Here he was unexpectedly called upon by Governor **Schreuder** to undertake the translation of the unfinished portion of the Tamil New Testament, viz. from the Epistle to the Ephesians to the end of the Revelation; and his well known zeal prompted him to execute it with alacrity. In 1759 the whole of the New Testament in the Tamil language was for the first time published in Ceylon; and when copies of it were sent to the Supreme Government the Company's Directors increased his salary in acknowledgment of his praiseworthy labours, styling him: "The Great Labourer," as will be seen by their despatch dated 5th of August 1760, and which we quote below.
 
-In October 1756, the death of his father compelled him to visit Col- 
-ombo, where he remained for some time. Here he was unexpectedly 
-Called u[X)n by Governor Sciireuder to undertake the translation of 
-I'he unfinished portion of the Tamil New Testament, viz. from the 
-Epistle to the Ephesians to the end of the Revelation ; and his well 
-linown zeal prompted him to execute it with alacrity. In 1759 the whole 
-6f the New Testament in the Tam.il language was for the first time pub- 
-lished in CeylL)n y and when copies of it were sent to the Supreme Gov- 
-ernment the Company's Directors increased his salary inacknowledg- 
-ihncni of his praiseworthy labours, styling him. "The Great Labour-' 
-ER," as will be seen by their despatch dated 5th of August 1760, and 
-■\Vhich wc quote below. 
+"To hear of the regular performance of Divine Service at Colombo by the Rev. Messrs. **Bronsveld**, **Zybrands** and **Meyer** and at Wolvendhal, by the Rev. Messrs. **Ondaatje** and **Philipsz**, as also at Jaffna by the Rev. Messrs. **De Melho** and **Janz** at Galle by the Rev. Messrs. **Schoults** and **Smith** and at Trincomalie by the Rev. Mr. **De Zelun**, and that the Rev. **Peter Cornelius** who has recently arrived there, is about to be employed by you to the no small benefit of the Church of God, has not been less agreeable to us than that the translation of the New Testament into the Tamil language has at length by the praiseworthy labours of the Rev. Mr. **De Melho** fully attained its object, as appears from the copies thereof which reached us; and this being now completed, we hope and wish that the blind heathen may be more and more enlightened and conducted to the true knowledge of our Rational Religion. As the only object we have in view in this respect is the promotion of true sanctifying faith, so is it likewise to manifest to that Great Labourer our particular satisfaction, that we have at the day of our sitting granted his Reverence our unsolicited extraordinary augmentation from 80 to 100 florins a month, as an evident token, how readily on our part we reward faithful services, as we in like manner on the same day and for the same reasons granted 100 florins to the Rector of the Seminary **Dr. Meyer**, in the expectation that they would henceforward redouble their zeal."
 
-" To hear of the regular performance of Divine Service at Colom- 
-bo by the Rev. Messrs. Bronsveld, Zybrands and Meyer and at 
+Whilst De Melho was residing at Jaffna, which was and still is the seat of Tamil literature in Ceylon, he met many renowned scholars, poets, and philosophers whose acquaintance he cultivated with a desire to improve his knowledge of philology as well as to gain opportunities which that acquaintance might afford him for bringing under their consideration, with all the force in his power, the arguments in favor of Christianity, and for exposing the absurdities and superstitions of their own system of faith. Among them, we may mention the name of **Kūlangkai Tambirān**, with whom he had frequent religious controversies.* While at Jaffna, De Melho enlarged the _Sūdāmani Nigandu_, which is the standard Lexicon of the Tamil language, by adding 20 stanzas to the 2d part, and about 100 to the 12th, besides various words and stanzas to others. These additions not only attest his abilities as a philologist, but also his skill as a poet from their splendid versification. They were all unanimously approved by the literati of his day and incorporated with the original; as a portion of them appears in the edition of the ten parts of the work published at the Manipy Press in 1856. The rest may be found in the manuscript copies current in Jaffna. It is not to be supposed that De Melho confined the display of his poetical talents to the above mentioned work; he also composed an elegant panegyric, called _Marudappa Kuravanji_ ([TAMIL]), on _Mardappa Pillei_, Mudeliar of the Gate, under the administration of Governor **Schreuder**. There are no means of ascertaining the names of the other works of which De Melho was the author. At his death he left behind him besides a highly valuable and extensive library, a large number of manuscripts, including his learned sermons in Dutch, Portuguese and Tamil; but they have all been unfortunately lost, with the exception of his Correspondence on the version of the Scriptures and a corrected draft translation of the Books of Joshua, Judges and Ruth.
 
-* See Governor Imiioif's Report, in Lke's Rebeyro, p. 17G 
+*) Vide, p. 47.
 
-Wolveiulhal, by the Rev. Messrs Ondaatje and Philipsz, as also at 
-Jaffna by the Rev. Messrs. De Melho and Janz at Galle by tho 
-Rev. Messrs. Sciioults and Smith and at Trincomalic by the Rev. 
-Mr. De Zelun, and that the Rev. Peter Cornelius who has re- 
-cently arrived there, is about to bo employed by you to the no small 
-benefit of the Church of God, has not been less agreeable to us than 
-that the translation of the New Testament into the Tamil language 
-has at length by the praiseworthy labours of the Rev. Mr. De Melho 
-fully attained its object, as appears from the copies thereof which 
-reached us ; and tiiis being now completed, we hope and wish 
-that the blind heathen may be more and more enlightened and con- 
-ducted to the true knowledge of our Rational Religion. As the only 
-objoct we have in view in this respect is the promotion of true sancti- 
-fying faith, so is it likewise to manifest to that (Treat Labourer our part- 
-icular satisfaction, that we have at the day of our sitting granted his 
-Reverence our unsolicited extraordinary augmentation from 80 to 
-100 florins a month, as an evident token, how readily on our part we 
-reward faithful services, as we in like manner on the same day and 
-for the same reasons granted 100 florins to the Rector of the Semin- 
-ary Dr. Meyer, in the expectation that they would henceforward re- - 
-double their zeal." 
+Early in 1778, the Rev. Mr. **Klein**, who was the best Tamil scholar among the Danish Missionaries then residing at Tranquebar, visited Jaffna. Here he heard De Melho's discourse on Tamil philology, in the presence of the Commandeur, as also on several other occasions, and exclaimed with astonishment "_quantum est quod nescimus_." He moreover candidly said, "I thought I understood the Tamil language, but I must now confess that I am yet a common learner, and wish my circumstances permitted me to remain sometime longer to learn from brother De Melho something more of that language." He also requested De Melho to give his brother Missionaries and himself some instructions in the Tamil language by means of correspondence, to correct their writings and to point out the errors committed by them in the translation of the Scriptures, with which request De Melho cheerfully complied.
 
-Whilst De Melho was residing a;t Jaffna, which was and still is the 
-scat of Tamil literature in Ceylon, he met many renowned scholars, 
-poets, and philosophers whose acquaintance he cultivated with a de- 
-sire to improve his knowledge of philology ns well as to gain oppor- 
-tunities which that acquaintance might afford him for bringing under 
-their consideration, with all the force in his power, the arguments in 
-favor of Christianity, and for exposing the absurdities and supersti- 
-tions of their own systeni of faith. Among them, we may mention 
-the name of Ku'langkai Tambira'n, with whom he had frequent re- 
-ligious controversies*. While at Jaffna, De Melho enlarged the 
-Suddmani Nigandu, which is (he standard Lexicon of the Tamil 
-language, by adding 20 stanzas to the 2d part, and about 100 to the 
-12th, besides various words and stanzas to others. These additions 
-not only attest his abilities as a philologist, but also his skill as a poet 
-from their splendid versification. They were all unanimously ap- 
-proved by the literati of his day and incorporated with the original ; 
-as a portion of them appears in the edition of the ten parts of 
-the work published at the Manipy Press in 1856. The rest may be 
-found in the manuscript copies current in Jaffna. It is not to be sup- 
-posed that De Melho confined the display of his poetical talents to 
-the above mentioned work ; he also composed an elegant pane- 
-gyric, called Marudappa Kuravanji(u:'in}^uu3>^§rrisu^^), on Mardap- 
-pa Pillei, Mudeliar of the Gate, under the administration of Gover- 
-nor Schreuder. There are no means of ascertaining the names of 
-the other works of which De Melho was the author. At his death 
+We will now close the biographical sketch of this laborious and learned man of whom his native country may justly be proud, with a brief notice of his valuable version of the Pentateuch, which was the last work in which he was engaged.
 
-Vide, p. 47. 
+The Tranquebar version of the Old Testament completed and published in 1729, was for good reasons, considered to be imperfect and unadapted to public use; it was therefore in contemplation to prepare a new version in Ceylon for the service of the Tamil Protestant Congregations. With this view the Rev. Mr. **Ondaatje** (whose name has already been mentioned) executed in 1774, a translation of the Book of Genesis and presented it to Governor **Falk**, who directed its revision according to the prescribed rule, previous to publication. But as it was deemed preferable to revise the Tranquebar version itself, directions to that effect were conveyed to him. But these were countermanded so soon as it was known in Ceylon that the Tranquebar Missionaries had already begun that work and that the Pentateuch and the Books of Joshua and Judges had been published. On the receipt of this order, Mr. **Ondaatje** represented to the Governor that he had read the revised version with great care and attention and had found it to be faulty, stating at the same time his opinion that it would be preferable to translate the Old Testament anew. He moreover added "I have received some portions of the Old Testament rendered by De Melho, which appear superior to the first as well as the second Tranquebar version." To this communication, His Excellency replied that both he and De Melho had permission to commence a new version. De Melho accordingly in 1779 and 1780, submitted to the Governor the versions of the Books of Genesis and Exodus made from the original Hebrew with the aid of the Septuagint, the Latin versions of **Tremellius** and **Junius**, and the Netherland's State Bible. It was however signified to De Melho that the Government would prefer a revision of the recently corrected Tranquebar version; and they accordingly wished him to prepare such a revision, exhibiting in a separate paper the errors found therein with the required corrections. Pursuant to this order, De Melho prepared and transmitted to Governor **Falk** a revised version of the Pentateuch, accompanied by a report on the subject and an annotation of the errors in the Tranquebar version. The following passage from that report demonstratively shews the character of that version:---
 
-he left behlmi him besides a highly valuable and exieitsive Irbrctry, 
-a large number of manuscripts, including his learned sermons in 
-Dutch, Portuguese and Tamil ; but they have all been unfortunately 
-lost, with the exception of his Correspondence on the version of the 
-Scriptures and a corrected draft translation of the Books of Joshua, 
-Judges and Ruth. 
-
-Early in 1778, the Rev. Mr. Klein, who was the best Tamil 
-scholar among the Danish Missionaries then residing at Tranquebar, 
-visited Jaffna, Here he heard De Melho's discourse on Tamil philo- 
-logy, in the presence of the Commandeur, as also on several other 
-occasions, and exclaimed with astonishment "quantum est quod nes- 
-cimus." He moreover candidly said, "I thought I understood the 
-Tamil language, but I must now confess that I am yet a common 
-learner, and wish my circumstances permitted me to remain some- 
-time longer to learn from brother De Melho something more of 
-that language." He also requested De Melho to give his brother 
-Missionaries and himself some instructions in the Tamil language by 
-means of correspondence, to correct their writings and to point out 
-the errors committed by them in the translation of the Scriptures, 
-with which request De Melho cheerfully complied. 
-
-We will now close the biographical sketch of this laborious and 
-learned man of whom his native country may justly be proud, with a 
-brief notice of his valuable version of the Pentateuch, which was 
-the last work in which he was engaged. 
-
-The Tranquebar version of the Old Testament completed and pub- 
-lished in 1729, was for good reasons, considered to be imperfect 
-and unadapted to public use ; it wxis therefore in contemplation to 
-prepare a new version in Ceylon for the service of the Tamil Protes- 
-tant Congregations. With this view the Rev. Mr. O.nd.aatje (whose 
-name has already been mentioned) executed in 1774, a translation of 
-the Book of Genesis and presented it to Governor Falk, who directed 
-its revision according to the prescribed rule, previous to publieation. 
-But as it was deemed preferable to revise the Tranquebar ver- 
-sion itself, directions to that effect were conveyed to him. But these 
-were countermanded so soon as it was known in Ceylon that the Tran- 
-quebar Missionaries had already begun that work and that the Penta- 
-teuch and the Books of Joshua and Judges had been published. On the 
-receipt of this order, Mr. Ondaatje represented to the Governor that he 
-had read the revised version with great care and attention and had 
-found it to be faulty, stating at the same time his opinion that it would 
-be preferable to translate the Old Testament anew. He moreover added 
-" I have received some portions of the Old Testament rendered by 
-De Melho, which appear superior to the first as well as the second 
-Tranquebar version." To this communication, His E.xcellency re- 
-plied that both he and De Melho had permission to commence a new 
-version. De Melho accordingly in 1779 and 1780, submitted to the 
-Governor the versions of theBooks of Genesis and Exodus made from- 
-the original Hebrew with the aid of the Septuagint, the Latin ver- 
-
-sions of Tremellius anJ Junius, and the Nethcrland's Slate Bible. 
-It was however signified to Do Melho that the Government would 
-prefer a revision of the recently corrected Tranquebar version ; and 
-they accordingly wished hiin to prepare such a revision, exhibiting in 
-a separate paper the errors found therein with the required correc- 
-tions. Pursuant to this order, Do Melho prepared and transmit- 
-ted to Governor Falk a revised version of the Pentateuch, accompan- 
-ied by a report on the subject and an annotation of the errors in the 
-Tranquebar version. The following passage from that report demon- 
-stratively shews the character of that version : --- 
-
-" The language and style have not been arranged in accordance 
+"The language and style have not been arranged in accordance 
 with the solemnity of such a divine revelation as the Holy Scriptures. 
 The spelling of a great many words is very defective. Foreign words 
 have been introduced, which in Tamil style, appear ungraceful and 
