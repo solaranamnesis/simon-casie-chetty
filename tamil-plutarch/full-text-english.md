@@ -1087,288 +1087,71 @@ _Oh! When will the time come that the chisled stone, the moulded red clay, and t
 _Oh! When will the time come that men shall live together without any distinction of caste, according to the doctrine promulgated in the 
 beginning by Kapiler?_
 
-Pattanattu-pilleiya'r --- uiLi-essr^^uSeiT'2eiTuun!T. 
+## Pattanattu-pilleiyār. --- [TAMIL].
 
-Pattanattu-pilleiyar was a celebrated philosopher, who lived at Kd- 
-veripat7iam, in the Carnatic, some time about the 10th century of the 
-Christian era. He belonged to the Chetty caste, and his real name 
-is said to have been Vexkata Chetty. He was possessed of great 
-wealth, which he acquired by trading with Ceylon and the neighbour- 
-ing islands. One day hearing that some of his ships which had been 
-missing for a time returned to the port laden with gold dust, he went 
-to see them, and during his absence, a Saiva mendicant called at his 
-house, and asked alms of his wife ; but she refused, saying that she 
-could not give any when her husband was not at home. The Safrd 
-mendicant thereupon went away, leaving with her a slip of o/rt/i wrapt 
-in a rag, and requesting her to deliver it to her husband on his re- 
-turn. When Pattanattu-pilleiyar returned to his house, he looked 
-into the slip of olah and finding the words (an^riip^^mih ejnnn^&iT 
-^}iiEi aos^L.QjifsQs) ^' Mind that even a needle with a broken eye 
-will 7wt follow thee in thy last day,''"' he at once imbibed an aversion 
-to the worldly life, gave away all his wealth to the people around, 
-and he, abandoning his house, became a naked ascetic, and passed the 
-remainder of his days, subsisting wholly on ahns, and esteeming a 
-potsherd and pure gold alike. He had a sister, who, ashamed 
-of his conduct, attempted to poison him, but without success. He 
-latterly took up his abode in a- wood at Trivatur, where he caused 
-the cowherds, who resorted to the wood to pasture their cattle, 
-to bury him by day up to the shoulders, leaving only his neck and 
-head above the ground, and take him up at night-fall ; but one day 
-having been inadvertently allowed to remain buried during the night,- 
-he was found dead the next morning. He appears to have been 
-likewise a poet, as we have a collection of poems which he compos- 
-ed in praise of the different Saiva shrines he had visited, besides a 
-number of elegiac verses wliich he ejaculated e.vtempore at the cre- 
-mation of his mother's corpse. 
+Pattanattu-pilleiyār was a celebrated philosopher, who lived at _Kāveripatnam_, in the Carnatic, some time about the 10th century of the Christian era. He belonged to the _Chetty_ caste, and his real name is said to have been **Venkata Chetty**. He was possessed of great wealth, which he acquired by trading with Ceylon and the neighbouring islands. One day hearing that some of his ships which had been missing for a time returned to the port laden with gold dust, he went to see them, and during his absence, a _Saiva_ mendicant called at his house, and asked alms of his wife; but she refused, saying that she could not give any when her husband was not at home. The _Saiva_ mendicant thereupon went away, leaving with her a slip of _olah_ wrapt in a rag, and requesting her to deliver it to her husband on his return. When Pattanattu-pilleiyār returned to his house, he looked into the slip of _olah_ and finding the words ([TAMIL]) "_Mind that even a needle with a broken eye will not follow thee in thy last day_," he at once imbibed an aversion to the worldly life, gave away all his wealth to the people around, and he, abandoning his house, became a naked ascetic, and passed the remainder of his days, subsisting wholly on alms, and esteeming a potsherd and pure gold alike. He had a sister, who, ashamed of his conduct, attempted to poison him, but without success. He latterly took up his abode in a wood at Trivatur, where he caused the cowherds, who resorted to the wood to pasture their cattle, to bury him by day up to the shoulders, leaving only his neck and head above the ground, and take him up at night-fall; but one day having been inadvertently allowed to remain buried during the night, he was found dead the next morning. He appears to have been likewise a poet, as we have a collection of poems which he composed in praise of the different _Saiva_ shrines he had visited, besides a number of elegiac verses wliich he ejaculated extempore at the cremation of his mother's corpse.
 
-Pattanattu-pilleiyar was a monotheist ; but he identified the only 
-one God with Siva, and also maintained the doctrine of metempsychc* 
-sis, teaching that emancipation from future birtli, and absorption 
-into the Divine essence was the supreme bliss. He at the same time 
-denied that man was a free-agent, and held that he was incapable of 
-doing either good or evil by himself, as may be seen by the follow-- 
-lYig stanzas which we quote from one of his works : --- 
+Pattanattu-pilleiyār was a monotheist; but he identified the only one God with _Siva_, and also maintained the doctrine of metempsychosis, teaching that emancipation from future birth, and absorption into the Divine essence was the supreme bliss. He at the same time denied that man was a free-agent, and held that he was incapable of doing either good or evil by himself, as may be seen by the following stanzas which we quote from one of his works:---
 
+[TAMIL].
 
-TUB TAMIL PLUTARCH. 67 
+_O my heart! do not be desponding. If thou wilt meditate on the five letters* devoutly worship Sankara (Siva), who dwells at Tillei, who fills the earth with his wisdom; who destroyed the (rebellious) cities; who is the lamp which is never extinguished; and who dances at the Sacred Court, surely thou shalt obtain liberation from future birth and be absorbed into his divine essence._
 
-Qu^nQuuasrQff^djQenssr i 3^91(2 iu a uDutsn^Q ear. 
+_Oh Ekamba, (Siva) of Kachchi! Can I, an ignorant dog, know how many fathers or how many mothers, or how many wives, or how many children I have had in the course of my former transmigrations, and how many more I shall have in my future?_
 
-!E(ki^rFlpL^Ll.t^iu (^^^sjuuiremeij iBOSTi^n/iuiS^p 
+_Oh Ekamba, of Kachchi! Will the puppet which is moved by a string, move by itself after the string shall have been broken? Am I not moved by thee in like manner! Therefore can I do any thing by myself, if I am separated from thee?_
 
-gjHesTiS^eSlujfr^i ^iRaii^s\)e\)ti^ uapgu'^EsTuLSrRi^n 
-Qe<im,'GS)eQ!k}sn6u^6mQu.nisSes)peiinsg:&Qujsi'ouQ6sr. 
-0 my heart ! do not he desponding. If thou wilt meditate on the five 
-letters* devoutly worship Sajikara (Siva), who dwells at Tillei; 
-who fills the earth loith his wisdom ; who destroyed the (reheUious) 
-cities ; who is the lamp which is never extinguished ; and loho dances 
-at the Sacred Court, surely thou shalt obtain liberation from future 
-birth and be absorbed into his divine essence. 
+*) The five letters of the Hindu Cabala, [TAMIL].
 
-Oh Ekamba, (Siva) of Kachchi! Can I, an ignorant dog, know how 
-many fathers or hoio many mothers, or how many wives, or how many 
-children I have had in the course of my former transmigrations, and 
-hotc many more I shall have in my future 7 
+## Pavananti. --- [TAMIL].
 
-Oh Ekamba, of Kachchi ! Will the puppet which is moved by a strings 
-move by itself after the string shall have been broken 7 Am I not 
-moved by thee in like manner! Therefore can I do any thing by my- 
-self, if I am separated from thee ? 
+The name of Pavananti has been handed down as the author of the _Nannūl_ ([TAMIL]), a treatise on Grannmar which as Mr. **Stokely** has justly remarked, "stands conspicuous among the grammatical treatises of all nations, for logical arrangement and comprehensive brevity;" but nothing more is known of him than that he was the son of **Sanmathi Muni**, a _Jaina_ sage, who lived at Sanakāpuram, and that he wrote his work under the auspices of a king named **Kangkam**. He had in the _Nannūl_ proposed to treat his subject under five heads, viz: ([TAMIL]) letters, ([TAMIL]) words, ([TAMIL]) matter, ([TAMIL]) versification, and ([TAMIL]) embellishment; but having died before he completed his design, the work therefore comprises only the first two heads.
 
-Pavananti --- uQjessTe0. 
+## Pānapattiran. --- [TAMIL].
 
-The name of Pavananti has been handed down as the author of 
-the Narmul (reecrgi/Tffo), a treatise on Grannmar which as Mr. Stoke- 
-LY has justly remarked, "stands conspicuous among the grammat- 
-ical treatises of all nations, for logical arrangement and comprehen- 
-sive brevity ;" but nothing more is known of him than that he was 
-the son of Sanmathi Muni, a Jaina sage, who lived at Sanakapu- 
-ram, and that he wrote his work under the auspices of a king named 
-Kangkam. He had in the Nannul proposed to treat his subject under 
-five heads, viz: (eii^^^) letters, {(ffftreo) words, (Gun(§en) matter, 
-(lurruL/) versification, and (j^sroP) embellishment; but having^ died 
-before lie completed his design, the work therefore comprises only 
-the first two heads. 
+Pānapattiran was a minstrel, who lived at the court of **Varaguna Pandiyen** at Madura. Another minstrel named **Yemanāthen**, who came from the north having exhibited his art before the king, and received rewards, became elated with success and challenged a contest in playing on the lute. Pānapattiren accepted the challenge, and by defeating the rival in the contest pleased the king so much that the king honored him with a triumphant entry of the city on an elephant, and loaded him with presents. Shortly afterwards he incurred the displeasure of the king by purloining some valuables from the palace, and was consequently deprived of all his emoluments and forbidden the royal presence. Finding himself in great straits, he contrived a device to obtain his livelihood for the future. Having been informed that **Perumākkothei**, who then reigned over the _Chera_ country, was extremely devoted to _Saiva_ worship, he forged a poetical letter in the name and character of _Siva_, and took it to the king, saying that it was given to him by _Siva_ to be delivered to the king. The purport of the letter was, "I _Siva_, who dwell in the city of _Alavei_ (Madura), which is surrounded by a wall, and adorned with palaces, say to the king _Chera_ that Pānapattiren, a minstrel and one as dearly beloved by me as thou art, is coming over to wait on thee. As thou hast acquired renown by lavishing thy wealth upon poets, give him what he wants and dismiss him." The king in his blind zeal to _Siva_ believing the letter to have been actually indited by the god himself, received it with great solemnity, and placing the bearer on the throne, presented him with considerable wealth. He then returned to Madura, and lived there during the remainder of his life, attending the temple thrice a day, and singing the praises of the god to the lute. It is stated that his wife also was well accomplished in singing, and that she acquired great fame by having carried away the palm in a contest in singing with a songstress whom the king **Rājarāja Pāndiyen** had sent for from Ceylon.
 
-Pa'napattiran --- unemu^^nasr. 
+## Periya Āzhvār. --- [TAMIL].
 
-Panapattiran was a minstrel, who lived at the court of ^Varaguna 
-Pandiyen at Madura. Another minstrel named Yemana'then, who 
+This poet was a native of _Villiputtūr_, and has had the distinction of carrying a prize in a poetical contest in the court of **Vallabadeva Pāndiyen**, king of Madura. He is considered as one of the Āzhvārs_ or special votaries of _Vishnu_, and that four-hundred stanzas of the _Nālāyiraprabhandam_ ([TAMIL]) are said to have been contributed by him.
 
-The five letters of the Hindu Cabala, *, 
+## Perunchītanār. --- [TAMIL].
 
+No particulars of the life of this poet are known, except that he was one of the forty-nine professors of the Madura College. His impromptu on the merits of the _Kural_, however, has been preserved, and we give it below.
 
-^8 THE TAMIL FLUTARCH. 
+[TAMIL].
 
-/came from tho norlli liaving exhibited his art before the king, and re- 
-ceived rewards, became elated with success and challenged a 
-contest in playing on the lute. Panapattiren accepted the challenge, 
-and by defeating tho rival in the contest pleased the king so much 
-that the king honored him with a triumphant entry of the city on an 
-elephant, and loaded him with presents. Shortly afterwards he in- 
-curred the displeasure of the king by purloining some valuables from 
-the palace, and was consequently deprived of all his emoluments 
-and forbidden the royal presence. Finding himself in great straits, 
-he contrived a device to obtain his livelihood for the future. Having 
-been informed that Peiuj^ia'kkotiiei, who then reigned oyer the Che- 
-ra country, was extremely devoted to Saiva worship, he forged a 
-poetical letter in the name and character of Siva, and took it to the 
-king, saying that it was given to him by Siva to be delivered to the 
-king. The purport of ths letter was, "I Siva, who dwell in the city 
-o( Alavei (I\Iadura), which is surrounded by a wall, and adorned with 
-palaces, say to the king Chera that Panapattiren, a minstrel and one 
-as dearly beloved by me as thou avt, is coming over to wait on thee. 
-As thou hast acquired renown by lavishing thy wealth upon poets, 
-give him what he wants and dismiss him." The king in his blind 
-zeal to Siva believing the lett3r to haye been actually indited by the 
-god himself, received it with great solemnity, and placing the bearer 
-on the throne, presented him with considerable wealth. He then re- 
-turned to Madura, and lived there during the remainder of his life, 
-attending the temple thrice a day, and singing the praises of the god 
-to the lute. It is stated that. his wife also was well accomplished in 
-singing, and that she acquired great fame by having carried away 
-the palm in a contest in singing with a songstress whom the king 
-Ra'jara'ja Pa'ndiyen had sent for from Ceylon. 
+_O king Pāndiya, who wears the garland of full-blown flowers! Say, what are more excellent, the Vedas, or the short sweet distichs, through the medium of which the faultless Valluver has divulged the whole contents of the Vedas._
 
-Periya A'zhva'r --- Qurftdint^'SumT. 
+## Perundevanār. --- [TAMIL].
 
-This poet was a native of Villipidtur, and has had the distinction 
-of carrying a prize in a poetical contest in the court of Vallabade- 
-VA Pa'ndiyen, king of Madura. He is considered as one of the Axh- 
-vars or special votaries of Vishnu, and that four-liundred stanzas of 
-the Ndldyiraprahhandam {thireonaSlniSinuih^ih) are said to havebeen con- 
-tributed by him. 
+There were two poets of this name, contemporaries, and both professors of the Madura College. One of them distinguished himself by writing an imitation of the _Mahābhārat_ in _Venba_ metre, and which is now known by the appellation of _Sangattu Bāradam_ ([TAMIL]), and the other by writing a treatise on versification, entitled _Kavisāgaram_ ([TAMIL]).
 
-PERUNCIil'TANA'fe --- Ou(TJi^<^^<S(eV)iT. 
+The following is the impromptu which the author of the _Sangattu Bāradam_ uttered on the merits of the _Kural_:---
 
-No particulars of the life of this poet are known, except that he 
-was one of the forty-nine professors of the Madura College. His im- 
-promptu on the merits of the Kural, howeyer, has bpen preserved, 
-and we give it below. 
+[TAMIL].
 
+_As the Kural which Valluver has composed contains in itself every thing, clothed in language easy to be understood by all, so it may bear comparison with the Mahābhārat, Rāmāyana, and Menu's Institutes, nay even with the Vedas of old._
 
-THt lAMlL k'LLTAttCH. (6i^ 
+The author of the _Kavisāgaram_ carried his admiration of the _Kural_ to the highest pitch, as will be seen by the subjoined impromptu which he uttered.
 
-Qey^QiM QiDstsaesr. 
+[TAMIL].
 
-O A-//i^TA'NDiYA, tcho wears the garland of fuU-hhncn flowers ! Say, 
-what are more excellent, the Vedas, of the short sweet distichs, through 
-the medium of which the faultless Valluvkr has divtilgtd the tchoh 
-contents of the Vedas. 
+_The best among flowers is the lotus; the best among metals is gold; the best among kine is Kamadhenu (the celestial cow); the best among elephants is Irāvata (the white elephant of Indra); the best among gods is Vishnu; and the best among books is Valluver's Kural._
 
-PeB-UNDE'VANA'R Ou0/bC?^a><CT)/f. 
+## Philip De Melho --- [TAMIL].
 
-Tliere were two poets of this name, contemporaries, and botli pro- 
-fessors of the Madura College. One of them distinguished himself 
-by writing an imitation of the Mahabhdral in Venha metre, and which 
-is now known by the appellation oi Sangattu Bdradam {s-ieis^^u 
-u.Tj^/i)), and the other by writing a treatise on versification, entitled 
-Kavisdgaram (aei^^rraffii). 
+The name of Philip De Melho, the first native who was admitted to the office of Minister of the Dutch Reformed Church in Ceylon, and who occupied a prominent place in the literary world, stands foremost among the divines and linguists, whether of European or Ceylonese birth, who flourished in the island during the eighteenth century. As an oriental poet also, he ranks high, and his qualifications as a Biblical translator were unsurpassed. Such was in fact his great learning that Governor **Falk** [Falck], a wise politician and an elegant scholar, complimented him with the title of "Rabbi De Melho."
 
-The following is the impromptu which the author of the Sangattu 
-Buradam uttered on the merits of the Kural : --- 
+De Melho was born at Colombo, on the 23d of April 1723. He belonged to a Tamil family distinguished for its respectability and opulence, and was the second son of Mr. **Simon De Melho**, who occupied the important post of Chief Tamil Mudeliar of the Gate,* and as such, was attached to the personal staff of no fewer than ten Dutch Governors, including the tyrant **Peter Vuyst** and the good Baron **Von Imhoff**. De Melho studied at an early age at the Colombo Seminary, which the Dutch Government founded in 1705, for the purpose of qualifying native youths for ecclesiastical as well as secular professions. Here he was taught Hebrew, Greek, Latin, Dutch, Portuguese and Tamil, as well as Theology. His accademical career was a brilliant one and before his seventeenth year he had become the senior student. At the age of 20 he finished the prescribed course of study and was the most qualified student to be sent to the University of Leyden. The Government desired him to proceed to Holland, which he refused to do. He was therefore on the suggestion of the Rev. J. P. Witzelius, Rector of the Seminary, appointed as a Native Proponent at Colombo, on the 16th April 1744, after he had passed with great credit a public examination in Hebrew and Greek as also in Theology by the learned members of the Consistory. On the 2d of August 1744, De Melho married Miss Magdalene Jurgen Ondaatje, daughter of Mr. **Philip Jurgen Ondaatje**, Translator to the "_Hoff van Justitie_" (the highest tribunal in the island) and sister of the Rev. **W. Jurgen Ondaatje**, Clergyman of Colombo and Rector of the Seminary. By this union he had a large number of daughters and only two sons who both died at an early age whilst successfully pursuing their studies, one at Amsterdam, and the other in the island.
 
-ejuOun(T^(^i}iajrr(T^LSliiisOL3smrSlisiip3: 
+Though De Melho, as Native Proponent, was to confine his ministrations to Natives, yet on the recommendation of the Consistory the Government privileged him to preach to the Dutch likewise; and thus at the very outset of his ministerial career, he had an auditory for his discourses from the pulpit that might require the full exercise of his eloquence. In 1745, upon the urgent solicitation of the Dutch residents at Negombo who wished to secure for themselves the benefit of his spiritual instructions, he was sent thither, but his stay amongst them appears not to have been long; for we see him again employed in Colombo in the following year, not only as Proponent, but also as one of the Committee for revising the Tamil version of the New Testament from the original text, and by himself as the reviser of the translations of all religious works intended for circulation amongst the natives. In 1746, when the Government established a Normal school at Colombo, De Melho from his known abilities and talents was selected by the Governor as one of its teachers; and in 1747, when owing to a paucity of ordained ministers, it was found necessary to appoint a fixed Assistant Preacher in the Dutch language, De Melho alone amongst the body of Native Proponents, was found worthy of filling that office.
 
-Q ff u lS lu su &!r (^ev ff^ n (^Qj 3= u u €ij Q^ --- (ipuunp(^u 
+*) In Tamil _Vāsul_, signifying the king's Court.
 
-QtBiT'Si loST LDji rjS eo'hffo (S a It . 
+De Melho having served with great efficieney as a Native Proponent and Assistant Dutch Preacher for a period of five years, applied in 1749 for ordination in Ceylon, with a view to enlarge the sphere of his usefulness. Both Governor **Gollenesse** and the Consistory marked their sense of the appreciation of his eminent abilities and valuable services by willingly and earnestly recommending him to the Supreme Government of Netherland's India, who thereupon permitted his ordination in the Island itself, after previous examination by the Consistory. On the 21st January 1750, De Melho, having been examined by the members of the Consistory assembled in the Fort Church at Colombo on various important theological points, and found to be in every respect a fit candidate for the ministerial office, was with the sanction of the Governor, ordained according to the rules of the Church of Holland, and appointed Minister to the Western District* with the usual pay and emoluments assigned to a clergyman on the establishment of the East India Company. This is the solitary instance of an individual, being ordained in the island, under the Dutch Government without previous University education. As a reward for his good services in connexion with the Normal School, he was in March following, promoted to be Rector of that institution.
 
-As the Kural which Yalltjveu has composed contains in itself 
-every thing, clothed in language easy to be understood by all, so it 
-may bear comjyarison with the Mahdbhdrat, Rdmdyana, and Menu's 
-Institutes, nay eccn with the Vedas of old. 
-
-The author of the Kavisdgaram carried his admiration of the Ku- 
-ral to the highest pitch, as will be seen by the subjoined impromptu 
-which he uttered. 
-
-
-^mnesiir'^uj QurTei!r^S(^s=^rTL£iLjesr^ 
-uojcSpsQ^QpGsBujrj'dJn'^i^iF.isLiijQ^ihu 
-Qp^prSI(T^LDfiQ6\}esrs'&pi^Q^anuQ6u 
-u n sS p 1^ sii eir (&^ Sij IT Qsusmuir. 
-
-The best amo7ig Jlowers is the lotus ; the best among metals is gold ^ 
-the best among kine is Kamadhenu (the celestial cow) ; the best among 
-elephants is Irdvata (the white elephant of Indra); the best among 
-gods is Vislmu ; and the best among books is Valluver's Kural. 
-
-Philip De Melho --- lSIcSuli Q^ Qifi&^Qeon. 
-
-The name of Philip De Melho, the first native who was admitted 
-to the office of Minister of the Dutch Reformed Church in Ceylon, 
-and who occupied a prominent place in the literary world, stands 
-foremost among the divines and linguists, whether of European or 
-Ceylonese birth, who flourished in the island during the eighteenth 
-century. As an oriental poet also, he ranks liigh, and his qualific.a? 
-
-
-70 THE TAMIL PLUTARCH. 
-
-tions as a Biblical translator were unsurpassed. Such was in fact his 
-great learning that Governor Falk, a wise politician and an elegant 
-scholar, complimented him with the title of '• Rabbi De Melho." 
-
-I)e Mclho was born at Colombo, on the 23d of April 1723. He be.- 
-longed to a Tamil family distinguished for its respectability and opu- 
-lence, and was the second son of Mr. Sijion De Melho, who occu- 
-pied the important post of Chief Tamil Mudeliar of the Gate,* and as 
-such, was attached to the personal staff of no fewer than ten 
-Dutch Governors, including the tyrant Peter Vuyst and the good 
-Baron Von Imhoff. De Melho studied at an early age at the 
-Colombo Seminary, which the Dutch Government founded in 
-1705, for the purpose of qualifying native youths for ecclesiastic- 
-al as well as secular professions, Here he was taught Hebrew, Greek, 
-Latin, Dutch, Portuguese and Tamil, as well as Theology. His ac- 
-cademical career was a brilliant one and before his seventeenth year 
-he had become the senior student. At the age of 20 he finished the 
-prescribed course of study and was the most qualified student to be 
-sent to the University of Leyden. The Government desired him to 
-proceed to Holland, which he refused to do. He was therefore on 
-the suggestion of the Rev. J. P. Witzelius, Rector of the Seminary, 
-appointed as a Native Proponent at Colombo, on the 16th April 1744, 
-after he had passed with great credit a public examination in Hebrew 
-and Greek as also in Theology by the learned members of the Con- 
-sistory. On the 2d of August 1744, De jMelho married Miss Magda- 
-lene Jurgen Ondaatje, daughter of Mr. Philip Jurgen O.ndaatje, 
-Translator to the "Hoffvan Jif.stitie''' (the highest tribunal in the 
-island) and sister of the Rev. W. Jurgen Ondaatje, Clergyman of 
-Colombo and Rector of the Seminary. By this union he had a large 
-number of daughters and only two sons who both died at an early 
-age whilst successfully pursuing their studies, one at Amsterdam, and 
-the other in the island. 
-
-Though De Melho, as Native Proponent, was to confine his minis- 
-trations to Natives, yet on the recommendation of the Consistory the 
-CJovernment privileged him to preach to the Dutch likewise ; and 
-thus at the very outset of liis ministerial career, he had an auditory 
-for his discourses from the pulpit that might require the full exercise 
-of his eloquence. In 1745, ujjon the urgent solicitation of the Dutch 
-residents at Negombo who wished to secure for themselves the ben- 
-efit of his .spiritual instructions, he was sent thither, but his stay 
-amongst them appears not to have been long; for we see him again 
-employed in Colombo in the following year, not only as Proponent, 
-but also as one of the Committee for revising the Tamil version of the 
-New Testament from the original text, and by himself as the reviser 
-of the translations of all religious works intended for circulation 
-amongst the natives. In 1746, when the Government established a 
-Normal school at Colombo, De Melho from his known abilities and 
-
-" In Tamil Vdsitt, signirying the king's Court. 
-
-
-VUE TAMIL PLUTARCH. 
-
-
-icUculs was scleclcd by the Governor as one of its teaclicrs ; and in 
-1747, when owing to a paucity of ordained ministers, it was found 
-necessary to appoint a fixed Assistant Preacher in the Dutch language, 
-Dc Mellio alone amongst the body of Native Proponents, was found 
-worthy of tilling tliat office. 
-
-De Mclho having served with great efficieney as a Native Propo- 
-nent and Assistant Dutch Preacher for a period of five years, applied' 
-in 17i9 for ordination in Ceylon, with a view to enlarge the sphere 
-of his usefulness. Both Governor Gollenesse and the Consistory 
-marked their sense of the appreciation of his eminent abilities and 
-valuable services by willingly and earnestly reconnnending him to 
-the Supreme Government of Netherland's India, who thereupon per- 
-mitted his ordination in the Island hself, after previous examination 
-by the Consistory. On the 21st January 1750, De Melho, having been 
-examined by the members of the Consistory assembled in the Fort 
-Church at Colombo on various important theological points, and found 
-to be in every respect a fit candidate for the ministerial office, was 
-with the sanction of the GJovernor, ordained according to the rules of 
-the Church of Holland, and appointed Minister to the Western Dis- 
-trict* with the usual pay and emoluments assigned to a clergyman 
-on the establishment of the East India Compa.;y. This is the solita- 
-ry instance of an individual, being ordained in the island, under the 
-Dutch Government without previous University education. As a re- 
-ward for his good services in connexion with the Normal School, he 
-was in March following, promoted to be Rector of that institution. 
-
-in the same year in which De Melho was ordained, he completed 
+In the same year in which De Melho was ordained, he completed 
 the revision of the Tamil version of the New Testament up to the 
 Epistle to the Ephesians. This was a work whi^h devolved on him- 
 exclusively from the want of zeal and co-operation on the part of his 
@@ -1392,9 +1175,6 @@ vision of the Tamil version of the New Testament was a work of
 tional purposes, divided into tJiree Districts, viz. the Northern, Western and* 
 Southern districts, the principal stations of which were rcBpectively Jaffna, Col- 
 ombo and CJalle. 
-
-
-i-4 ' THE TAMIL PLUTARCH. 
 
 itself more tlian sufficient,for one indiviJual, how gifted soever he 
 may be, yet it was not the only work in which he was engaged at the 
@@ -1449,9 +1229,6 @@ bo by the Rev. Messrs. Bronsveld, Zybrands and Meyer and at
 
 * See Governor Imiioif's Report, in Lke's Rebeyro, p. 17G 
 
-
-THE TAMIL PLUTARCH "> 
-
 Wolveiulhal, by the Rev. Messrs Ondaatje and Philipsz, as also at 
 Jaffna by the Rev. Messrs. De Melho and Janz at Galle by tho 
 Rev. Messrs. Sciioults and Smith and at Trincomalic by the Rev. 
@@ -1501,11 +1278,6 @@ nor Schreuder. There are no means of ascertaining the names of
 the other works of which De Melho was the author. At his death 
 
 Vide, p. 47. 
-
-10 
-
-
-'j4 the Tamil plutarch. 
 
 he left behlmi him besides a highly valuable and exieitsive Irbrctry, 
 a large number of manuscripts, including his learned sermons in 
@@ -1559,9 +1331,6 @@ version. De Melho accordingly in 1779 and 1780, submitted to the
 Governor the versions of theBooks of Genesis and Exodus made from- 
 the original Hebrew with the aid of the Septuagint, the Latin ver- 
 
-
-THE T/vMlL PLUTAUCH. "^S 
-
 sions of Tremellius anJ Junius, and the Nethcrland's Slate Bible. 
 It was however signified to Do Melho that the Government would 
 prefer a revision of the recently corrected Tranquebar version ; and 
@@ -1614,9 +1383,6 @@ them in barbarous words. By this means, the truth of God's word has been
 darkened, and by depriving it of its excellence, been tarnished, even ns if n 
 costly bright gem were buried in mire, or poison mixed with ambrosial sweet 
 or a beautiful picture stained witii ink ' I'cder J'ilnk'am, Chap xvi 
-
-
-76 THE TAMIL FLUTARCM. 
 
 words, unintelligible to none but to such as understand no other thciii 
 lame and bastard Tamil. To obviate however all difficulty on thii; 
