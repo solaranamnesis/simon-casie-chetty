@@ -1173,291 +1173,101 @@ We will now close the biographical sketch of this laborious and learned man of w
 
 The Tranquebar version of the Old Testament completed and published in 1729, was for good reasons, considered to be imperfect and unadapted to public use; it was therefore in contemplation to prepare a new version in Ceylon for the service of the Tamil Protestant Congregations. With this view the Rev. Mr. **Ondaatje** (whose name has already been mentioned) executed in 1774, a translation of the Book of Genesis and presented it to Governor **Falk**, who directed its revision according to the prescribed rule, previous to publication. But as it was deemed preferable to revise the Tranquebar version itself, directions to that effect were conveyed to him. But these were countermanded so soon as it was known in Ceylon that the Tranquebar Missionaries had already begun that work and that the Pentateuch and the Books of Joshua and Judges had been published. On the receipt of this order, Mr. **Ondaatje** represented to the Governor that he had read the revised version with great care and attention and had found it to be faulty, stating at the same time his opinion that it would be preferable to translate the Old Testament anew. He moreover added "I have received some portions of the Old Testament rendered by De Melho, which appear superior to the first as well as the second Tranquebar version." To this communication, His Excellency replied that both he and De Melho had permission to commence a new version. De Melho accordingly in 1779 and 1780, submitted to the Governor the versions of the Books of Genesis and Exodus made from the original Hebrew with the aid of the Septuagint, the Latin versions of **Tremellius** and **Junius**, and the Netherland's State Bible. It was however signified to De Melho that the Government would prefer a revision of the recently corrected Tranquebar version; and they accordingly wished him to prepare such a revision, exhibiting in a separate paper the errors found therein with the required corrections. Pursuant to this order, De Melho prepared and transmitted to Governor **Falk** a revised version of the Pentateuch, accompanied by a report on the subject and an annotation of the errors in the Tranquebar version. The following passage from that report demonstratively shews the character of that version:---
 
-"The language and style have not been arranged in accordance 
-with the solemnity of such a divine revelation as the Holy Scriptures. 
-The spelling of a great many words is very defective. Foreign words 
-have been introduced, which in Tamil style, appear ungraceful and 
-deform the language and disfigure it. Abundant errors have also 
-crept into it, consisting of unnecessary additions of words which are 
-not in the sacred text and inadmissible omissions of those which are 
-in it, bad and incorrect renderings and incompatible interpretations, 
-instead of translations, and that in so many places as the undersigned 
-has noted down the same, as is to be seen in the accompanying state- 
-ment of errors in the live Books of Moses alone." 
+"The language and style have not been arranged in accordance with the solemnity of such a divine revelation as the Holy Scriptures. The spelling of a great many words is very defective. Foreign words have been introduced, which in Tamil style, appear ungraceful and deform the language and disfigure it. Abundant errors have also crept into it, consisting of unnecessary additions of words which are not in the sacred text and inadmissible omissions of those which are in it, bad and incorrect renderings and incompatible interpretations, instead of translations, and that in so many places as the undersigned has noted down the same, as is to be seen in the accompanying statement of errors in the five Books of Moses alone."
 
-Do Mclho's version and his criticisms on the Tranquebar version 
-were sent to the Missionaries there. To the latter they had nothing 
-to say in vindication. With regard to the version, all with whom 
-they consulted pronounced the language employed in it to be excel- 
-lent and choice ; but raised a doubt whether it could be generally 
-understood by the common people. To settle this important point 
-the version was publicly and solemnly read in the Jaffna Fort Church 
-to a large body of learned Tamils and to other auditors and the ques- 
-tion put to them whether it was intelligible to the common people. 
-They unanimously replied that it was so, and that the language used 
-therein was matchless, elegant, pathetic and heart cheering, worthy of 
-and becoming Holy Writ, while that of the Tranquebar version was a 
-mixture of all words current on the Coast and was extremely uncouth, 
-barbarous and ridiculous, owing to the grammatical errors and the 
-vulgarisms with which it abounded*. Reference was also made on 
-this point to De Melho himself, who stated that the words re- 
-marked on as high by the Tranquebar Missionaries (who certainly 
-were not competent judges) are no other in reality than pure Tamil 
+De Melho's version and his criticisms on the Tranquebar version were sent to the Missionaries there. To the latter they had nothing to say in vindication. With regard to the version, all with whom they consulted pronounced the language employed in it to be excellent and choice; but raised a doubt whether it could be generally understood by the common people. To settle this important point the version was publicly and solemnly read in the Jaffna Fort Church to a large body of learned Tamils and to other auditors and the question put to them whether it was intelligible to the common people. They unanimously replied that it was so, and that the language used therein was matchless, elegant, pathetic and heart cheering, worthy of and becoming Holy Writ, while that of the Tranquebar version was a mixture of all words current on the Coast and was extremely uncouth, barbarous and ridiculous, owing to the grammatical errors and the vulgarisms with which it abounded.* Reference was also made on this point to De Melho himself, who stated that the words remarked on as high by the Tranquebar Missionaries (who certainly were not competent judges) are no other in reality than pure Tamil words, unintelligible to none but to such as understand no other than lame and bastard Tamil. To obviate however all difficulty on this score and to render his labours generally useful, he prepared an alphabetical glossary of the words in question to be appended to the version, which was accordingly published by the Government in 1790. Though De Melho had now reached his 67th year, yet the energies of his powerful and vigorous mind were unceasingly directed to the translation of the other portions of the Old Testament, and if his life had been spared for a few years more, he would have no doubt completed this great work; but it was ordained otherwise. He died on the 10th of August 1790.
 
-* That unparalleled Tamil scholar of modern times, the learned Beschi, 
-writes in the following strain of the Tranquebar version . --- "Can those hooka 
-be fairly called the Word of God, which the Tranquebarians, who do not at 
-all write correctly in Tamil the name of their country, have handed down to 
-U3 pretending that ^ley have translated the Holy Scriptures in Tamil, whilst 
-ignorant of that language, they have to the bitter paining of our ears, written 
-them in barbarous words. By this means, the truth of God's word has been 
-darkened, and by depriving it of its excellence, been tarnished, even ns if n 
-costly bright gem were buried in mire, or poison mixed with ambrosial sweet 
-or a beautiful picture stained witii ink ' I'cder J'ilnk'am, Chap xvi 
+*) That unparalleled Tamil scholar of modern times, the learned Beschi, writes in the following strain of the Tranquebar version:--- "Can those books be fairly called the Word of God, which the Tranquebarians, who do not at all write correctly in Tamil the name of their country, have handed down to us pretending that they have translated the Holy Scriptures in Tamil, whilst ignorant of that language, they have to the bitter paining of our ears, written them in barbarous words. By this means, the truth of God's word has been darkened, and by depriving it of its excellence, been tarnished, even as if a costly bright gem were buried in mire, or poison mixed with ambrosial sweet or a beautiful picture stained with ink." _Veder Vilakkam_, Chap. 16.
 
-words, unintelligible to none but to such as understand no other thciii 
-lame and bastard Tamil. To obviate however all difficulty on thii; 
-score and to render his labours generally useful, he prepared an al- 
-phabetical glossary of the words in question to be appended to the 
-version, which was accordingly published by the Government in 1790, 
-Though De Melho had now reached his 67th year, yet the energies 
-of his powerful and vigorous mind were unceasingly directed to the 
-translation of the other portions of the Old Testament, and if his life 
-had been spared for a few years more, he would have no doubt com- 
-pleted this great work ; but it was ordained otherwise. He died qu 
-the 10th of August 1790. 
+## Pei Āzhvār. --- [TAMIL].
 
-Pe'i A'zhva'b --- QuiLini^eufriT. 
-Pei A'zhvar, who was one of the twelve A'zhvcirs, or special vota- 
-ries of Vishnu, enjoyed likewise the reputation of a poet. He was 
-born at Mailapiir, in the Carnatic, and having finished his studies, 
-spent all his life in making pilgrimages to the different Vaishnava 
-shrines, and in diffusing the Vaishnava doctrines in the country. The 
-NdUyiraprahhandam {ihn60n\iSin[3nufF>§ib) contains a hundred stanzas 
-which he composed at Tirukovalur, as he was visiting that place in 
-cornpany with Poigai A'zhva'r and Pu'dat A'zhvar. 
+Pei Āzhvār, who was one of the twelve _Āzhvār_, or special votaries of _Vishnu_, enjoyed likewise the reputation of a poet. He was born at _Mailapūr_, in the Carnatic, and having finished his studies, spent all his life in making pilgrimages to the different _Vaishnava_ shrines, and in diffusing the _Vaishnava_ doctrines in the country. The _Nālāyiraprabhandam_ ([TAMIL]) contains a hundred stanzas which he composed at Tirukovalūr, as he was visiting that place in company with **Poigai Āzhvār** and **Pūdat Āzhvār**.
 
-PoiGAi A'zhva'r --- QundjeasLuiri^s^niT. 
+## Poigai Āzhvār. --- [TAMIL].
 
-The history of Poigai A'zhvar like that of his compeers has been 
-disguised in myths, and it is difficult to extricate it from them. One 
-thing, however, is certain, that he was a native of Kanjipurain, and 
-ranked high as a poet. He employed his muse solely in hymning 
-the praises of Vishnu, and contributed one hundred % anzas to the 
-NdUyirapralhandam (/sneOJuiloLyffuffi^u)) . 
+The history of Poigai Āzhvār like that of his compeers has been disguised in myths, and it is difficult to extricate it from them. One thing, however, is certain, that he was a native of _Kānjipuram_, and ranked high as a poet. He employed his muse solely in hymning the praises of _Vishnu_, and contributed one hundred stanzas to the _Nālāyiraprabhandam_ ([TAMIL]).
 
-PoiYA'MOZHI PuLAVER --- QuniLiunQmn L^ uL^eOsu n. 
+## Poiyāmozhi Pulaver. --- [TAMIL].
 
-Polyamozhi Pulavcr was a celebrated poet who flourished in the 
-reign of the king Vananga'mudi Pa'ndiyen. Of his compositions, we 
-have met with only an erotic poem in 425 stanzas, under the title of 
-Tanjeivdnan-kovei {^<i^&S)ffSi}n€m^Q&n&s>6ij), which is much valued 
-not only on account of its beautiful versification, but also because it 
-is written in illustration of the rules of Natkavira'ja Nambis' Agap- 
-pond. 
+Poiyāmozhi Pulaver was a celebrated poet who flourished in the reign of the king **Vanangāmudi Pāndiyen**. Of his compositions, we have met with only an erotic poem in 425 stanzas, under the title of _Tanjeivānan-kovei_ ([TAMIL]), which is much valued not only on account of its beautiful versification, but also because it is written in illustration of the rules of **Natkavirāja Nambis'** _Agapporul_.
 
-The following annccdotc of Poiyamozhi Pulavcr, which we have 
-extracted from the Dinavariamdni,* though tinged with the marvel- 
-ous may be found interesting. 
+The following annecdote of Poiyāmozhi Pulaver, which we have extracted from the _Dinavartamāni_,* though tinged with the marvelous may be found interesting.
 
-Poiyamozhi Pulaver being desirous of having the Madura College 
-re-established, went to the king to speak to him on the subject, but 
-finding the king in the temple lying prostrate at the feet of the image 
-of Siva and worshipping it, he addressed to him the following im- 
-promptu:--- 
+*) See No. 46 of 1856.
 
+Poiyāmozhi Pulaver being desirous of having the Madura College re-established, went to the king to speak to him on the subject, but finding the king in the temple lying prostrate at the feet of the image of _Siva_ and worshipping it, he addressed to him the following impromptu:---
 
-THF, TAMIL PLITARCH. il 
+[TAMIL].
 
-O Piifidii/a, icho never boics thy head to any one ! Dost thou lie 
-prostrate at the feet of Andivannan (Sira), while the progenitor of 
-thy holy race the cool-beamed moon, to whose rays the lotus-fower closes, 
-and the nympheejloiver expands, is sitting on his radiant lock of hair. 
+_O Pāndiya, who never bows thy head to any one! Dost thou lie prostrate at the feet of Andivannan (Siva), while the progenitor of thy holy race the cool-beamed moon, to whose rays the lotus-flower closes, and the nymphæ-flower expands, is sitting on his radiant lock of hair._
 
-The king upon this rose up and questioned hiin on the object of his 
-visit, to which he replied that he had come to beg permission for the 
-re-establishment of the Madura College. The king wishing to put to 
-the test his ability for such an undertaking, desired him to improvise 
-a verse which would cause the statues of the professors of the Col- 
-lege, which were in the temple to nod. He obeyed and improvised 
-the following verse : --- 
+The king upon this rose up and questioned him on the object of his visit, to which he replied that he had come to beg permission for the re-establishment of the Madura College. The king wishing to put to the test his ability for such an undertaking, desired him to improvise a verse which would cause the statues of the professors of the College, which were in the temple to nod. He obeyed and improvised the following verse:---
 
-Sl. /B <5 6r/7 (? 6V' /F /7 0 (ST) ,05 51/ O (gO) a; (? ffl/ (? (CT) C) ^ ^ O (c (_/ G" ^ 
+[TAMIL].
 
-^iijSLL(^&)?w/]Sujs= Q ff u i-j :-ej s eh --- ff^a^^ 
+_Declare, that the king of the lunar race may know, whether I will be like one of you or not, and whether my lays will equal the three kinds of lays which ye sang in the College or not, O ye the forty-nine (professors) adorned with garlands of full-blown flowers!_
 
-declare, that the king of the lunar race may know,ichether I loill 
-he like one of you or not, and whether my lays iv ill equal the three 
-kinds of lays lohich ye sang in the College or not, O ye the forty- 
-nine (professors) adorned leith garlands of full -bloten flowers f 
+The statues thereupon nodded by way of affirmation. The king afterwards conducting him to the bank of the _Pottāmarei_ tank in which the board on which the professors sat was lying plunged, bade him make it float by improvising a verse; and he then improvised the following:---
 
-The statues thereupon nodded by way of affirmation. The king 
-afterwards conducting him to the bank of the Pottdmarei tank in 
-which the board on which the professors sat was lying plunged, bade 
-him make it float by improvising a verse ; and he then improvised 
-^he following : --- 
+[TAMIL].
 
-Floatest thou awhile, 0 the board of the Tamil poets of Madura f 
-that the great Pa'ndiyen inay know, that though there are no kings to 
-patronize poetry as in times past, yet there are p)oets even at the pre^ 
-sent time. 
+_Floatest thou awhile, O the board of the Tamil poets of Madura! that the great Pāndiyen may know, that though there are no kings to patronize poetry as in times past, yet there are poets even at the present time._
 
-The board came up to the surface of the water immediately as he 
-had uttered the verse, and then sank down again. The king after hav- 
-ing such ample proofs of his abilities, nevertheless took very little no- 
-tice^of him ; and stung with the neglect he set out to go back to his 
-country. The Queen having heard of it trembled for fear that 
-his malison would ruin the king. She therefore, disguised as a 
-palanquin-bearer, bore his palanquin fur some distance, and when 
+The board came up to the surface of the water immediately as he had uttered the verse, and then sank down again. The king after having such ample proofs of his abilities, nevertheless took very little notice of him; and stung with the neglect he set out to go back to his country. The Queen having heard of it trembled for fear that his malison would ruin the king. She therefore, disguised as a palanquin-bearer, bore his palanquin for some distance, and when he came to know of it, he at once stopt her and wished to know the cause why she had thus condescended to him. She told him that her object was to pacify his wrath, and obtain from him a blessing for the king. He thereupon ejaculated the following verse in her praise:---
 
+[TAMIL].
 
-78 THt TAMIL ri.l'TARCII 
+_Uma (Parvati) and thou stand in equal rank; but Uma has a stain; for he who shared with her part of his body, betook himself to begging, while Pāndiyen who pressed thee to his bosom, reigns._
 
-l»e came lo know of it, he at once slopt her and wished to 
-know the cause why she had thus condescended to him. Sl>e told him 
-that her object was to pacify his wrath, and obtain from him 
-a blessing for the king. He thereupon ejaculated the following verse 
-in her praise : --- 
+## Ponmudiyār. --- [TAMIL].
 
-GL SH) tC ttJ /r (65 /^ iiy O i£ ff (5 "E/ O <5 ff LJ (o U O OJ /7 U vo U 
+Ponmudiyār figured in the Madura College as one of the forty-nine professors; but nothing further is known concerning him. Of his poetical compositions the only relic is the subjoined impromptu on the _Kural_:---
 
-Urnd (Parvali) and thou stand in equal rank; but Utna has u 
-stain i for he who shared icith her part of his body, betook himself to 
-begging, while Pa'ndiyen who pressed thee to his bosoin, reigns. 
+[TAMIL].
 
-Ponmudiya'r --- QunmQp'^Lunfi. 
+_O thou adorned with the garland of fragrant flowers! It is said that the Kural (meaning Vishnu in his incarnation as a dwarf) produced by Kasypa in times of yore measured the earth*; but the Kural now produced by Valluver has measured both the earth and the heaven (by its treating of every thing which they contain)._
 
-Ponmudiyar figured in the Madura College as one of the forty-nine 
-professors ; but nothing further is known concerning him. Of his 
-poetical coinpositions tlie only relic is the subjoined impromptu on 
-the Kural : --- 
+## Pogar. --- [TAMIL].
 
-anssfleur/D^^iTiEJSGOuiu sn&uic^iT^'<i^^Qp(^ 
-s^Smpewk^ (^pQeamu --- ^m(ipssipiurr<5m 
-QJ fT esff 63T J2/ LD em essfi sarp eir w^ C?^ su err ^w su (SW) rr 
-jSniS(sirp0(ri^(^P'Sfr. 
+Pogar was one of the sages of antiquity whose biography has merged into fable. He however appears to have been well versed in the art of poetry, as well as that of medicine. Of his works all written in verse, Dr. Ainslie has in his Materia Indica noticed four; viz. 1. _Pogar Yogamārgam_ ([TAMIL]), 2. _Pogar Ezhunūru_ ([TAMIL]), 3. _Pogar Tirumandiram_ ([TAMIL]), and 4. _Pogar Nigandu_ ([TAMIL]), all which treat of the preparations of the several kinds of medicines. Some think that he was the same with **Fo** or **Fohi**, who introduced Buddhism into China in the latter part of the first century of the Christian era, but this is rather doubtful.
 
-O thou adorned loith the garland of fragrant flowers ! It is said 
-that the Rural (meaning Vishnu in his incarnation as a dioarf) pro- 
-duced by Kasypa in times of yore measured the earth*; but the Kural 
-noio produced by Valluver has measured both the earth and the 
-heaven {by its treating of every thing which they contain). 
+*) For the particulars of this myth see Moor's Hindu Pantheon, p. 186.
 
-Fo'cxn-^Qunaa. 
+## Pokiyār. --- [TAMIL].
 
-Pogar was one of tlie sages of antiquity wliosc biography has mer- 
-ged into fable. He however appears to have been well versed in the 
-art of poetry, as well as that of medicine. Of his works all written 
-i;i verse. Dr. Ainslie has in his Materia Indica noticed four; viz. 
-1. Pogar Yogamdrgam {Qunan Qdja3>LDnn3,3>ih.), 2. Pogar _Ezhu- 
-nuru ((?u/T«n^ CTtfg/r^), 3. Pogar Tirumandiram (Qunan- 0(§iDih0aih)., 
-and 4. Pogar Nigandu {Qunsfr (^ascsKj), all which treat of the 
-preparations of tlie several kinds of medicines. Some think that he 
-was the same with Fo or Foiii, who introduced Buddhism into China in 
-the latter part of the first century of the Christian era, but this is rather 
-doubtful. 
+Pokiyār was one of the forty-nine professors of the Madura College; but nothing further is known of him, except that he was the author of a stanza merely enumerating the divisions of the _Kural_.
 
+## Pugazhendi. --- புகழந்தி.
 
-For the paiticiil:trf. ortliis iiivfli see Moor's MIndii I'antheon. p )86 
+Pugazhendi was a contemporary poet with **Kamber** and **Otteikūter**, but he was retained at the Court of the king **Varaguna Pāndiyen** at Madura. He possessed a masterly talent for composing _Venba_, a kind of versification which is so difficult that it has been styled "the tiger of poets." He wrote a poem, entitled _Nalavenba_ ([TAMIL]), in which he has in 417 stanzas of the _Venba_ metre narrated the adventures of **Nala** and **Damayanti**, and this work has obtained for him a lasting fame, as it is confessedly the most beautiful composition of the kind in the Tamil language. He also wrote a treatise in 71 stanzas, under the title of _Retna-churukam_ ([TAMIL]), containing a specification of the metaphors to be used in poetry when describing the perfections of the fair sex. Another poem styled _Alliarasani Mālei_ ([TAMIL]), treating of the history of the Queen **Alliarasāni**, is likewise attributed to him; but it bears internal evidence of its spuriousness and is altogether unworthy of his transcendent genius. Many anecdotes are related of Pugazhendi in proof of his extraordinary wit and skill as an improvisatore, and we subjoin one of them. Once when he was visiting the court of **Kulotunga Chola** at Ureiur, he happened to go out for a walk with the king and his poet **Ottakūter**. **Auveiyar**, who was then sitting in the street with her feet stretched, withdrew one of them as the king passed by her, and the other as Pugazhendi passed by her; but when she saw **Ottakūter**, who followed, she stretched them both again. **Ottakūter** offended at the slight offered to him, asked for an explanation, upon which she said, "I withdrew one foot for the king, because he wears the crown, and both feet for Pugazhendi, because he is a great poet; but as you are nothing but a dunce, I have not withdrawn either of my feet for you, and if you are as able as Pugazhendi, prove it by improvising a verse in which while praising the _Chola_ country and its king, the word "_mathi_" ([TAMIL])* shall occur three times. He thereupon uttered the following stanza:---
 
+[TAMIL].
 
-rm: ta.mil pi.utau(M. 7«J 
+As the word "_mathi_" (wit) occurred only but twice in the stanza, **Auveiyar** asked **Ottakūter**, pray where is thy other wit? but he was so ashamed that he could not reply. She then addressed herself to Pugazhendi and asked him to try his skill in improvising a verse in praise of the _Pāndiya_ country and its king, with the word "_mathi_" should be introduced into the body of the verse three times, and he instantly improvised the subjoined.
 
-Pu KiYA u --- (cundSliLinii. 
+*) The word ([TAMIL]) means "_the moon_," as well as "_wit_."
 
-Pokiyur was one of the forty-nine professors of llie Madura C\A- 
-lege ; but nothing further is known of him, except that he was the 
-auth.M- of a stanza merely enumerating the divisions of the Kurul. 
+[TAMIL].
 
-Pl'(jaxhe'noi --- LjsQifii^. 
+Applauding him for his successful performance, she again addressed herself to him to improvise another verse, the first line of which should begin with the word "_kari_" ([TAMIL])* and the last end with the word "_Umi_" ([TAMIL])* and he thereupon uttered the following:---
 
-Pugazhendi was a contemporary poet with Kamber and Otteiku'- 
-TEw, but he was retained at tl>e Court of the king Yaraguna Pa'ndi- 
-YEN at Madura, lie possessed a masterly talent for composing Vcjiha, n 
-kind of versification which is so difficult tliat it has been styled '■'■ the 
-tiger of poets." He wrote a poem, entitled Nalavenla ((hevGeufmun), 
-in which he has in 417 stanzas of the Vcnba metre narrated the adven- 
-tures of Nala and Damayanti, and this work has obtained for him 
-a lasting fame, as it is confessedly the most beautiful composition of 
-the kind in the Tainil kngujige. He also wi'Ote a' treatise in 71 
-stanzas, under the title of Rctna-elnirukam (@n^^mff3i!§i,sti),- con- 
-taining a specification of the metaphors to be used in poetry wheti' 
-describing the perfections of the fair sex. Another poem styled Al- 
-liarasani Mulei (jijeoeS'j^n^'nestfiLLneiso), treating of the history of the 
-Queen Alliarasa'ni, is likewise attributed to him; but it bears inter- 
-nal evidence of its spuriousness and is altogether unworthy of his 
-transcendent genius. Many anecdotes are related of Pugazhendi 
-in proof of his extraordinary wit and skill as an improvisatore, 
-and we subjoin one of them. Once when he was visiting the 
-court of Kulo'tunga Chola at Urelur, he happened to go out for a 
-walk with the king and his poet Ottaku'ter. Auveiyar, who was 
-then shting in the street with her feet stretched, withdrew one of them 
-as the king passed by her, and the other as Pugazhendi passed by her ; 
-but when she saw Ottaku'ter, who followed, she stretched them 
-both again. Ottaku'ter ofiended at the slight offered to him, asked' 
-for an explanation, upon whicli she said, "I withdrew one foot for 
-the king, because he wears the crown, and both feet for Pugazhendi, 
-because he is a great poet ; but as you are nothing but a dunce, I have 
-not withdrawn either of my feet for you, and if you are as able as 
-Pugazhendi, prove it by improvising a verse in which while praising 
-the Chola country and its king, the word "mathi'''' (id^)* shall 
-occur three times. He thereupon uttered the following stanza : --- 
+[TAMIL].
 
-s&retriTLriroiSL'iT(^^LbuL-i(^!a •sscmL-rrsesBrL---irQu^uanQeiar' 
+*) The word ([TAMIL]) means both "_Charcoal_" and "_an Elephant._"
 
-As the word "matJii'''' (wit) occurred only but twice in the stanza,- 
-AuvEiY'AR asked Ottaku'ter, pray where is thy other wit } but he 
-was so ashamed that he could not reply. She then addressed herself to 
-Pugazhendi and asked him to try his skill in improvising a verse m 
+*) ([TAMIL]) as a noun signifies "husk;" but as a verb "_to spit._"
 
-* The word (coP) m'jan3 "the vtoov," as well as 
+## Pudattazhvār. --- [TAMIL].
 
+This poet was a native of _Māvalipuram_, near Sadras; but being deified by the _Vaishnavas_ to whose sect he belonged, the real particulars of his life have been completely enveloped in fable. Of his compositions, however, there is a series of one hundred stanzas which now form a part of the _Nālāyiraprabhandam_ ([TAMIL]).
 
-■SO Tilt TAMH. PLUTARCH. 
+## Pūdenchendanār. --- [TAMIL].
 
-praise ot'llic Pandiya country and its king, witii the word - mnthr' 
-should ho introduced into the hody of the verse three times, and 
-ho instantly improvised the suhjoined. 
+Nothing further is known of the personal history of Pūdenchendanār than that he was the son of **Sengundūr kizhār**, one of the forty-nine professors of the Madura College. He wrote a didactic poem in forty stanzas, under the title of _Inyanalpadu_ ([TAMIL]), containing an enumeration of every thing which is pleasant. It is ranked amongst the works which had received the approbation of the College, and we subjoin a stanza from it as specimen.
 
-fffB'S'---Qt-fiSujs (^ffd'SetriiT ^^SBTeS LLQt---/SI iLjifiiS' t^^rrL^rr 
+[TAMIL].
 
-Applauding him for his successful performance, she again address- 
-ed herself to him to improvise another verse, the first line of which 
-should begin with the word "kari''' (aff')* and the last end with the 
-word ♦' r»/a" (2.£/P)t and he thereupon uttered the following:--- 
-
-Pudattazhva'R --- -L^^i^nj^SuniT. 
-
-This poet was a native of Mnvalipiiram, near Sadras; but being 
-deified by the Vaishnavas to whose sect he belonged, the real parti- 
-culars of his life have been completely enveloped in fable. Of his 
-compositions, however, there is a series of one hundred stanzas which 
-now form a part of the NdlAyiraprahhandam {!?ja€0n\i3ai3uuff.f)ii). 
-
-Pu'denche'ndana'r --- y^@G>?-/^^@/f. 
-
-Nothing further is known of the personal history of Pudenchenda- 
-nar than that he was the son of Sengundu'r kizha'r, one of the 
-forty-nine professors of the Madura College. He wrote a didactic 
-poem in forty stanzas, under the title of Inyanalpadii {<^e5fiuun(hnrb 
-u£i), containing an enumeration of eveiy thing which is pleasant. 
-It is ranked amongst the works which had received the approbation 
-of the College, and we subjoin a stanza from it as specimen. 
-
-fSiEjaemiLffLiesii---vunfi ^nu^eiini^^earQpi^esBssPQ^ 
-u iki s l£I &iQ ^ uJGT-iS tu n irQ u u (fl i ^1 lu n irs (^ 
-
-Pleasant it is for men to live happily together with their kindred, 
-and pleasant it is to behold thcfull-moon among the beautiful clouds ; 
-but more pleasant is the love kindly bestoioed on all by those whose aC' 
-lions arefreefrom, guilt. 
-
-* The word {ail) means both "Charcoal" and "nn Elephant." 
-
-♦ (o.i^) as a noun Bignifies "husk ;" but at a rerb "/o spit." 
-
-
-THE TAMIL PLUTARCM. 8 1 
+_Pleasant it is for men to live happily together with their kindred, and pleasant it is to behold the full-moon among the beautiful clouds; but more pleasant is the love kindly bestowed on all by those whose actions are free from guilt._
 
 Ra'machandra Kavira'yer --- ^anmffm^BseSlnntLin. 
 
