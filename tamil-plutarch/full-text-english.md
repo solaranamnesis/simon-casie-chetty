@@ -1269,76 +1269,27 @@ Nothing further is known of the personal history of Pūdenchendanār than that h
 
 _Pleasant it is for men to live happily together with their kindred, and pleasant it is to behold the full-moon among the beautiful clouds; but more pleasant is the love kindly bestowed on all by those whose actions are free from guilt._
 
-Ra'machandra Kavira'yer --- ^anmffm^BseSlnntLin. 
+## Rāmachandra Kavirāyer. --- [TAMIL].
 
-The merits of Ramaclmndra Kivviraycr as an able poet and ele- 
-gant writer of Dramas in modern times cannot be denied. He was 
-a native of Rajanelliir, in the Carnatic, but resided chiefly at Mad- 
-ras, where his high attainments had procured for him the friendship 
-and countenance of Mr. Ellis, the accomplished Orientalist. He 
-wrote the following five dramas : 1. SakunLala Vildsam {^^msjoso 
-eS'eOns'ih), 2. Pdrada Vilf'sam (una^eS'eonffit), 3. Tdrukd Vildsam 
-{^n^3>neS'sotT3'ih), 4. Iranhja Vdsagappd i^nsss^ajejnffauun), and 
-5. Rangoon-chandei Nddagam (@!jihiSn€srs-sm6S)i-(TjaL.atl:) besides an 
-ode in honor of Mr. Ellis, eulogizing his wise administration of thG 
-CoUectorate of Madras. The following stanza is reported to have 
-been addressed to the poet by Mr. Ellis. 
+The merits of Rāmachandra Kavirāyer as an able poet and elegant writer of Dramas in modern times cannot be denied. He was a native of _Rajanellūr_, in the Carnatic, but resided chiefly at Madras, where his high attainments had procured for him the friendship and countenance of Mr. **Ellis**, the accomplished Orientalist. He wrote the following five dramas: 1. _Sakuntala Vīlāsam_ ([TAMIL]), 2. _Pārada Vīlāsam_ ([TAMIL]), 3. _Tārukā Vīlāsam_ ([TAMIL]), 4. _Iraniya Vāsagappā_ ([TAMIL]), and 5. _Rangoon-chandei Nādagam_ ([TAMIL]) besides an ode in honor of Mr. **Ellis**, eulogizing his wise administration of the Collectorate of Madras. The following stanza is reported to have been addressed to the poet by Mr. **Ellis**:
 
-3fi^!i^ic^m^'SS)s=siJ6\)Q&)n^Lc tun 61/(7^13 Q^ n^^^ u (^Q s^ ilj 
+[TAMIL].
 
-He who skillfully plays on the lute (meaning Na'rada^, and he whd 
-is enriched with the knowledge of the elegant Tamil {meaning Kg ast\- ' 
-yer), and the thousand headed Sesha, seeing the poet'Rk'uKCiiK^DViA, 
-leho chants the praise of Skanda, the object of the praise of all, were 
-ashamed (by a consciousness of itferiority) , and quitting the earthy 
-one betook himself to the sky, another to the mountain (Pothiya), and 
-the other to the nether world. 
+_He who skillfully plays on the lute (meaning Nārada), and he who is enriched with the knowledge of the elegant Tamil (meaning Agastiyer), and the thousand headed Sesha, seeing the poet Rāmachandra, who chants the praise of Skanda, the object of the praise of all, were ashamed (by a consciousness of inferiority), and quitting the earth, one betook himself to the sky, another to the mountain (Pothiya), and the other to the nether world._
 
-Ra'MA NUJA KaVIRA'YER- 
+## Rāmānuja Kavirāyer. --- [TAMIL].
 
-Of the poets who flourished at Madras in the first half of the pre- 
-sent century Ramanuja Kavirayer claims a prominent place, on ac- 
-count of his superior talents. He was Moonshee to the Rev, W, H. 
-Drew of the London Missionary Society, and proved himslf a valua- 
-ble helper to that gentleman in his Tamil studies and pursuits. When 
-Mr. Drew published the first volume of his English version of the 
-Rural in 1840, Ramanuja Kavirayer was alive, but died before the 
-second volume came out in 1852, and Mr^ Drew in the notice affix- 
-ed to the second volume mourns his death "as a loss not only to 
-himself, but also to the interests of the Tamil literature generally," 
-and adds that "his thorough knowledge of the language 5 the native 
-vigour of his mind ; his power of long continued, patient labour; his 
-delight in work; together with his manliness and integrity of charac- 
-ter so remarkable in a Hindu, made him to me a helper in my Tamil 
-studies and pursuits, whose value I could not over-estimate. But he 
-is gone ; and I shall enjoy his aid no more." He was the author of 
-an "Amplification of Parime'lazhagar's comments on the XwraZ," 
-which Mr. Drew has published with his English version of that work, 
+Of the poets who flourished at Madras in the first half of the present century Rāmānuja Kavirāyer claims a prominent place, on account of his superior talents. He was Moonshee to the Rev. **W. H. Drew** of the London Missionary Society, and proved himslf a valuable helper to that gentleman in his Tamil studies and pursuits. When Mr. **Drew** published the first volume of his English version of the _Kural_ in 1840, Rāmānuja Kavirāyer was alive, but died before the second volume came out in 1852, and Mr. **Drew** in the notice affixed to the second volume mourns his death "as a loss not only to himself, but also to the interests of the Tamil literature generally," and adds that "his thorough knowledge of the language; the native vigour of his mind; his power of long continued, patient labour; his delight in work; together with his manliness and integrity of character so remarkable in a Hindu, made him to me a helper in my Tamil studies and pursuits, whose value I could not over-estimate. But he is gone; and I shall enjoy his aid no more." He was the author of an "Amplification of **Parimelazhagar's** comments on the _Kural_," which Mr. **Drew** has published with his English version of that work.
 
-11 
+## Rāsappa Kavirāyer. --- [TAMIL].
 
+This poet was a native of _Kuttālam_ in the Carnatic, and is well known as the author of a popular Drama, under the title of _Kuttāla-kuravanji_ ([TAMIL]), in honor of _Siva_ in his character of _Kuttāla Nāther_, as he is worshipped at Kuttālam. Neither the date of his existence, nor his personal history is forthcoming; but that he was an able dramatist may be inferred from the style of his Drama, which now generally serves as a model.
 
-S"^ THE TAMfL PLUTARCH. 
+## Revanātiyār. --- [TAMIL].
 
-Ra SAPPA Kavira'yer --- ^arrsuud ssSniriun. 
+Revanātiyār was connected with the learned circle of _Saiva_ ascetics at Chillambaram, where he lived and died. He claims notice as the author of a metrical lexicon of Tamil synonyms, which though much briefer than **Mandalapuruder's** is yet better adapted for memory.
 
-This poet was a native of Kuttdlam in the Carnatic, and is welf 
-known as the author of a popular Drama, under the title of Kultdla- 
-Kuravajiji (ff^^^e^ia^rpsuer,^), in honor of Siva in his character of 
-Kuttala Neither; as he is Worshipped at Kuttalam. Neither the date 
-of his existence, nor his personal history is forthcoming ; but that he 
-was an able dramatist may be inferred fronrv the style of his Drama, 
-which now generally serves as a model. 
-
-Re'vana'tiya'r --- ^QseiK^^^uuL 
-
-Revanatiyar was connected with the learned circle of Saiva as- 
-cetics at Chillambaram, where he lived and died. He claims notice 
-as the author of a metrical lexicon of Tamil synonyms, which 
-though much briefer than Mandalapuruder's is yet better adapted 
-for memory. 
-
-SaM^ANTER <ru)U/5;J/T. 
+## Sampanter. --- [TAMIL].
 
 Sampanter is celebrated as one of the three champions of the 
 Saiva faith against the Jainas in the reign of the king Ku'na Pa'n- 
