@@ -1291,77 +1291,17 @@ Revanātiyār was connected with the learned circle of _Saiva_ ascetics at Chill
 
 ## Sampanter. --- [TAMIL].
 
-Sampanter is celebrated as one of the three champions of the 
-Saiva faith against the Jainas in the reign of the king Ku'na Pa'n- 
-DiYEN. The particulars of his life are related at great length in the 
-Tirutondsr Pw'dnam ; but with the exception of what we have here 
-extracted, the rest is too much blended with the marvellous to deserve 
-any notice. It appears that he was born of Brdhman parents of the 
-tribe of Kaxtniyer, at Shiydli, in the Carnatic. Such was the pre- 
-cocity of his genius, that while yet a child he acquired marked dis- 
-tinction as a poet, and visiting the different Saiva shrines chanted a 
-Pathigam (a poem of te» stanzas) in praise of each. About this 
-time Ku'na Pa'ndiyen embraced the Jaina leligion, and exerted his 
-utmost to establish it throughout his kingdom, but Sampanter having 
-succeeded in curing the king of a fever, which according to the le- 
-gend had baffied the drugs and spells of the Jaina priests, he not only 
-reconverted him to the Saiva religion, but at the same time instigat- 
-ed him to impale alive on the banks of the Vygai river at Madura 
-no fewer than eight thousand Jainas who had disputed with him and 
-been vanquished. Though he had always a strong predilection for 
-the ascetic life, yet in his sixteenth year upon the urgent entreaty of 
-his father, he married the daughter of Nambi^yanba'r Nambi, a Brah- 
-man of Tirunclli'ir ; but both he and his wife died on their wedding 
-day, whilst worshipping in the temple at Tirunellur. The number 
-of Pathigams he composed was 16,000, of which only 384 are now 
-extant. Amongst the lost Pathigams are reckoned one iu honor of 
-the Srtiurt shrine of Tirukkonamalci {Trincomalie ) ^ and another in 
-honor of the •Sai^ra shrine at Tiruk-kesuram (Mantotte). 
+Sampanter is celebrated as one of the three champions of the _Saiva_ faith against the _Jainas_ in the reign of the king **Kūna Pāndiyen**. The particulars of his life are related at great length in the _Tirutonder Purānam_; but with the exception of what we have here extracted, the rest is too much blended with the marvellous to deserve any notice. It appears that he was born of _Brāhman_ parents of the tribe of **Kauniyer**, at _Shiyāli_, in the Carnatic. Such was the precocity of his genius, that while yet a child he acquired marked distinction as a poet, and visiting the different _Saiva_ shrines chanted a _Pathigam_ (a poem of ten stanzas) in praise of each. About this time **Kūna Pāndiyen** embraced the _Jaina_ religion, and exerted his utmost to establish it throughout his kingdom, but Sampanter having succeeded in curing the king of a fever, which according to the legend had baffled the drugs and spells of the _Jaina_ priests, he not only reconverted him to the _Saiva_ religion, but at the same time instigated him to impale alive on the banks of the _Vygai_ river at Madura no fewer than eight thousand _Jainas_ who had disputed with him and been vanquished. Though he had always a strong predilection for the ascetic life, yet in his sixteenth year upon the urgent entreaty of his father, he married the daughter of **Nambīyandār Nambi**, a _Brahman_ of Tirunellūr; but both he and his wife died on their wedding day, whilst worshipping in the temple at Tirunellūr. The number of _Pathigams_ he composed was 16,000, of which only 384 are now extant. Amongst the lost _Pathigams_ are reckoned one in honor of the _Saiva_ shrine of Tirukkonāmalei (_Trincomalie_), and another in honor of the _Saiva_ shrine at Tirukkesuram (_Mantotte_).
 
-m, Sanbagavadivi --- ffessTus6>}tjfeS. 
+## Sanbagavadīvī. --- [TAMIL].
 
-Sanbagavadivi, styled by way of eminence Tamil Arival or one 
-Ttersed in the Tamil language and literature, was a poetess of snpB- 
+Sanbagavadīvī, styled by way of eminence _Tamil Arival_ or one versed in the Tamil language and literature, was a poetess of superior wit and accomplishments. Her history divested of its fabulous additions is as follows: she was the daughter of one of the maidservants ([TAMIL]) at the court of the king **Karikāl Chola**, who reigned at Ureiyūr. While yet a child she having recommended herself to the notice of the king by her uncommon genius for belles-lettres, was adopted into the royal family and had a splendid mansion with a retinue of attendants assigned to her. When she reached the age of puberty, her fascinating beauty gained her many admirers; but she resolved not to marry any one that could not overcome her in poetical contest, which every one who attempted failed, and she retained her solitary dignity until her twenty-fifth year, exulting in her invincibility. At length having excited the indignation of the professors of the Madura College by characterizing them as a set of dunces, in one of her verses, **Narkira**, the president of that College, encountered her, in the disguise of a wood-seller, and overcame her after a severe and prolonged contest, in which the parties alternately proposed and solved in their verses a series of enigmas as dark as those of a **Sphinix**. All the verses in which the enigmas were proposed and solved have been preserved, and we subjoin one in which the names of the twelve signs of the Zodiac are concealed.
 
+[TAMIL].
 
-THE TAMIL PLUTARCH. 
+_Three are found in the water (Pisces, Capricorn and Cancer), three in the forest (Aries, Taurus and Leo) and three in the country (Libra, Gemini and Scorpio), and these including the maiden (Virgo), the bow (Sagittarius), and the southern sage* (Aquarius), in all twelve, make up the year, if any one is able to understand them._
 
-
-63 
-
-
-tlor wit and accomplishments. Her history dive&ted of its fjibulous 
-additions is as follows : she was the daiighler of one of the maid- 
-servants {^eon^^uGuesisS'en) at the court of the king Karika'l Cno'- 
-LA, who reigned at Ureiyur. White yet a child she having recom- 
-mended herself to the notice of the king by her uncommon genius 
-for belles-lettres, was adopted into the royal family and had a splen- 
-did mansion with a retinue of attendants assigned to her. When 
-she reached the age of puberty, her fascinating beauty gained her 
-many admirers ; but she resolved not to marry any one that could 
-not overcome her in poetical contest, which every one who attempt- 
-ed failed, and she retained her solitary dignity until her twenty-fifth 
-year, exulting in her invincibility. At length having excited the in- 
-dignation of the professors of the Madura College by characterizing 
-them as a set of dunces, in one of her verses, Narkiba, the president 
-of that College, encountered her, in the disguise of a wood-seller, 
-and overcame her after a severe and prolonged contest, in which the 
-parties alternately proposed and solved in their verses a series of en- 
-igmas as dark as those of a Sphinix. All the verses in which the en- 
-igmas were proposed and solved have been preserved, and we sub- 
-join one in which the names of the twelve signs of the Zodiac are 
-concealed. 
-
-eiss.ifl&)tTL.eiiih unL^ei^iiOsniLi---etf 
-Qu>iTmjiSQ6\)iT^Q(Trf'(T^ QuetDjSujrrnQif>ew<^ 
-
-G)jgjb(^LDITQp6sB ;565r3sBrU^U3/T<sG'2Q/ 
-
-Three are found in the water (Pisces, Capr'ujorn and Cancer), three 
-in the forest (Aries, Taurus and Leo) and three in the country (Li- 
-bra, Gemini and Scorpio), a;i(i these including the maiden (Virgo), 
-the bow ( Sagittarius^, and the southern sage* (Aquarius), in all (loelve, 
-make up the year, if any one is able to understand them. 
+*) Agastiyer, one of whose names is _Kumbamuni_, referring to the fable of his having been born of a water-pot.
 
 Sankabanamasiva'ier --- s^isiainsui3=9(SutTiun. 
 
@@ -1372,12 +1312,6 @@ DA Tambira'n, the author of the //?rtM-a?irtA:o<^M. Upon the request
 of Marutiiappa De'ven, the Poligar of Utamalei, by whom he was 
 patronized, he wrote a commentary on Pavananti's Nannul, which 
 is admitted on all hands to be the best work of the kind. 
-
-* AoASTiYER, one of wliose names is Kumhamuni , referring to the fable ol 
-liis having been born of a water-pot, 
-
-
-84 THE TAMIL PLUTARCH. 
 
 Saravanaperuma'l Aiyer --- ffBeiiemuQu(miiinai ^tun. 
 
@@ -1429,9 +1363,6 @@ Saravanapcrumal Kavirayer was born of a Ve/ala family at Nal-
 lur, in the Carnatic. Having commenced his studies at the proper 
 ago, and mastered the art of poetry, ho became a poet at the court 
 
-
-THE TAMIL PLUTARCH. 55 
-
 or MuTTUHA WALiN-GA Se TUPATi, wlio asceiidcti tlic miisiuitl III Kam- 
 nnd in A. D. 1795. He was distinguished for liis marvellous proficiency 
 in the art of performing at one, and at the same time, eiglit difTerent 
@@ -1482,9 +1413,6 @@ Sa'ntaIinga De'siker --- ffni^eSiisQ^Qair.
 Santalinga Desiker was an ascetic of the Vira Saiva- sect, who 
 jived at Turciur, in thcCarnatic, and earned for himself much renown 
 
-
-86 THE TAMIL PLUTARCH. 
-
 by his high attainments both in the Vedic and profane literature. He 
 .seems to have devoted his attention chiefly to the exposition of the 
 Mystical Philosophy of tlie Hindus, and he has left no less than six 
@@ -1530,28 +1458,20 @@ Skngkundu'rkiziia'r --- Qs'ia^asr^niQifinn.
 Sengkundurkizhar was one of the forty-nine professors of the Mad- 
 vuH Collrgr, dislinguibhcd hv the honorary title of Tamil-asiriyer, 
 
-
-ti(K TAMir, I'l-urAKf rf. 87 
-
 6r Master of Tamil poetry. Nothing morf i.s kmiwii of his life, (;x- 
 co|)t that he was the author of tlic enconviastic improinptu ou the 
 Kural, which we quote lielow. 
 
-iSpiEjQan(offlLcn'^d.(^ua Qi-'ajirmn'Sisvui-^^iij 
-
-To call any one a poet upon this 6<trfh besides the divine Vallu- 
+To call any one a poet upon this rfh besides the divine Vallu- 
 VER, would be tike calling both the evening illumined by the moo7i, 
 and the evening shrouded in darkness, a fine evening. 
 
 SEYALu'RKOmrNCHENGKANNANA'R Qs=iU&ff- nsQa n^ (if) Qs'tSJSSssar 
 
-
 This poet was one of the forty-nine professors of the Madura Col- 
 lege ; but neither his parentage, nor the history of his life is known, 
 and moreover of his compositions only the following stanza, which' 
 he uttered on the Kural, has been preserved. 
-
-(D6ii^uQu!T(r^'^ icS [fsni30<QSffl^^eoQsrr 
 
 Valluver has in Tamil ingeniougly explained tcithin the narrow 
 compass of his Kural the substance of the Vedas, that the world may 
@@ -1574,9 +1494,6 @@ very much, and one day having found an opportunity of talking to'
 the king on the subject, he expostulated with him on the impropriety 
 of his conduct in reading an heretical work. The king took his ex- 
 postulation in good part ; but asked him whether he could name any 
-
-
-yd tllE TAMIL PLUtARCH. 
 
 Suica poem which possessed superior merits. He thereupon recited 
 hefore the king Najibi' s Antiidi (a poem in 100 stanzas treating 
@@ -1623,15 +1540,6 @@ published by the American Missionaries in Jaffna. His death took
 place in 1840, and a contemporary poet has commemorated that 
 event in the following quatrain : 
 
-ffi ff (CT)^ Xr ff ul? L_ (JO ^ 6OT 6?f? 6\) « ,5 S3Sr (STO) (IT;^ <? O .^ UJ 
-
-
-fUE TAMtl, PLUtAttCH. 8d 
-
-
-Se NDANA'R 
-
-
 Seiuianar ns n^prcsidnted by himself, was a Srdhtidn of Ambel, a 
 hnvn on the banks of the Kaveri, in the Tanjorc country, and he ac- 
 quired tlie titU^ of Ubdijd kavi or the double poet, on account of his 
@@ -1669,18 +1577,10 @@ praise, not knowing the way to his house, enquired of the children
 for it ; upon which Sinnatamby came forward^ and answered him in 
 the following impromptu :--- ^ 
 
-^3fi-jSLpr5s\}^inTssr eSs\)6\)surrfTajm seats 
-Qjn^s\S<o!DL-dQsn&iTss}/DLDrrih. 
-
 to, there is a Kondei tret* at the golden gate of Villavaha'ya, 
 of Nellore, whose fame is diffused every where as vividly as lighten' 
 
 Cassia Fist til a. 
-
-19 
-
-
-9i} THK Tamil plutaRch. 
 
 tug, shower iiig down its golden flowers full of pungent anthers, and 
 affording good shade to the people with its luxuriant branches. 
@@ -1709,7 +1609,7 @@ Of the number of Chapters in the Kural four pertain to the preface.,
 thirty-three treat of virtue, one of fate, seventy of wealth, and twenty- 
 five of pleasure, and such is the arrangement of Valluver's work. 
 
-Sivagna'na De'siker^ --- &eij(^rreisr<x^9<siT. 
+Sivagna'na De'siker^ --- &eij(^rreisrsiT. 
 
 Slvagnana Desiker, who was the Tambira'n of the Matam at Tir- 
 Uvavaduturei in Tinnevelly, deserves notice both as a metaphysician' 
@@ -1723,14 +1623,11 @@ best helps for students in acquiring a correct knowledge of belles let-
 tres. His Illakanavilakka-churdvali {^eoAaecsteSea a>&ff^,njeue^), a 
 critique on the lUakana-vilakkam oj Vyttiyana'tha Na'valer, is 
 
-
-THE TAMIL PLUTARCH. J>t 
-
 very ably written; but we do not admire the spirit which dictated it^ 
 for whilst the faults of the work are exposed with excessive rigour, 
 Us merits are studiedly concealed. 
 
-SiVAPRAKa'sA De'SIKER 9<SiJUlSljjre(T^Q;S&ilT. 
+SiVAPRAKa'sA De'SIKER 9lSljjre(T^Q;S&ilT. 
 
 Sivaprakasa Desikcr was the eldest of the three sons of Kuma'ra- 
 swa'mi Panda'kam, a Jangama priest, who lived at Kanjipuram iu the 
@@ -1769,9 +1666,6 @@ as required, and found the poet in the temple there. No sooner had
 the object of his visit been reported to the poet than he challenged 
 
 The head of the village. 
-
-
-98 THE TAMIL PL.L"fAncn. 
 
 him to a contest, in which each was to improvise thirty Yamakama 
 stanzas (a kind of stanza consisting of four lines beginning with the 
@@ -1854,16 +1748,6 @@ and the Nos. 8,9, 10, 11, 12, 13, 14, 15, 16, 17, 18, 19 and 20 of
 the praise of certain Saiva shrines, while the No. 21 contains a series* 
 of moral apothegms, from which we quote below a few as specimen, 
 
-QufBiusuii^ibQiBijdjQunp iSlroirQ/BirdjsessrQsrrefr 
-Qir)if!tiSissB(Lp^nQ>jQ!issis --- Q^ifluSlLpnuj 
-insmQiSesdluJijeo en(7^i^L9p(Sij^ue3)u4 
-
-GuffrSli^ijssrrdi^m L3pij^uJni^fl!GjQ(caj 
-
-Qsuiij(^(SS)a^ffdSipunn eSJapLSlQiunii --- ^lEJsea 
-S(oS)pii9(rF)'2tsni'iai SQ^^n^eoQ 
-€sBiss)piiSQ'2eris(^Qmesflmg^, 
-
 The worthiffeel the griefs of others as their oion griefs as butter 
 meltcth in the fire; thus., 0 thou who art ornamented with choice jew- 
 els ! the pain caused to a limb by a loQal disorder the eye beholds and 
@@ -1903,26 +1787,6 @@ As a specimen of the style and tenets of Sivavakiyar, we subjoin
 the five following stanzas, and th.cir English translation by the late 
 JMr. Ellis. 
 
-L^saei](iT,& autreotuiassir (^Lpsui^O^^js'^esr 
-^6a!iri---iT(2sfrssf^0UL3i---LD^ih^6saTiTii^(^rTopffs&r 
-aeasri---QsnuSjbOjDUJeijQLDsir^ ensQlaj®uu^&)'2e^QiU, 
-
-wnea!rLLjmsaPiOir&)&)inLeu^^(oe\)uSles)psQ/^iT 
-
-^esiiTiuesTesroijeo&SjjiTiLi &ei:u^iki3&rQ<s^n&inih. 
-
-^rflaJLDS\)60suir^Loeoe\)suuj^u}6060isiJuLjpisi 
-!9S(T^etaLDQsuem6aLDQ,^i}>eiaLDiLiiii sL^i^rSskpsfrrresard) 
-
-^ifliuQpiasi---ii^rSekp ^ir^ir^srQLPr 
-
-arT^sunLSafretDpsLhiS i^L^sihOufTekO(6V)B!rp&}(o&)iT 
-ffn^Qu^Quon^Qmp ^GSTenwQujasrioar^meaLDQiu. 
-
-apih^unioQp'^LjSiT setsi---i^QeLemQesBTiLiCcmnnLi'Sn 
-
-Ga ijf.i^Qsunff<a!ii---uS6!rfliLi^ni^Lj^LDjriMi^stT 
-eSpii^QuneaiLcfTGsB '---.[flesftuLSpuu^lev'^Qujf 
 
 Formerly hoio many /lowers have I gathered and scattered. 
 Jloio many prayers have I repeated in a vain ivorship 7 
@@ -2012,9 +1876,6 @@ ache, by hearing the Kural recited, because it contained no faults.
 The following is the impromptu which he uttered in praise of tliG 
 Kural : --- 
 
-Of. \h (ip S 3r OP ^ ^ l8 Qg (^sOsni^LLj QpUJiDITiSj 5 
-
-unQp<s^pQ^n<su(3!r(^Sij{rQfiuuneo. 
 The three parts (of the Kural) tomposed by VALHtvF.R, dre edch a 
 garland on the crowns of the three kings (Chera, Chola and Pandiya', 
 who are respectively possessed of the thi'ec mountains Kolli, Neri and 
@@ -2031,7 +1892,7 @@ This poet was a member of a Bi'ahman family at ^Zrttr Tiunevelhj-,
 In the Carnatic. The time of his bifth, as well as that of his death 
 is not known ; but he was contemporary with Samina'da Tambiran, 
 who makes honorable mention of him in his Introduction to the lllak- 
-kanakottu. He wrote the Prayogd-Vivegam (.i3iQiins6S>(S<i)jSih)i a 
+kanakottu. He wrote the Prayogd-Vivegam (.i3iQiins6S>(i)jSih)i a 
 treatise highly esteemed on account of its being a great help in tho 
 composition of poems* 
 
@@ -2051,9 +1912,6 @@ ited the different Siva fanes in Southern India, and hymned their praises
 
 Mcniapermum cnrdifolium. 
 
-
-THE TAMIL PLUTARCH. 97 
-
 m a series of 37,000 Pathigatns, cacli consisting of ten stanzas. It is 
 liowevcr certain that he did not preserve continence which is mani- 
 fest from his amorous intrigues with the two courtezans Paravei and 
@@ -2067,7 +1925,7 @@ riod of the existence of Sundarcr and his two fellow Champions in
 the fifth century of the Christian era for a certainty and thereby clear 
 it from the monstrous chronology of the Puranas. 
 
-Su'DIKODUTTA Na'CHIYA'R @if <lisO«/T®/^/5;7uJi©aJ/7/f. 
+Su'DIKODUTTA Na'CHIYA'R @if sO«/T®/^/5;7uJi©aJ/7/f. 
 
 Sudikodutta Nachiyar, otherwise called A'nddl, was the poetess who 
 composed the poems called TirujJdvei (^(^uuTgooj), and Tirumozhi 
@@ -2177,16 +2035,9 @@ tention entirely to metaphysical researches and wrote a work on the
 subject, entitlod Kaivali/a-navanitam ^estseuffOiuihoji^itb), consisting 
 of 293 stanzas. 
 
-
-THE TAMIL PLUTARCH. 
-
-
-99 
-
-
 Ta'yuma'nater --- jsfriLjLDtr (1ST SUIT. 
 
-Tayuma'naver was born at Trichin<ipoly, in the €arnalic about 
+Tayuma'naver was born at Trichinipoly, in the €arnalic about 
 150 years ago. His father Kediliyappa Ph-lei belonged to the 
 Veldla caste, and was Samprati or accountant to the king Vijaya 
 Regiiunatha Chokalinga Naya'ker. Having through the endeav- 
@@ -2235,10 +2086,7 @@ the tribute, and resisting the force which the king had sent to compel
 payment, he was deprived of his vice-regal authority, and left desti- 
 tute, upon which he turned out a freebooter, but robbing only those 
 who hud not the Vaishnava marks on their foreheads. He obtained 
-f\\v U[\*: <A' N'ltlinriprriiwoJ \\o\n ih(: f^klU which he di^j^luycd in the 
-
-
-100 THE TAMIL PLUTARCH. 
+f\\v U[\*: ' N'ltlinriprriiwoJ \\o\n ih(: f^klU which he di^j^luycd in the 
 
 composition of the four kinds of poems*, and it is said that when 
 SAMPANTERjthe famous champion of the Saivasecl, disputed his right 
@@ -2280,9 +2128,6 @@ er will seethe striking coincidence between the doctrine which they
 inculcate, and that of the Bible: --- 
 
 * Sue Rotler's Tamil and English Dictionary' under the word «rf. 
-
-
-THE TAMIL PLUTAHCH 101 
 
 The ignorant think that God and love arc different; none knows that God and 
 lore are the saine ; did all men know that God and love were the same, they 
@@ -2340,9 +2185,6 @@ a youth, he had acquired so great a reputation for learning that Ma e-
 
 A priest of the Pariah tribe. 
 
-
-iMi rut; TAMIL rLUTARCU. 
-
 OASAGAYEN, a weullliv farmer who lived at Kaveripakam, did not dis- 
 dain to bestow on him the hand ofliis only daughter named Va'suki, 
 and besides the highest personages in the place felt a pride in the en- 
@@ -2391,9 +2233,6 @@ It is dillicult to judge from the tenor of his Rural to what sect he
 belonged; for he has entirely avoided in the work every thing that 
 
 ' ??oe Ellis' Kuriil, p. 168. 
-
-
-THK TAMII, I'LUTARCH. Hf.i 
 
 savours of sectariauisnv in order to liarmoni/.e the sivflVages of all thu 
 sects. The Jainas, howovtn*, claim liim to belong to tht'ir sect from 
@@ -2448,9 +2287,6 @@ Land of the Veda, p. 110.
 
 " The Rural of Tiruvalluver, a work consisting of 1333 distichs, or 
 
-
-104 THE TAMIL PLUTARCH. 
-
 poetical aphorisms, on almost every subject connected with morals 
 and political economy, and which is regarded by all Tamilians (and 
 perhaps justly) as the finest composition of which the Tamil can boast 
@@ -2497,7 +2333,7 @@ u5fT«n<?fai'ffati), a short but elegantly written treatise on the meta-
 phors employed in describing the charms of the fair sex, and which 
 greatly facilitates the composition of erotic poems. 
 
-Tiruve'nkataswa'mi --- ^0Q<syissL-Sfs^iTu9. 
+Tiruve'nkataswa'mi --- ^0syissL-Sfs^iTu9. 
 
 Tiruvenkataswami, who was a Brdhman o^ Madei, in the Carnatic, 
 distinguished himself both as a poet and metaphysician. The date 
@@ -2521,9 +2357,6 @@ Xhia he was one of the forty-nine professors of the Madura College.
 His name would have long ago been forgotten, but for his encomias- 
 tic stanza on the Kural, which we quote below. 
 
-OuniuuuiTGoQunujQujiunuju(cuiruSiourQurrujiu6\)e\}fTjS 
-QiniLuuire^QLOLUtunib sSetnaQiosrQsu --- (ipuurreS/b 
-
 By the Kural, the production of the divine Tirtjvalluver, the 
 world has been enabled to distinguish truth from falsehood which 
 were hitherto confounded together. 
@@ -2545,28 +2378,6 @@ treatise on hygiene, entitled Noiyanugdvidhi {Qihaiu^nsnsS^).
 
 The following stanzas we quote from Tereiyer's treatise on hy- 
 giene, as a specimen of his theories : --- 
-
-QusssrssSmunQeonmo^pu QuQ^asirixi --- ^^^j^jiEJiBiT 
-Qucr}i(oS)jdSl'bQufTQLDL9sssf). 
-
-
-(ipp!SJ^<aiJ^a!TQsiJfTLSluJU US ^pis (^QffUuQlJUrrLD 
-G)U6!!BrSL---etaLD^^(EIS(GfTd(SsiTITSIT60^rSlu:i(r^Q<aUITih 
-
-Qu(7Kih^iTaQLDQ^^i^^th Quiun^^i^iKT^iiQ^iTth 
-
-l£l6SBrUIT£}jQl^lij(^S<Slf)p SST^SSuTlUeirpSuLI&QujrTLD 
-
-14 
-
-
-106 THE TAMIL PLXJTAKCB. 
-
-'sS^s^fitBiTil.QsnQ^.iairQssrdjQfiQ^sosia^^^QfjiTilt 
-eSlL^S(^da(^^esFQ/}d!r^ ismlQsnQfiss[TsSI(SiQ^nth 
-
-nsir^aii^thLfLLuLSJeaetj w®S&u3s!rQpaQsrrua 
-muxeff^ndSijQs^aeiasu (EinSl(t^d(^ijSu.fiQ^* 
 
 He who does not suppress the ahine discharges f he who does tiot 
 indulge in venery ; he who at meals drinks water that has been hoiUd ; 
@@ -2607,9 +2418,6 @@ on the mode of living for the preservation of health ; and we consid-
 * A medicine prepared from the juice of certain lierbs and injected into the 
 nostrils to promote the discharge of mucus. 
 
-
-THE TAMIL PLUTARCH. 10? 
-
 er that an English translation of this work will no doubt prove a 
 -valuable auxiliary to medical men in England in their researches 
 into the Materia Medica of India. 
@@ -2619,10 +2427,6 @@ Todittalei Vizhuttandinar was one of the forty-nine professors of
 the Madura College. What has contributed to preserve his name 
 from oblivion is his encomiastic stanza on the Kural, which we sub- 
 join. 
-
-^pQpesrQpeBnJu^^QjFLU^ --- QupeoiBuj 
-
-Q U n^Q Lon L^ i^Q u n c^efT' 
 
 The greed poet has in his Kural divided tlte topic Virtue^ into four 
 sections ; the topic wealth into seven sections ; and the topic pleasure 
@@ -2655,13 +2459,10 @@ are respectively called after the names of the commentators Nachchi-
 na'rkiniyam) {ihS^^^nsSosBiuii))^ lla7npuranain{@6tTiiiy,n€Ssnb),a.nd 
 Sena'vareiyam (Ctf@)Qj65)ffwu)). 
 
-ToNDARAmppo'Bi A'ZHVAR --- Q^irGSBn-!ru^uQum^ujnys<SiJirir- 
+ToNDARAmppo'Bi A'ZHVAR --- Q^irGSBn-!ru^uQum^ujniJirir- 
 
 This poet, whose real name was Vipra Nara'yaner, ranks high in the 
 ■estimation of the Vaishnavas as one of the twelve special votarie* 
-
-
-]08 THE TAMIL PLUTARCH. 
 
 « f Vishnu. He was born of a Brahman family at Tirumandang- 
 kudi, and after having completed his course of studies in the Ve- 
@@ -2713,15 +2514,9 @@ of stanzas, illustrative of the doctrines as taught in the i4'^« /has re-
 specting the existence of God, his essence and attributes, and of the 
 
 
-THE TAMIL PLUTARCH. 
-
-
-109 
-
-
 nature of the human soul, and the organization of the human body. 
 Wc are glad to notice an abstract of its contents translated into 
-English by the Rev. He::<ry R. IIoisington, and published in the 
+English by the Rev. He::ry R. IIoisington, and published in the 
 fourth volume of the Journal of the American Oriental Society. He 
 was also the author of the Tirutonder Puranasa'ram {^^i^^Q^nsmt-fr 
 LfDrrems^naii), in which he has, in the narrow compass of seventy-five 
@@ -2752,9 +2547,6 @@ of the forty-nine professors of the Madura College ; but we have no
 particulars of his life, or any of his compositions, save the subjoined 
 impromptu on the Kiirah 
 
-G^eSp&pi^ ^(T^<QiJ<cir(efK6un(^p&TQsijea!ir 
-uireSpQpiB^®Qpuun&) usnnn --- leneSf) 
-
 They wlio have not studied the Rural of the divine Valluver are 
 incapable of good actions; neither their tongues have expressed what is 
 sweet in language, nor their minds understood what is suhlime in sense. 
@@ -2770,9 +2562,6 @@ ors of the Madura College as to superiority, in consequence of each
 of them having composed a poem, and each vaunted the merits of his 
 own composition, they chose him as arbitrator to settle that dispute. 
 Having heard the professors each recite his poem, he adjudged some 
-
-
-110 THK TAMIL PLUTARCH. 
 
 to be good in style, but bad in sense ; and some to be good in sense 
 but bad in style ; and nodded approbation only to those composed by 
@@ -2868,9 +2657,6 @@ titular, denoting his adroitness in the composition of verses of the
 Venba metre. He appears to have been a very eccentric character j 
 for we are told that shortly after he had finished his studies and 
 
-
-112 THE TAMIL PLUTARCH. 
-
 obtained a reputation as a poet, he became an ascetic and lived upon 
 alms until he was persuaded by the Raja of Sivaganga to take up 
 his residence in his palace. Whether he composed any larger poems 
@@ -2915,22 +2701,6 @@ on Grammar, and Classics, tended very much to enhance the value of
 that periodical, and drew forth to him from the Editors their high trib- 
 ute of thanks through the following stanza : --- 
 
-^esTQ^&rQeu^LDSSip QtjuiT^(ip(si:!)pQun^(T^isSQ!e^^S<s^p(Qnec!rffiBfi^ 
-
-
-THE TAMIL PLUTARCH. 113 
-
-C/5(T5<«^ LDlT^q^SBT^rr^UJIT (?LD(75@ SOOT ^V<?JZ? /TOT Q^ nLj6\)<Bj IT'V fT 
-
-uJJF(!K lEnGssrsys&mmfluS^/srrffesr/^ujnQ^'ff^ni-K^Lh --- snij^s'^efrQinir^ 
-
-di ^&)(i^ssiinffng0ihaS^ su n iL <oSi imQ lu a l--- na a tuisifi-j'fliu n --- LDiJLD^esiUj 
-IB n f&^ ih au ca n ^niTSiasaS^^eOs <siinQ:f\(iT)'2c{rQ(vsisf-Q3=uj^n<ck --- Cou) 
-<s;fls(B<cki^nGir^uQ<G^^in^mnSe\)LSimi^^i3asiT,fLD^!a>iniJu --- QlduSI 
-
-^(^gst^lBu^ LDir^esTLo&zrQLDei^Ljaj Qsu^Qfflmrs^g^^sS --- Q ld^ esf! uS 'do 
-ajff^iBsQjn^LSlsff}iJyj^G\iQp ijS'^sOQpQLD^ixiflQ^. 
-
 See Morning Star, vol. 1. p. 280. 
 
 Ho dill not, however, compose any epic poems. All that he has 
@@ -2964,16 +2734,6 @@ at Perumatur in the seventy second year of his age.
 
 The following is an elegiac verse which he recited extempore on 
 the death of his two brothers : --- 
-
-j)jffO sS ui60 n u u ssBT csa SL ^ LotT rf rr 'Ij 15 ^. tS s sS ioSi^s 
-15 
-
-
-114 
-
-
-THE TAIIH. PLUTARCH. 
-
 
 O Damsel, whose teeth t'le inth the Jessamine fiower in heauty ! Born 
 as I was second of three brothers, whose poetry, even the God enthron- 
@@ -3021,19 +2781,6 @@ cation with an eulogy on rain, and the following two stanzas as quot-
 ed by Mr. Ei.lis, in his comments on the Kural. form the first part 
 of it : 
 
-
-THE TAMIL PLUTARCH. 
-
-
-115 
-
-
-(g&}rLDrrdQs6sreii^^uS!&)LDL9i^Qun L^i^ 
-^rT6ST(Sms<omrrsijirdQesrfifl(Siiin(cjSiTp/DiM' 
-
-Qff-&)&Sioa)UJ^eo!J^Q^(H.9=6srLD<oS)/r)dasLjLD3rid^<i 
-seoeSiu&sTQfi'^uunso .a^jji^etfl^QjSesrdanemQii. 
-
 The earth, impatient of the scorching heat oj the sun of heaven, to 
 annoy him assumed the form of a slujjendous vioxmtain ; the bright 
 burning sun, calling Jorth the armies of the clouds, ordered them to 
@@ -3072,11 +2819,6 @@ zas. It is decidedly a masterpiece, for scarcely any Tamil epics,
 except perhaps Kamber's Ramayanam, can vie with it either in "vivi- 
 da vis auLini" or churniij of language and vcrcificatioii. 
 
-
-116 THE TAMIL PLUTARCH. 
-
-Vl RAPA iNDlYA PuLAVER a?JU/T6OT if (iJUL/6\)a ff. 
-
 This poet who lived in the latter part of the eighteenth century of 
 the Christian era, was the son of a tailor at Tutocoryn. Imbibing 
 a dislike to his father's profession, he applied himself to the study o£ 
@@ -3111,20 +2853,6 @@ Kdndam, containing the lamentations of the Queen ChandramaLi on
 finding her son lying dead in a wood by the bite of a sevj)ent, arc 
 very pathetic and affecting : --- 
 
-eueufliuniuQsiJiEJ'^smsrsufTeSnoi^cij^u/TeuQiD^QjsneorSIQuj^ 
-
-LX>ss>pQuun6afl!iSi£tSij<o(r(5rrL-2esT^^L0 (au(Lp6iin^^^^<suL^Q<^ 
-eSlsapQujnssreffl^^LDsQesriLjesrd^^LSl^QsufTsSl^^^eS^Quj. 
-
-eijnsSS5rfSL^i^Q3'iT(flslssip^n(SSi!JUizsiLf:QunioO^LpeSiL^M 
-
-
-THt TAMIL I'LLTAUtH. IH 
-
-QaiT^ (off' 
-
-Qsijd.'(osnuiun'2esr^^ei!TLDebioin6sri})sawsSQs:Sd'iOaiJsmGS3flaij(r^fBn 
-
 I do not know what heinous &in I have commit fed that thou shouhlst 
 meet with thy death from the cruel serpent with protuberant eyes and 
 which suffers neither from l)eing drenched xc'ith deu\ nor searched with 
@@ -3148,7 +2876,7 @@ er, icho sways the scejytre unth justice and equals the fierce elephant in
 strength, shall return to redeem iis and ask me "where is my darling 
 S0«?" ichat shall I say to hivil 
 
-ViSVANa'tHA Sa'STRIYA'R---- a? ^6^/5/7^ <r/T5ru^//?UJ /7/f- 
+ViSVANa'tHA Sa'STRIYA'R---- a? ^6ru^//?UJ /7/f- 
 
 Visvanatha Sastriyar was both a poet and astronomer who flourish- 
 ed among the Brahmans at Araly, a village of Batticotta, in Jaffna. 
