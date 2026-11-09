@@ -1293,9 +1293,9 @@ Revanātiyār was connected with the learned circle of _Saiva_ ascetics at Chill
 
 Sampanter is celebrated as one of the three champions of the _Saiva_ faith against the _Jainas_ in the reign of the king **Kūna Pāndiyen**. The particulars of his life are related at great length in the _Tirutonder Purānam_; but with the exception of what we have here extracted, the rest is too much blended with the marvellous to deserve any notice. It appears that he was born of _Brāhman_ parents of the tribe of **Kauniyer**, at _Shiyāli_, in the Carnatic. Such was the precocity of his genius, that while yet a child he acquired marked distinction as a poet, and visiting the different _Saiva_ shrines chanted a _Pathigam_ (a poem of ten stanzas) in praise of each. About this time **Kūna Pāndiyen** embraced the _Jaina_ religion, and exerted his utmost to establish it throughout his kingdom, but Sampanter having succeeded in curing the king of a fever, which according to the legend had baffled the drugs and spells of the _Jaina_ priests, he not only reconverted him to the _Saiva_ religion, but at the same time instigated him to impale alive on the banks of the _Vygai_ river at Madura no fewer than eight thousand _Jainas_ who had disputed with him and been vanquished. Though he had always a strong predilection for the ascetic life, yet in his sixteenth year upon the urgent entreaty of his father, he married the daughter of **Nambīyandār Nambi**, a _Brahman_ of Tirunellūr; but both he and his wife died on their wedding day, whilst worshipping in the temple at Tirunellūr. The number of _Pathigams_ he composed was 16,000, of which only 384 are now extant. Amongst the lost _Pathigams_ are reckoned one in honor of the _Saiva_ shrine of Tirukkonāmalei (_Trincomalie_), and another in honor of the _Saiva_ shrine at Tirukkesuram (_Mantotte_).
 
-## Sanbagavadīvī. --- [TAMIL].
+## Sanbagavadivi. --- சண்பகவடிவி.
 
-Sanbagavadīvī, styled by way of eminence _Tamil Arival_ or one versed in the Tamil language and literature, was a poetess of superior wit and accomplishments. Her history divested of its fabulous additions is as follows: she was the daughter of one of the maidservants ([TAMIL]) at the court of the king **Karikāl Chola**, who reigned at Ureiyūr. While yet a child she having recommended herself to the notice of the king by her uncommon genius for belles-lettres, was adopted into the royal family and had a splendid mansion with a retinue of attendants assigned to her. When she reached the age of puberty, her fascinating beauty gained her many admirers; but she resolved not to marry any one that could not overcome her in poetical contest, which every one who attempted failed, and she retained her solitary dignity until her twenty-fifth year, exulting in her invincibility. At length having excited the indignation of the professors of the Madura College by characterizing them as a set of dunces, in one of her verses, **Narkira**, the president of that College, encountered her, in the disguise of a wood-seller, and overcame her after a severe and prolonged contest, in which the parties alternately proposed and solved in their verses a series of enigmas as dark as those of a **Sphinix**. All the verses in which the enigmas were proposed and solved have been preserved, and we subjoin one in which the names of the twelve signs of the Zodiac are concealed.
+Sanbagavadivi, styled by way of eminence _Tamil Arival_ or one versed in the Tamil language and literature, was a poetess of superior wit and accomplishments. Her history divested of its fabulous additions is as follows: she was the daughter of one of the maidservants ([TAMIL]) at the court of the king **Karikāl Chola**, who reigned at Ureiyūr. While yet a child she having recommended herself to the notice of the king by her uncommon genius for belles-lettres, was adopted into the royal family and had a splendid mansion with a retinue of attendants assigned to her. When she reached the age of puberty, her fascinating beauty gained her many admirers; but she resolved not to marry any one that could not overcome her in poetical contest, which every one who attempted failed, and she retained her solitary dignity until her twenty-fifth year, exulting in her invincibility. At length having excited the indignation of the professors of the Madura College by characterizing them as a set of dunces, in one of her verses, **Narkira**, the president of that College, encountered her, in the disguise of a wood-seller, and overcame her after a severe and prolonged contest, in which the parties alternately proposed and solved in their verses a series of enigmas as dark as those of a **Sphinix**. All the verses in which the enigmas were proposed and solved have been preserved, and we subjoin one in which the names of the twelve signs of the Zodiac are concealed.
 
 [TAMIL].
 
@@ -1303,86 +1303,25 @@ _Three are found in the water (Pisces, Capricorn and Cancer), three in the fores
 
 *) Agastiyer, one of whose names is _Kumbamuni_, referring to the fable of his having been born of a water-pot.
 
-Sankabanamasiva'ier --- s^isiainsui3=9(SutTiun. 
+## Sankaranamasivāyer. --- [TAMIL].
 
-Neither the date of the birth, nor the death of this poet is known -, 
-but we are certain he was alive in A. D. 1770. He was a native of 
-Tinnevelly, and prosecuted his studies under the tuition of Sa'mina- 
-DA Tambira'n, the author of the //?rtM-a?irtA:o<^M. Upon the request 
-of Marutiiappa De'ven, the Poligar of Utamalei, by whom he was 
-patronized, he wrote a commentary on Pavananti's Nannul, which 
-is admitted on all hands to be the best work of the kind. 
+Neither the date of the birth, nor the death of this poet is known; but we are certain he was alive in CE 1770. He was a native of _Tinnevelly_, and prosecuted his studies under the tuition of **Sāminada Tambirān**, the author of the _Illakkanakottu_. Upon the request of **Maruthappa Deven**, the _Poligar_ of Utamalei, by whom he was patronized, he wrote a commentary on **Pavananti's** _Nannul_, which is admitted on all hands to be the best work of the kind.
 
-Saravanaperuma'l Aiyer --- ffBeiiemuQu(miiinai ^tun. 
+## Saravanaperumāl Aiyer. --- [TAMIL].
 
-Saravanapcrumal Aiyer was born of a Jangama family long settled 
-at TiriUanigei^ near Madras. He prosecuted his studies under the 
-eye of his father Kandappa Aiyer, who was a man of extensive 
-learning, and being endowed with great talents, he was soon able to 
-assert his superiority over the poets of his day, and to preside over 
-the Viveha-kah'ichchdlei, a Literary Institution established at Madras 
-by certain Native gentlemen for the promotion of Tamil literature. 
-The first and most prominent of his works was a commentary on the 
-Ku7'al, which he published with the te.\t in 1830 ; and the next, a 
-treatise on grammar, under the Ul\e o( lyattamil-churukkam i@ivprr)u9 
-i^5F3ii{^3,ath) ; and another on Rhetoric, under the title of Aniyiycl-ii' 
-lakkam (^^ssS\i9jjsosSsns,s,ih). He also wrote a treatise on Geogra- 
-phy, entitled Goladipikei (Qanen^iJooa), in which he exploded the 
-Puranic, and adopted the Copernican system, establishing it by quo- 
-tations from the ancient Hindu authors, especially with regard to the 
-rotundity of the earth. The latter part of his life was chiefly employ- 
-ed in revising and editing many of the Tamil classical works, which 
-having hitherto been circulated in manuscript, had been rendered 
-erroneous by the carelessness of copyists. Amongst these may be 
-mentioned the Naidatham (.stS)tT>L.^it), Ndladiydr [meois^iunh)^ Tiru- 
-vasagam {^((^sun&iih) , Tiruvilleiyddcl Purdnam {^^eBosn'jjni---ipi^un 
-6OTii>), and the moral apophthegms of the poetess Auveiyar. 
+Saravanaperumāl Aiyer was born of a _Jangama_ family long settled at _Tirutanigei_, near Madras. He prosecuted his studies under the eye of his father **Kandappa Aiyer**, who was a man of extensive learning, and being endowed with great talents, he was soon able to assert his superiority over the poets of his day, and to preside over the _Viveha-kalvichchālei_, a Literary Institution established at Madras by certain Native gentlemen for the promotion of Tamil literature. The first and most prominent of his works was a commentary on the _Kural_, which he published with the text in 1830; and the next, a treatise on grammar, under the title of _Iyattamil-churukkam_ ([TAMIL]); and another on Rhetoric, under the title of _Aniyiyel-vilakkam_ ([TAMIL]). He also wrote a treatise on Geography, entitled _Goladīpikei_ (கோளதீபிகை), in which he exploded the Puranic, and adopted the Copernican system, establishing it by quotations from the ancient Hindu authors, especially with regard to the rotundity of the earth. The latter part of his life was chiefly employed in revising and editing many of the Tamil classical works, which having hitherto been circulated in manuscript, had been rendered erroneous by the carelessness of copyists. Amongst these may be mentioned the _Naidatham_ ([TAMIL]), _Nāladiyār_ ([TAMIL]), _Tiruvāsagam_ ([TAMIL]), _Tiruvilleiyādel Purānam_ ([TAMIL]), and the moral apophthegms of the poetess **Auveiyar**.
 
-Saravanamuttu --- ffrreuemQp^^. 
+## Saravanamuttu. --- [TAMIL].
 
-Saravanamuttu was the son of Manappuli Mudeliar of Nelloi-e, 
-in Jaffna. Being gifted with natural talents and having had very early 
-in life the advantage of pursuing his studies under the guidance of 
-the celebrated Pundit Senatiiakaya Mudeliar, he was enabled to 
-master the Tamil language and its literature, and to acquire the dis- 
-tinction of being considered as one of the best poets of the day. But 
-unhappily in 1845, when his reputation was at its zenith and much 
-was expected of him, he was hurried away to the grave in the forty- 
-third year of his age. He was a valuable contributor to the Morning 
-Star on several important questions on Grammar, and also took a part 
-in the controversy which was carried through that periodical between 
-Vedaghiri Mudeltar and others, concerning the construction of a 
-verse in the Naidatham. Ho wrote a treatise on Hindu Theology, 
-culled Yeddnlasicayamjoti {Qev^nm^siaje^Qs'n^), and translated into 
-Tamil verse the Sanskrit work on the .same subject, entitled A'tma- 
-hhoda Prakdsikai {^^u>QuiT§ui3aan^66)S). 
+Saravanamuttu was the son of **Manappuli Mudeliar** of _Nellore_, in Jaffna. Being gifted with natural talents and having had very early in life the advantage of pursuing his studies under the guidance of the celebrated Pundit **Senatharaya Mudeliar**, he was enabled to master the Tamil language and its literature, and to acquire the distinction of being considered as one of the best poets of the day. But unhappily in 1845, when his reputation was at its zenith and much was expected of him, he was hurried away to the grave in the forty-third year of his age. He was a valuable contributor to the Morning Star on several important questions on Grammar, and also took a part in the controversy which was carried through that periodical between **Vedaghiri Mudeliar** and others, concerning the construction of a verse in the _Naidatham_. He wrote a treatise on Hindu Theology, called _Vedāntaswayamjoti_ ([TAMIL]), and translated into Tamil verse the Sanskrit work on the same subject, entitled _Ātmabhoda Prakāsikai_ ([TAMIL]).
 
-Saravanaperuma'l Kavira'yer --- ffffsusssr uQu^mirm ssSuirjuii. 
+## Saravanaperumāl Kavirāyer. --- [TAMIL].
 
-Saravanapcrumal Kavirayer was born of a Ve/ala family at Nal- 
-lur, in the Carnatic. Having commenced his studies at the proper 
-ago, and mastered the art of poetry, ho became a poet at the court 
+Saravanaperumāl Kavirāyer was born of a _Velāla_ family at _Nallūr_, in the Carnatic. Having commenced his studies at the proper ago, and mastered the art of poetry, he became a poet at the court of **Mutturāmalinga Setupati**, who ascended the musnud at Ramnad in CE 1795. He was distinguished for his marvellous proficiency in the art of performing at one, and at the same time, eight different things; such as dictating verses, playing at chess, counting separately the grains of paddy and pebbles, as they were thrown on his back, solving Arithmetical problems, etc. His exploits being witnessed by **Umrutul Umra**, Nabob of Madras, **Rāmavarma Rāja**, king of Travancore, **Amarasimha Maharāja**, king of Tanjore, and **Rajādhi Rājasinha**, king of Kandy, procured for him great honors and rich presents. He was the author of a poem in honor of **Vijaya Regunātha Tondiman** of Pudukottei, and another in honor of **Muttirulappa Pillei**, Minister of the _Setupati_. He also wrote many poetical missives which are very much admired for their elegant diction.
 
-or MuTTUHA WALiN-GA Se TUPATi, wlio asceiidcti tlic miisiuitl III Kam- 
-nnd in A. D. 1795. He was distinguished for liis marvellous proficiency 
-in the art of performing at one, and at the same time, eiglit difTerent 
-things ; such as dictating verses, playing at chess, counting sejjarate- 
-ly the grains of paddy and pebbles, as they were thrown on his back, 
-solving Arithmetical problems, etc. Ilis exploits being witnessed by 
-Umrutul Umka, Nabob of Madras, Ra'mavarmaRa'ja, king of Tra- 
-vancorc, Amabasimiia Maiiara'ja, king of Tanjore, and IIaja'diii 
-Ra'jasinha, kingof Kandy, procured for him great honors and rich 
-presents, fie was the author of a poem in honor of Vijaya Regu- 
-na'tha Tondiman of Pudukottei , and another in honor of Muttiru- 
-lappa Pili.ei, Minister of the Sefujmti. He also wrote many poetical 
-missives which are very much admired for their elegant diction. 
+## Shanmugadāsan. --- [TAMIL].
 
-Shanmug Ada's AN --- ffemQps^nff&st. 
-
-This poet was well skilled in the composition of songs for the 
-Nautches ; but his songs, of which there is collection still extant, 
-though deserving of commendation for their sweetness, are very ex- 
-ceptionable on account of their immoral tendency. 
+This poet was well skilled in the composition of songs for the _Nautches_; but his songs, of which there is collection still extant, though deserving of commendation for their sweetness, are very exceptionable on account of their immoral tendency.
 
 Sa'mina'da De'siker --- ffirL^mir^Q^QaL 
 
