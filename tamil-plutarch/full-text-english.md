@@ -1323,142 +1323,53 @@ Saravanaperumāl Kavirāyer was born of a _Velāla_ family at _Nallūr_, in the 
 
 This poet was well skilled in the composition of songs for the _Nautches_; but his songs, of which there is collection still extant, though deserving of commendation for their sweetness, are very exceptionable on account of their immoral tendency.
 
-Sa'mina'da De'siker --- ffirL^mir^Q^QaL 
+## Sāmināda Desiker. --- [TAMIL].
 
-Saminada Desiker was a celebrated poet who lived in Tinnevelly 
-in the early part of the eighteenth century. His parents belonged to 
-the class of Saiva Velalas, and were possessed of some competence ; 
-but he entered the Matum at Tiruvavaduturei while yet a youth, and 
-being initiated into the mysteries of the iSatra religion, passed through 
-the course of studies required for his profession, and assumed the as- 
-cetic life. A learned Tamil poet of the name of Myile'rum Peeu- 
-ma'l, who became acquainted, with him about this time, perceiving 
-that he was endowed with superior talents and feeling a great inter- 
-est in him, not only assisted him in acquiring a knowledge of the 
-Tamil grammar and poetry, but sending for a Brdhman Pandit named 
-Kanakasaba'pati Kurukkal from Sepparai, secured for him his as- 
-sistance in mastering the Sanskrit language. He continued his studies 
-for twelve years, at the end of which he displayed his abilities, by 
-writing a treatise on the Tamil grammar, under the title of lllakkana^ 
-kottu {@sOsa(Zt!&Qan^^), consisting of 130 aphorisms in metre, 
-with an explanation in prose. Upon the request of Myile'rum Peru« 
-ma'l, Ambalava'na Tambiha'n the superior of the Matam at Tiruva- 
-vaduturei, soon afterwards invested him with the office of Tambirdn, 
-under the title of Isd7ia Desiker, and appointed him to preside over 
-the I Sana Matam, belonging to his own community in Tinnevelly. 
+Sāmināda Desiker was a celebrated poet who lived in _Tinnevelly_ in the early part of the eighteenth century. His parents belonged to the class of _Saiva Velālas_, and were possessed of some competence; but he entered the _Matum_ at Tiruvāvaduturei while yet a youth, and being initiated into the mysteries of the _Saiva_ religion, passed through the course of studies required for his profession, and assumed the ascetic life. A learned Tamil poet of the name of **Myilerum Perumāl**, who became acquainted, with him about this time, perceiving that he was endowed with superior talents and feeling a great interest in him, not only assisted him in acquiring a knowledge of the Tamil grammar and poetry, but sending for a _Brāhman_ Pandit named *Kanakasabāpati Kurukkal_ from Sepparai, secured for him his assistance in mastering the Sanskrit language. He continued his studies for twelve years, at the end of which he displayed his abilities, by writing a treatise on the Tamil grammar, under the title of _Illakkanakottu_ ([TAMIL]), consisting of 130 aphorisms in metre, with an explanation in prose. Upon the request of **Myilerum Perumāl**, **Ambalavāna Tambirān** the superior of the _Matam_ at Tiruvavaduturei, soon afterwards invested him with the office of _Tambirān_, under the title of _Isāna Desiker_, and appointed him to preside over the _Īsana Matam_, belonging to his own community in Tinnevelly.
 
-Sa'ntaIinga De'siker --- ffni^eSiisQ^Qair. 
+## Sāntalinga Desiker --- [TAMIL].
 
-Santalinga Desiker was an ascetic of the Vira Saiva- sect, who 
-jived at Turciur, in thcCarnatic, and earned for himself much renown 
+Sāntalinga Desiker was an ascetic of the _Vira Saiva_ sect, who lived at _Tureiur_, in the Carnatic, and earned for himself much renown by his high attainments both in the _Vedic_ and profane literature. He seems to have devoted his attention chiefly to the exposition of the Mystical Philosophy of the Hindus, and he has left no less than six treatises on the subject respectively entitled _Nenjuvidutūthu_ ([TAMIL]), _Ozhivil-odukkam_ ([TAMIL]), _Vyrākya-sadagam_ ([TAMIL]), _Vyrākya-dīpam_ ([TAMIL]), _Kolei-maruttel_ ([TAMIL]), and _Avirodavundiyār_ ([TAMIL]), all in verses of different metres.
 
-by his high attainments both in the Vedic and profane literature. He 
-.seems to have devoted his attention chiefly to the exposition of the 
-Mystical Philosophy of tlie Hindus, and he has left no less than six 
-treatises on the subject respectively entitled Neyijuvidututhu {Qihs^Sr 
-6iv3§/T<^), Ozhiiil-odnkkam {ep'^eSGecn($s,sib)^ Vyrdkya-sadagam 
-(6G)QjDnaS±i3=^aiij). Vyrdkya-dipam {es)6uona>S\ij^uu>), KoIei-7narut.' 
-tcl [G3>nQ£otL^^f,so), and Avirodavimdiydr {^sSQnn^e^^m^iurrn), 
-all in verses of different metres. 
+## Sāntalinga Kavirāyer. --- [TAMIL].
 
-Sa'ntalinga Kavira'yer --- ^frii^&SisissseSffiJUJiT. 
+This poet was a native of _Tandaleicheri_, in the Carnatic, and is chiefly known as the author of an ethical poem in a series of 100 stanzas, under the title of _Tandaleiyār-sadagam_ ([TAMIL]), of which we here give the following specimen:---
 
-This poet was a native of Tandahicheri, in the Carnatic, and is 
-chiefly known as the author of an ethical poem in a series of 100 
-stanzas, under the title of Tandaleiydr-sadagam (^6Ssri_&j60iufT/T*^atb), 
-of which we here give the following specimen : --- 
+[TAMIL].
 
---- '■Qu(y^sSl0i^d(^ufnri(i^Q^uJ^^uL9iiSlei!r^QLDiaQs QuiBQtun 
+_The worthy householders, who dwell in the country blessed by the sacred Tandaleiyar (a title of Siva), consider the day in which they have no guest as no day: after having treated honorably and dismissed the respectable guest, who has visited them as a friend, they enquire anxiously for virtuous men to partake of their hospitality, for the food taken when there is no guest present, is poison._ **Ellis.**
 
-The worthy householders^ who dwell in the country blessed by the 
-sacred Tandaleiyar (a title of Siva), consider the day in which they 
-have no guest as no day : after having treated honorably and dismiss- 
-ed the respectable guest, who has visited them as a friend, they enquire 
-anxiously for virtuous men to partake of their hospitality, for the food 
-taken lohen there is no guest present, is poiso7i. Ellis. 
+## Sāttanār. --- [TAMIL].
 
-Sa'ttana'r --- fftr^^i^n. 
+Sāttanār was one of the forty-nine professors of the Madura College. His father's name **Seyirkaviriyar** is always prefixed to his own; but the incidents of his history cannot be ascertained. The following is the impromptu which he uttered when the _Kural_ passed the College bench:---
 
-Sattanar was one of tiie forty-nine professors of the Madura Col- 
-lege. His father's name Seyirkavirivar is always prefixed to his own ; 
-but the incidents of his history cannot be ascertained. The follow- 
-ing is the impromptu which he uttered when the Kural passed the 
-College bench : --- 
+[TAMIL].
 
-^0aij(cirie(^s>jn^nQp(^Qs=uL9ujQiSijQ^ujsuniT 
-QufT(r^eSlQ&)n(Lpdsu>L^6aBn---niT. 
+_The learned will now be able to teach out of the book of the divine Tiruvalluver, that which ought to be done, and that which ought not, and men of good conduct will follow it._
 
-The learned tvill noiv he able to teach out of the book of the divine 
-TiRuvALLuvER, that which ought to be done, and that which ought 
-not, and men of good conduct loill follow it. 
+## Sengkundūrkizhār. --- [TAMIL].
 
-Skngkundu'rkiziia'r --- Qs'ia^asr^niQifinn. 
+Sengkundūrkizhār was one of the forty-nine professors of the Madura College, distinguished by the honorary title of _Tamil-asiriyer_, or Master of Tamil poetry. Nothing more is known of his life, except that he was the author of the encomiastic impromptu on the _Kural_, which we quote below.
 
-Sengkundurkizhar was one of the forty-nine professors of the Mad- 
-vuH Collrgr, dislinguibhcd hv the honorary title of Tamil-asiriyer, 
+[TAMIL].
 
-6r Master of Tamil poetry. Nothing morf i.s kmiwii of his life, (;x- 
-co|)t that he was the author of tlic enconviastic improinptu ou the 
-Kural, which we quote lielow. 
+_To call any one a poet upon this earth besides the divine Valluver, would be like calling both the evening illumined by the moon, and the evening shrouded in darkness, a fine evening._
 
-To call any one a poet upon this rfh besides the divine Vallu- 
-VER, would be tike calling both the evening illumined by the moo7i, 
-and the evening shrouded in darkness, a fine evening. 
+## Seyalūrkodunchengkannanār. --- [TAMIL].
 
-SEYALu'RKOmrNCHENGKANNANA'R Qs=iU&ff- nsQa n^ (if) Qs'tSJSSssar 
+This poet was one of the forty-nine professors of the Madura College; but neither his parentage, nor the history of his life is known, and moreover of his compositions only the following stanza, which he uttered on the _Kural_, has been preserved.
 
-This poet was one of the forty-nine professors of the Madura Col- 
-lege ; but neither his parentage, nor the history of his life is known, 
-and moreover of his compositions only the following stanza, which' 
-he uttered on the Kural, has been preserved. 
+[TAMIL].
 
-Valluver has in Tamil ingeniougly explained tcithin the narrow 
-compass of his Kural the substance of the Vedas, that the world may 
-learn it ; hence they say that the woi'k contains whatever matter it is 
-possible to think of. 
+_Valluver has in Tamil ingeniously explained within the narrow compass of his Kural the substance of the Vedas, that the world may learn it; hence they say that the work contains whatever matter it is possible to think of._
 
-Se'kizha'r --- Q^sQifiifa. 
+## Sekizhār. --- [TAMIL].
 
-Sekizhar, called also Artmmozhitever {^i^^Gii>ni^^(Ss;€ijrr), was 
-born of a Veldla family at Kundatur, a village in one of the sub- 
-divisions of the Tonda country, denominated Puliyiir-kottam, an(i 
-was equally eminent as a poet and politician. The king Anabha'ya 
-Cho'la having heard of his abilities, made him his Prime Ministei', 
-conferring on him at the same time the title of Utiama-chola Pallet" 
-ver (&.^pu)(Is=nLQuusi>6i)euiT). While he was employed at Court, he 
-observed that the king though professedly a Saiva, yet admirihg the 
-Jivaka Chintdmani {<3sus^Rs>niLesS), an epic poem belonging fo 
-the Jainas, made it the sole object of his study. This grieved him 
-very much, and one day having found an opportunity of talking to' 
-the king on the subject, he expostulated with him on the impropriety 
-of his conduct in reading an heretical work. The king took his ex- 
-postulation in good part ; but asked him whether he could name any 
+Sekizhār, called also _Arunmozhitever_ ([TAMIL]), was born of a _Velāla_ family at _Kundatūr_, a village in one of the subdivisions of the _Tonda_ country, denominated _Puliyūr-kottam_, and was equally eminent as a poet and politician. The king **Anabhāya Chola** having heard of his abilities, made him his Prime Minister, conferring on him at the same time the title of _Uttama-chola Pallaver_ ([TAMIL]). While he was employed at Court, he observed that the king though professedly a _Saiva_, yet admirihg the _Jīvaka Chintāmani_ ([TAMIL]), an epic poem belonging to the _Jainas_, made it the sole object of his study. This grieved him very much, and one day having found an opportunity of talking to the king on the subject, he expostulated with him on the impropriety of his conduct in reading an heretical work. The king took his expostulation in good part; but asked him whether he could name any _Saiva_ poem which possessed superior merits. He thereupon recited before the king **Nambi's** _Antādi_ (a poem in 100 stanzas treating of the lives and action of the sixty-three _Tirutonders_, or special votaries of _Siva_). The king was quite pleased with it but thinking it to be too concise, he desired him to enlarge it into an epic poem of as great a length as the _Chintāmani_, under the title of _Tirutonder Puranam_ ([TAMIL]). With the king's permission he immediately left the Court and proceeding to Chillambaram took up his abode in the _Mandapam_ or open building opposite to the temple there, and began writing the poem and finished it in the course of some time. It must have no doubt been a laborious task, for it consists of 3363 stanzas, arranged in 72 cantos. When the king heard of the completion of the poem, he proceeded in person to Chillambaram, and having had it submitted to the judgment of a learned assembly, which sanctioned it readily, he placed both the author, and the work on a well caparisoned elephant, went forth in royal procession through the town, and afterwards caused a copy of the poem to be engraved on copper plates and deposited in the sanctuary of the temple. It appears that Sekizhar subsequently resigned his office of Prime Minister, and assuming the ascetic life remained at Chillambaram and died there.
 
-Suica poem which possessed superior merits. He thereupon recited 
-hefore the king Najibi' s Antiidi (a poem in 100 stanzas treating 
-of the lives and action of the sixty-three Tir'utonders, or special vota- 
-ries of Siva). The king was quite pleased with it but thinking it to 
-be too concise, he desired him to enlarge it into an epic poem of as 
-great a length as the Chintdmani., under the title o{ Tirutonder Pura- 
-nam (^,!r)f,Q^nimi---ni4Qn(;asiii). With the king's permission he immedi- 
-ately left the Court and proceeding to Chillambaram took up his abode 
-in the Mandapam or open building opposite to the temple there, and 
-began writing the poem and finished it in the course of some lime. It 
-must have no doubt been a laborious task, for it consists of 3363 
-stanzas, arranged in 72 cantos- When the king heard of the com- 
-pletion of the poem, he proceeded in person to Chillambaram, and 
-having had it submitted to the judgment of a learned assembly, which 
-sanctioned it readily, he placed both the author, and the work on 
-a well caparisoned elephant, went forth in royal procession through 
-the town, and afterwards caused a copy of the poem to be engraved 
-on copper plates and deposited in the sanctuary of the temple. It ap- 
-pears that Sekizhar subsequently resigned his office of Prime Minis- 
-ter, and assuming the ascetic life remained at Chillambaram and died 
-there 
+## Senāthirāyer. --- [TAMIL].
 
-Su'na'thira'yer --- Q^(ev)^!inuj^. 
-
-Senathiraycr was the son of Nelleina'ther, the scion of a Veldia 
+Senāthirāyer was the son of Nelleina'ther, the scion of a Veldia 
 family at Tillipally, in Jaffna, and traced back his line of ancestors 
 to the time of the Chakravartis. He commenced his studies early in 
 life, and distinguished himself as a poet of considerable attainments ; 
