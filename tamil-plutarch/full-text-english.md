@@ -1524,6 +1524,8 @@ This poet was one of the forty-nine professors of the Madura College. It is rela
 
 [TAMIL].
 
+*) Menispermum cordifolium.
+
 _The three parts (of the Kural) composed by Valluver, are each a garland on the crowns of the three kings (Chera, Chola and Pāndiya), who are respectively possessed of the three mountains (Kolli, Neri and Pothiya), the three countries (Chera, Chola and Pāndiya), the three rivers, (Porunai, Caveri and Vygai), the three cities (Karūr, Ureiyūr and Madura), the three kinds of drums (Mangala-murasu, Vettimurasu and Kodei-murasu) the three dialects of Tamil (colloquial, poetical and dramatic), the three banners (Vitkodi, Pulikodi and Minakodi), and the three horses (Kanavattam, Pādalam and Koram)._
 
 ## Subrahmanya Vediyer. --- [TAMIL].
@@ -1532,60 +1534,17 @@ This poet was a member of a _Brahman_ family at _Alvar Tinnevelly_, in the Carna
 
 ## Sundarer. --- [TAMIL].
 
-Sundarer was a contemporary of Apper and SajipAnter and like 
-Ihem a poet, as well as a zealous champion for the Saiva faith against 
-Ihe Jainas. His real name was Namhiya'rurer, which he afterwards 
-changed for that of Sundarer. He was born of a Brahman family 
-of the Adi Saica sect at Tirunavahir j in the Carnatic. Whilst yet 
-t\ child, the king NarasinghAmuneiyer with the consent of his parents, 
-took him into his family and adopted him, giving him a good educa- 
-tion in all branches of learning. When he came of age, his fathei* 
-by the kings command negotiated a marriage for him with the 
-daughter of a Bralunan at Puttur ; but just on the day fixed for its 
-celebration he broke off tlie match, and assuming the ascetic life vis- 
-ited the different Siva fanes in Southern India, and hymned their praises 
+Sundarer was a contemporary of **Apper** and **Sampanter** and like them a poet, as well as a zealous champion for the _Saiva_ faith against the _Jainas_. His real name was _Nambiyārurer_, which he afterwards changed for that of Sundarer. He was born of a _Brāhman_ family of the _Adi Saiva_ sect at _Tirunavalur_; in the Carnatic. Whilst yet a child, the king **Narasinghamuneiyer** with the consent of his parents, took him into his family and adopted him, giving him a good education in all branches of learning. When he came of age, his father by the kings command negotiated a marriage for him with the daughter of a _Brahman_ at Puttūr; but just on the day fixed for its celebration he broke off the match, and assuming the ascetic life visited the different _Siva_ fanes in Southern India, and hymned their praises in a series of 37,000 _Pathigams_, each consisting of ten stanzas. It is however certain that he did not preserve continence which is manifest from his amorous intrigues with the two courtezans **Paravei** and **Sangkili** as related in the _Tirutonder Purānam_. He died at _Tiruvanji_, in the Chera country, in the eighteenth year of his age, whilst he was visiting a temple there in company with the king **Cheraman Peruman**, whose friendship he enjoyed. In our opinion as the date given in the _Cholapūrva Patayam_ for the accession of **Cherama Peruman** seems to admit of no doubt, we may therefore place the period of the existence of Sundarer and his two fellow Champions in the fifth century of the Christian era for a certainty and thereby clear it from the monstrous chronology of the Puranas.
 
-*) Menispermum cordifolium.
+## Sūdikodutta Nāchiyār. --- [TAMIL].
 
-m a series of 37,000 Pathigatns, cacli consisting of ten stanzas. It is 
-liowevcr certain that he did not preserve continence which is mani- 
-fest from his amorous intrigues with the two courtezans Paravei and 
-Sangkili as related in the Tirutonder Purdnam. He died at Tiruvanji, 
-in tlie Chera country, in the eighteenth year of his age, whilst he was 
-visiting a temple there in company with the king Che'raman Peru- 
-man, whose friendship he enjoyed. In our opinion as the date given 
-in the Cholapurva Patayarn for the accession of Che'rama N Peru- 
-man seems to admit of no douht, we may therefore place the pe- 
-riod of the existence of Sundarcr and his two fellow Champions in 
-the fifth century of the Christian era for a certainty and thereby clear 
-it from the monstrous chronology of the Puranas. 
+Sūdikodutta Nāchiyār, otherwise called _Āndāl_, was the poetess who composed the poems called _Tirupāvei_ ([TAMIL]), and _Tirumozhi_ ([TAMIL]), consisting of 173 stanzas in praise of _Vishnu_, and which now form a part of the _Nālāyiraprabhandam_ ([TAMIL]). Her parentage is not known; but if we may accept as facts that which appears not improbable in her legend, she was a foundling brought up by a _Vaishnava_ devotee at _Villiputtūr_, and having even from her childhood become an enthusiast in the faith of her foster-father, after she had passed her teens she proceeded to Tirupati, and consecrated herself to _Vishnu_, who is worshipped there.
 
-Su'DIKODUTTA Na'CHIYA'R @if sO«/T®/^/5;7uJi©aJ/7/f. 
+## Tandi Āsiriyer. --- [TAMIL].
 
-Sudikodutta Nachiyar, otherwise called A'nddl, was the poetess who 
-composed the poems called TirujJdvei (^(^uuTgooj), and Tirumozhi 
-(^t5(?(X)iTL^) , consisting of 173 stanzas in praise of Vishiiu, and which 
-now form apart of the NAldyiraprabhandam {!hnedn\i9a{3nu^s5\h). Her 
-parentage is not known ; but if we may accept as facts that which ap- 
-pears not improbable in her legend, she was a foundling brought up 
-by a Vaishnava devotee at Villiputtur, and having even from her 
-childhood become an enthusiast in the faith of her foster-father, after 
-she had passed her teens she proceeded to Tirupati, and consecrat- 
-ed herself to Vishnu, who is worshipped there. 
+Tandi Āsiriyer was one of the poets who flourished at the Court of **Bhoja**, king of _Dhārapuram_, in the twelfth century of the Christian era. As he was skilled both in the Sanskrit and Tamil poetry, he obtained the title of _Ubaya Kavi_ or a poet in two languages; and it is said that he ranked foremost of all the poets of his day, except **Kālidāsa**. Of his works, we have two treatises, one in Sanskrit, entitled _Kāvyadersana_ ([TAMIL]), and the other in Tamil, under the name of _Alangkāram_ ([TAMIL]), both which treat of poetical tropes and figures.
 
-Tandi A'siriyek --- ^essn^(Lin9tflajiT. 
-
-Tandi A'siriyer was one of the poets who flourished at the Court 
-of Bho'ja, king o^ Dhdrapvram^ in the twelfth century of the Christiau 
-era. As he was skilled both in the Sanskrit and Tamil poetry, he 
-obtained the title of XJbaya Kavi or a poet in two languages ; and it is 
-said that he ranked foremost of all the poets of his day, except Kali- 
-da'sa. Of his works, we have two treatises, one in Sanskrit, entitled 
-Kdvyadersana {sneSiiuajiBsFesrib), and the other in Tamil, under the 
-name of ^/ang-itaram {j^eOiasnaih)^ both which treat of poetical 
-tropes and figures. 
-
-Tatvara'YER --- ^^euunuja. 
+## Tatvarāyer. --- [TAMIL].
 
 Tatvarayer was an eminent poet and metaphysician, born of a 
 Brahman family of the Ma'dhavachdrya sect at Vira, in the Carna- 
