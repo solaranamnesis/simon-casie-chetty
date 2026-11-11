@@ -1546,471 +1546,185 @@ Tandi Āsiriyer was one of the poets who flourished at the Court of **Bhoja**, k
 
 ## Tatvarāyer. --- [TAMIL].
 
-Tatvarayer was an eminent poet and metaphysician, born of a 
-Brahman family of the Ma'dhavachdrya sect at Vira, in the Carna- 
-tic, sometime in the sixteenth century of the Christian era. Hav- 
-ing very early completed his coui'se of studies in Sanskrit and 
-Tamil in his own village, he assumed the ascetic life at the same 
-time with Sva'rupa'nander, who was his kinsman as well as fellow- 
-student. The young men then desirous of having themselves initiat- 
-ed into the mysteries of Saivaism proposed to go in search of a Guru 
-or teacher ; but they agreed before starting, that he who succeeded 
-in his undertaking, should become the Guru of the one who failed. 
-Tatvarayer went towards the north, and Sva'rupa'nander towards the 
+Tatvarāyer was an eminent poet and metaphysician, born of a _Brāhman_ family of the _Mādhavachārya_ sect at _Vira_, in the Carnatic, sometime in the sixteenth century of the Christian era. Having very early completed his course of studies in Sanskrit and Tamil in his own village, he assumed the ascetic life at the same time with **Svārupānander**, who was his kinsman as well as fellow-student. The young men then desirous of having themselves initiated into the mysteries of _Saivaism_ proposed to go in search of a _Guru_ or teacher; but they agreed before starting, that he who succeeded in his undertaking, should become the _Guru_ of the one who failed. Tatvarāyer went towards the north, and **Svārupānander** towards the south. Tatvārayer failed in finding a _Guru_; but **Svārupānander** was fortunate enough to find one in the person of **Sivaprakāser**, a _Saiva_ recluse who lived in a thicket at Kovattam, and according to the agreement Tatvarāyer became the disciple of **Svārupānander**. As a poet Tatvarāyer excelled his master, and hence the latter employed him in versifying the substance of the _Vedanta_ and _Saiva_ Sāstras. The following is a list of the works which he composed, viz.
 
-south. Tatvarayer lulled m fi-mling a Guru; but Sva'rupa NANDEKwas 
-fortunate enough to find one in the person of Sivapraka'ser, a Saiva 
-recluse who lived in a thicket at Kovattam, and according to the agree- 
-rnent Tatvarayer became the disciple of Sva'kupa'nander. As a poet 
-Tatvarayer excelled his master, and hence the la^er employed him 
-in versifying the substance of the Vedanta ixnd Saiuff Sastras. The 
-following is a list of the works which he composed, viz. 
+1\. _Sivaprakāsa_, [TAMIL].
 
-1. SivapraMsa Venhd^6iiu\3a&n^Qeu^Uir. 
+2\. _Tatvāmirtam_, [TAMIL].
 
-2. Tatvimirtam, Si^evavSln^lh. 
+3\. _Tiruttālāttu_, [TAMIL].
 
-3. Tiruttdldttu, ^(fJ^^n-eU/Ttl®. 
+4\. _Pilleittirunāmam_, [TAMIL].
 
-4. Pilltittirundmam, lSenQen0^,iriihninh, ^ 
-0. Vtnhdvantdii, Geue&ru/Teu/fe^fT^. 
+5\. _Venbāvantādi_, [TAMIL].
 
-6. KalitUireiyantddi, 3>eS'^^es)ipiuni^(1^. 
+6\. _Kalittureiyantādi_, [TAMIL].
 
-7. Sin7iapu Venbd, <#6Sl637iJyGaj€CTU/T. 
+7\. _Sinnapū Venbā_, [TAMIL].
 
-8. Tasdngam, ^ffnibsih . 
+8\. _Tasāngam_, [TAMIL].
 
-9. IrrctUimani Malei, @ailes)L.iDe!!sPu)nei£0. 
-1*0. Mummani , Konai, (ipihLDC!^a>Qanes)6xj. 
+9\. _Irretteimani Malei_, [TAMIL].
 
-11. jydnviani Mdlti^ /B(T65xli)635f £fln'6LSW. 
+10\. _Mummani Kovai_, [TAMIL].
 
-12. Tiruvadi Mdtei, ^(§siJif.LC>n6i£):>. 
+11\. _Nānmani Mālei_, [TAMIL].
 
-13. Gndnarinodan Kulamhagam, 0/T6Cl6iP(J^^65rS6\)tbu6Bii). 
+12\. _Tiruvadi Mālei_, [TAMIL].
 
-14. Uld s.6\)n. 
+13\. _Gnānavinodan Kalambagam_, [TAMIL].
 
-15. Siledei Uld, ^Qe06S)l-iL\60n. 
+14\. _Ulā_, [TAMIL].
 
-16. Jyenjuvidvdulu, Glh§^Sr6^Q§jj§l. 
-
-17. Kalimadel, seS>ijDt---60. 
-
-18. 'Ignaivadcipparani, ^i^&Si^-QjeSi^uuaesi^. 
-
-19. Mogavadcipparani., Ql£in&eu&Si§uunosS. 
+15\. _Siledei Ulā_, [TAMIL].
 
-20. Amirtasdra Venbd, ^uSln^ffnaOen^Ssiutr. 
-
-21. Tiruvarudkazhen Mdlei, 0'(§6Vi§tLs>lfi&s\LC)n6ie9. 
-
-22. Poti Mdlei, Qun^rS'iDireiso. 
-
-23. Pugadcki Mdlei, L|<5ip##U)r76i50. 
-
-24. Sasitarnapothamy ^^QjneSlSlQurr^lby 
-
-25. Peruntirattu, Qud^i^aCiS. 
-
-26. Kuruntirattu, ^^JJ/B^ffll®. 
-
-Ta'ndavamu'rti --- jSacsarL-ei.'^ff^0. 
-
-Tandavamurti was a Saiva ascetic who obtained considerable ropu^ 
-tation by his skill in the Sanskrit and Tamil languages, and their 
-respective literature. In the latter part of his life he devoted his at- 
-tention entirely to metaphysical researches and wrote a work on the 
-subject, entitlod Kaivali/a-navanitam ^estseuffOiuihoji^itb), consisting 
-of 293 stanzas. 
-
-Ta'yuma'nater --- jsfriLjLDtr (1ST SUIT. 
-
-Tayuma'naver was born at Trichinipoly, in the €arnalic about 
-150 years ago. His father Kediliyappa Ph-lei belonged to the 
-Veldla caste, and was Samprati or accountant to the king Vijaya 
-Regiiunatha Chokalinga Naya'ker. Having through the endeav- 
-ours of his father skilled himself in the Sanskrit and Tamil lan- 
-guages, he devoted his attention to the Hindu Philosophy, and under 
-the guidance of a famous Chiru of the name of Maunade'siker, soon 
--obtained a knowlodge of its esoteric doctrines. From his earliest 
-years he had a predilection for a religious life ; but on the death of 
-his father he was prevailed upoii by the king's importunity to accept 
-the Sampratiship, and employ himself at the Court. He however did 
-not continue lonw in his office ; for when on the death of the king, the 
-queen conceiving a .criminal passion for him endeavoured to entice 
-him, he fled from her territory, and took up his residence in the Ram- 
-nad country. Some time afterwards he entered into marriage with a 
-female of his own class, but she dying after giving birth to her first 
-child, he assumed the habit of a half-naked Sanniyasi, and led a 
-strolling life until his death ; visiting successively the Saiva shrines 
-throughout Southern India, and hymning their praises. 
-
-As a philosopher Tayumanaver is held in great esteem by the fol- 
-lowers of the pantheistical school, and the doctrines which he held 
-respecting God and the universe may be summed up in the following 
-lines of Pope : --- 
-
-^' All are but. parts (^f one stupendous whole. 
-Whose body Nature is, and God the soul ; 
-Warms in the sun, refreshes in the breeze. 
-Glomes in the stars, and blossoms' in the trees. 
-Lives through all life, extends through all extent. 
-Spreads undivided, operates unspent." 
-
-As a poet, he certainly claims an undisputed pre-eminence over all 
-his contemporaries. His spiritual songs, of which a collection con- 
-sisting of 1453 stanzas of various metres was published at Madras itj 
-1836, afford ample proof of his superior talents ; for there are scarce- 
-ly any of the kind in Tamil to equal them in sublimity of style. 
-
-TIRUMANGAI A'.zhva'r --- ^(T^wmxssiSiunifiSiJ nfr- 
-
-This poet was a native of Trivalur., and the Vaishnavas venerate 
-him as one of the twelve A'zhvdrs, who was the foremost in promoting 
-the interests of their sect, in opposition to the Saivas and Jainaa. 
-His father Nila held the post of Senopati or genoralismo of the Cho.- 
-Ja army, and he himself was viceroy of a district ; but failing to pay 
-the tribute, and resisting the force which the king had sent to compel 
-payment, he was deprived of his vice-regal authority, and left desti- 
-tute, upon which he turned out a freebooter, but robbing only those 
-who hud not the Vaishnava marks on their foreheads. He obtained 
-f\\v U[\*: ' N'ltlinriprriiwoJ \\o\n ih(: f^klU which he di^j^luycd in the 
-
-composition of the four kinds of poems*, and it is said that when 
-SAMPANTERjthe famous champion of the Saivasecl, disputed his right 
-to the title he proved himself worthy of it to his satisfaction. His 
-contribution to the Ndldyiraprabhandam (ihnedniiS'niSauk^ih), con- 
-sists of 1253 stanzas, in which he has not only eulogized Vishnu, but 
-has likewise explained the esoteric doctrines of his sect. 
-
-TiRUMAZHlSHAl A'ZHVA'R --- ^Q^wi^esifftun^eunn. 
-
-The history of Tirumazhishai A'zhva'r, who is reckoned as one of 
-the twelve A'zhvars like the preceeding, has been altogether render- 
-ed a myth. This much however may be certain, that he was a found- 
-ling who was brought up in a Veda family at Tirumazhishax. Hav- 
-mg enthusiastically wedded himself to the Vaislmava faith in his 
-youth, he continued a rancorous opponent to the Saivas throughout 
-his life, and by his skill in polemics made many proselytes amongst 
-them. He appears to have been a poet of superior talents, in proof 
-of which may be mentioned his contribution of 206 stanzas to the 
-Ndldyiraprabhandam imeoa\i$n\3auihf,tii) in praise of Vishnu. 
-
-TiRUJVIU'LER ^(r^Qp6\)(T. 
-
-Little more is known of Tirumuler than that he was a Saiva ascet- 
-ic and philosopher, contemporary with Agastiyer, and like him ex- 
-erted himself in diffusing the worship of Siva amongst the Tamils. 
-All that is related of him in the Tirutonder Puranam, in the charac- 
-ter of one of the sixty-three special votaries of Sica, is manifestly 
-fabulous, except that he was a cow-herd at Sdtanur, in the Carnatic, 
-previous to his assuming the ascetic life, and establishing himself in 
-the Saiva fane at Tiruvavaduturai. Dr. Ainslee notices a medical 
-treatise of Tirumuler under the title of Tirumuler Vytia Vdgadam 
-{^^(PoOiTcSiSij^0>aj6uns,uib) ; but he is chiefly celebrated for his Tir- 
-umulamandiram {^tf^^soiD/k^nih), a voluminous work containing an 
-exposition of the tenets of the Saiva religion, especially with refer- 
-ence to the four different forms of worship, as enjoined in the A'ga- 
-mas. In the following two stanzas which we quote from it, the read- 
-er will seethe striking coincidence between the doctrine which they 
-inculcate, and that of the Bible: --- 
-
-* Sue Rotler's Tamil and English Dictionary' under the word «rf. 
-
-The ignorant think that God and love arc different; none knows that God and 
-lore are the saine ; did all men know that God and love were the same, they 
-would dwell together in jieuce, considering love as God. Compare, J . John, i v. Itj. 
-
-To those of soft hearts, tchosc minds are incited htj divine love, although their 
-fltsh be cut off their bones used as fuel, and their vtoisturc dried up by wast- 
-ing in the golden fame, and to those alone it is not forbidden to approach the 
-God, who is the golden jcicel of inij suul. (Jonnjare 1. Cor. xiii. 1 --- 3. 
-
-
-TlKUNI'LAKANDA Ya'ZHPA'NER- 
-
-
-luniMuut 
-
-
-Tirunilakanda Yazhpanar was a minstrel who flourished at Eruk- 
-kaltamjpuliyur, in the Carnatic, during the reign of Kuna Pa>'diy£n. 
-The traditions respecting him are tinged with table ; but there is no 
-doubt that he was well skilled in his profession and being a zealous 
-votary of Sica, continued all his life in composing verses in praise 
-of his favorite god, and singing them to the lute. It is said that as he 
-went to Madura to exhibit his performance in the temple there, the 
-Brdhmans at first would not take any notice of him ; but that when 
-he strung his lute and drew forth a few strains, they were so en- 
-raptured that they presented him a seat on a golden board, and re- 
-warded him most munificiently. He afterwards repaired to Shiyal- 
-ly and joining Sampanter spent the remainder of his days with him. 
-
-TiRUPA'N A'zhva'r --- ^(T^uunt^t^sunn. 
-
-Tirupa'n A'zhva'r is celebrated equally as a poet, and as one of 
-the twelve Azhvdrs or special votaries of Vishnu. When we strip 
-his legend of its disguise, it would appear that his mother having ex- 
-posed him in a corn-field at Ureiyur soon after his birth, he was 
-found and adopted by a Pa'nen or minstrel, whose profession he after- 
-wards followed. His poetical compositions are not forthcoming at 
-present, except the stanzas which he contributed to the Ndldyiraprah- 
-handam {m6\)nti3a[3nufh3,\h)., pourtraying the beauties of Vishnu 
-from foot to head. 
-
-TlRUVALLUVER --- ^(7^suerr(ef^e]j IT. 
-
-Tiruvalluver deservedly ranks foremost among the poets and 
-moralists of India ; for he has had no superior or equal in either char- 
-acter. Some place the date of his existence in the third or fourth 
-and others in the eighth or ninth century of the Christian era, but 
-the last is generally considered as most probable. All accounts con- 
-cur in representing him as the offspring of a Brahman by a Pariah 
-woman, brought up by a VaUuven* at Mailapur, near Madras, who 
-had found him exposed in an lllippe grove in his neighbourhood. It 
-is not known who directed his studies ; but we are told that while yet 
-a youth, he had acquired so great a reputation for learning that Ma e- 
-
-A priest of the Pariah tribe. 
-
-OASAGAYEN, a weullliv farmer who lived at Kaveripakam, did not dis- 
-dain to bestow on him the hand ofliis only daughter named Va'suki, 
-and besides the highest personages in the place felt a pride in the en- 
-ioyment of his friendship, fie, however, appears to have pursued a 
-quiet and unobstrusive course of life, working at the loom for subsis- 
-tence as the other Puriahs did until he was prevailed upon by his 
-friends to take up the gauntlet against tlie professors of the Madura 
-College, who had arrogantly defied all other men of learning in the 
-country and claimed all literciry honors to themselves. In order to hum- 
-ble the pride of the professors, he wrote an ethical poem, under the 
-title oC Kural .((^nosir), and repairing to the College asked them to 
-review it as judges of poetical composition, that he may have a 
-seat on their College bench in case it was approved. The pro- 
-fessors at first scorned at the idea of a Pariah-born poet ofiering him- 
-self as a competitor for a seat with them, but afterwards when he 
-drew them into a contest and comj)leteIy vanquished them, they not 
-only approved his work and gave hijn the desired seat, but also con- 
-ferred on him several honorary titles, such as, De'ivapulaver (G^iueju 
-L/S0Q7/T), the divine poet, Mudelpdcaler ((Lp^n)un6ii6))n), the first of poets, 
-rerunnvelc7' [Guij^mneueop.), the great poet, etc. A legend would 
-liave it that the professors were so sensible of their discomfiture, that 
-unable to survive it, they all drowned themselves in the pond in the 
-neighbourhood of the College ; but this is not confirmed by other ac- 
-counts. Nothing further is known of Tiruvalluver which can be re- 
-lied upon, excepting that some time after his return to Mailapur, he 
-was visited with a severe domestic calamity by the death of his wife 
-to whom he was tenderly attached and It so deeply atfected his mind 
-that secluding himself from society, he devoted the remainder of his 
-life to religious contemplation. It is said that while lying sleepless 
-and agitated, on the night following his wife's death, he ejaculated 
-extempore the following verse : 
-
-Qtsusir^t^arQuiissTasaieaBfl'^Esar. 
-
-When I have lost a woman 7vho excelled in the knowledge of house- 
-2vijert/, who performed rightly all domestic duties, who never trans- 
-gressed my word or my door, who chafed my limbs and never slumber- 
-ing until I slept, arose before 1 awoke ; Alas! Alas ! How can my 
-eyes again know sleep ! *. 
-
-The time of his death is uncertain ; but a tradition would have it 
-that when he died his body was according to his express desire ex- 
-posed in the open air outside the town to be devoured by crows. 
-
-It is dillicult to judge from the tenor of his Rural to what sect he 
-belonged; for he has entirely avoided in the work every thing that 
-
-' ??oe Ellis' Kuriil, p. 168. 
-
-savours of sectariauisnv in order to liarmoni/.e the sivflVages of all thu 
-sects. The Jainas, howovtn*, claim liim to belong to tht'ir sect from 
-his having used in one of his disticlis in praise of God the epithet 
-Andanan (^/B^sjstsToisf), which is appUcablc to Arha' r^^s,^), the ob- 
-ject of their worsliip. 
-
-Independent of the Ki/rdI, we have no other compositions of Tiru- 
-valluver. The physiological work, entitled Gnanavettiijan {Qn^s^Gei) 
-iltjuufTosi), which is commonly ascribed to him, appears to havs bucu 
-written by some person long after his time ; for the author, though Ik; 
-assumes the title of Tirinalkiver ;fnd speaks in liis character in the 
-body of the work, yet betrays the disguise in one of the introductory 
-stanzas, thus : 
-
-Invoking the spotless one wJiom the holy Valluva has revealed in 
-his incomparable Veda as clear as the light of the sun and mooii, and 
-by the grace of the damsel Ambigai (Parvati), toho delights the 
-heart, I shall compose the Gndna Vettiyan. 
-
-The Rural was first brought to the notice of the European literati 
-by Father Beschi in the Shen Tamil Grammar, which he published in 
-1730, and some portions of it have since been translated into Latin, 
-German and English languages. We subjoin the various opinions 
-of the Tamil scholars amongst Europeans on its merits. 
-
-The Rural "stands confessed; even to the present day, to be the 
-best and chief of all compositions in the polished dialect." Taylor's 
-Oriental Historical Manuscripts, Vol. 1. p. 177. 
-
-" Though more than fifteen hundred years oldj this rare collection 
-of precepts, conveyed in the style of unequalled poetry, has lost none 
-of Its original favour among the people. In one hundred and thirty- 
-three chapters it treats of almost every variety of subjects pertain- 
-ing to the relations and duties of life, forming a text-book of indisputa- 
-ble authority." Ward's India and the Hindus, p. 135. 
-
-" The Rural of Tiruvalluver is a poetic work on morals, of great 
-merit as a literary performance, and highly esteemed among the 
-Tamil natives, for the beauty of its language, and the truth of its 
-sentiments." Hoole^s Personal Narative of a Mission to the South of 
-India." Part ii. p. 311. 
-
-" It is called the first of works, from which, whether for thought or 
-language, there is no appeal.'' Drew's Preface to the -K'uraZ, Vol. 1. 
-p. 2. 
-
-" Nothing certainly in the whole compass of human language can 
-equal the force and terseness of the sententious distlchs in which 
-the author conveys the lessons of wisdom he utters." Peecival's 
-Land of the Veda, p. 110. 
-
-" The Rural of Tiruvalluver, a work consisting of 1333 distichs, or 
-
-poetical aphorisms, on almost every subject connected with morals 
-and political economy, and which is regarded by all Tamilians (and 
-perhaps justly) as the finest composition of which the Tamil can boast 
-appears to be not only the best but the oldest Tamil work of any ex- 
-tent which is now in existence. Caldwell's Dravldian Grammar, 
-Introduction, p. 85. 
-
-TiRUVE'RKA'DU MuTTIA'H MuDKLIA'R ^(V^QsupsnQ Qp^^fiiun 
-
-Qf^sSliunir. 
-
-Tiruverka'du Muttiah .Mudeliar was born at Tiruverkadu, in the 
-Carnatic, in A. D. 1761. It appears from an amusing account of 
-liis own studies, written by himself, and published in Dalrymple's 
-Oriental Repertory, that ho had begun to apply himself to his books 
-at the very early age of five, and before he had completed his twen- 
-ty-first year, he had acquired a knowledge of the Sanskrit, Tamil, 
-Telugu, Maharatta, Persian, English and Latin languages, and be- 
-came an adept in the mystical philosophy of the Hindus. The fame of 
-his acquirements soon procured for him the patronage of Lord Ho- 
-BART, the then Governor of Madras, and through his kindness was 
-admitted into the public service. After the capture of Ceylon by 
-the British, he was sent to Colombo as one of the Dubashcs, but he 
-remained in the office only for a short time, and then returned to his 
-country. 
-
-Professor Wilson, in his Historical Sketch of the kingdom of Pan- 
-diya, calls Muttiah '* an ingenious native" and quotes him asthc author 
-of a "History of the Modern Kings of Madura." 
-
-Although the few occasional effusions of his muse show that he 
-was possessed of abilities to make him distinguished as a poet, yet 
-he seems never to have set his mind towards the composition of a 
-poem of any magnitude. There are extant five acrostic stanzas ad- 
-dressed by him to Lord Hobart, of which the initial letters of the 
-first line of each when taken together form his own name, and the 
-final letters that of his patron. 
-
-TiRUVE'nKATAIYKR --- ^i^QwiEJSSOt---LUIT. 
-
-This poet was a Brahman who lived at ViUiputui\ in the Carnatic. 
-llis memory has been preserved by his TJvamiina Sangraham (©.ea; 
-u5fT«n<?fai'ffati), a short but elegantly written treatise on the meta- 
-phors employed in describing the charms of the fair sex, and which 
-greatly facilitates the composition of erotic poems. 
-
-Tiruve'nkataswa'mi --- ^0syissL-Sfs^iTu9. 
-
-Tiruvenkataswami, who was a Brdhman o^ Madei, in the Carnatic, 
-distinguished himself both as a poet and metaphysician. The date 
-of his existence, as well as the particulars of his personal history is 
-unknown. Of his works the imitation of tiie Frahoda Chandrodayam 
-{iS>oJun^^iT:0QofT^ajih) of Kisiina Misra in Tamil, redounds greatly 
-to his credit. It consists of 2012 stanzas, divided into forty-eight 
-cantos, but unlike the Sanskrit original which is in the form of a 
-drama, it is of an epic character. In this work the Rdmdyana is 
-
-
-THE TAMIL PLUTAJRCH. 105 
-
-explained as an allegory ; tlic triumph of Ra'ma over Ra'vana being 
-represented as the trium[)h of the good principle over the evil. 
-
-Te'nikudi Kirana'r --- (o^€aRd^i^dQrriCff)L 
-
-Of the history of Tenikudi Kiranar nothing further is known tlian 
-Xhia he was one of the forty-nine professors of the Madura College. 
-His name would have long ago been forgotten, but for his encomias- 
-tic stanza on the Kural, which we quote below. 
-
-By the Kural, the production of the divine Tirtjvalluver, the 
-world has been enabled to distinguish truth from falsehood which 
-were hitherto confounded together. 
-
-Te'reiyer --- Q^QSifftun. 
-Tereiyer, called also Terer^ was one of the twelve disciples of 
-Agastiyer. He is described in the Sadur Agaradi as "a poet thorough- 
-ly versed in the A'yur Veda, or science of medicine." Tiiere is a 
-tradition that he displayed so much skill in the healing art, that he 
-excited the jealousy of his master by frequently foiling him and was 
-\n consequence dismissed with a malediction which rendered his 
-practice unsuccessful for the future ; but this, as well as some other 
-incidents reported concei'ning him, have much the air of fable. He 
-was, however, a prolific writer on subjects connected with his pro- 
-fession ; but all his works have perished, except a treatise on medi- 
-cine, entitled Sikdmani Venba {^ a, n m escP Qeij em un), a treatise on pul- 
-sation, entitled iY«diA:o«M (fEir^LsCs/T^^), and the fragments of ;i 
-treatise on hygiene, entitled Noiyanugdvidhi {Qihaiu^nsnsS^). 
-
-The following stanzas we quote from Tereiyer's treatise on hy- 
-giene, as a specimen of his theories : --- 
-
-He who does not suppress the ahine discharges f he who does tiot 
-indulge in venery ; he who at meals drinks water that has been hoiUd ; 
-he toho dilutes loell with water his curdled milk; he tcho uses ghee 
-melted, will enjoy health ; for at the very mention of his name disease 
-will depart. 
-
-We will eat only twice, and not thrice a day ; toe will sleep only at 
-night, and not in the day ; we will hold sexual intercourse but once a 
-month ; tve will drink icater only at meals, although we feel ever sa 
-thirsty ; weicill not eat the bxdbous root of any plant, except that of the 
-Dracontium; we will not eat any fruit, except the tender plantain ;. 
-and toe loill take a short loalk after our meals and then what has Yama 
-(Pluto) to do with us 1 
-
-We toill take an emetic once in six months ,- a purgative once in four 
-months ; a Nasya* once in a month and a half, get shaved f meaning 
-the head) twice in a fortnight ; anoint ourselves, and bathe every fourth 
-day ; apply collyrium to the eyes every third day ; and never smeR per- 
-fumes, or flowers in the middle of the night ; and then what has Yama 
-to do ioith us 7 
-
-In ihc Padhdrtaguna Chintamani (u^nfr^s^^ecst^ihs^niDesi^), aworh 
-on Materia Medica, consisting of 1504 stanzas, and which has been re- 
-cently recovei-ed froni obscurity through the medium of the Press at 
-^Madras, by the laudable industry of Scbramanyam Panditer, w& 
-find a great number of the stanzas quoted as Tereiyer's productions. 
-It may be mentioned that this work not only treats of medicinal agents 
-but also of nutrients. It begins with the elements, and climates,. 
-and then proceeds to describe the projierties of the milk of differ- 
-ent kinds of animals and vegetables, the dung and urine of differ- 
-ent kinds of animals, the barks, leaves, flowers, fruits, seeds, nuts, 
-gums, and roots of different kinds of trees and plants, the flesh of 
-different kinds of beasts, birds and fish, and the preparations made 
-from different kinds of metals and minerals, and concludes with rules^ 
-on the mode of living for the preservation of health ; and we consid- 
-
-* A medicine prepared from the juice of certain lierbs and injected into the 
-nostrils to promote the discharge of mucus. 
-
-er that an English translation of this work will no doubt prove a 
--valuable auxiliary to medical men in England in their researches 
-into the Materia Medica of India. 
+16\. _Nenjuvidudūtu_, [TAMIL].
+
+17\. _Kalimadel_, [TAMIL].
+
+18\. _Agnaivadeipparani_, [TAMIL].
+
+19\. _Mogavadeipparani_, [TAMIL].
+
+20\. _Amirtasāra Venbā_, [TAMIL].
+
+21\. _Tiruvarudkazhen Mālei_, [TAMIL].
+
+22\. _Poti Mālei_, [TAMIL].
+
+23\. _Pugadchi Mālei_, [TAMIL].
+
+24\. _Sasivarnapotham_, [TAMIL].
+
+25\. _Peruntirattu_, [TAMIL].
+
+26\. _Kuruntirattu_, [TAMIL].
+
+## Tāndavamūrti. --- [TAMIL].
+
+Tāndavamūrti was a _Saiva_ ascetic who obtained considerable reputation by his skill in the Sanskrit and Tamil languages, and their respective literature. In the latter part of his life he devoted his attention entirely to metaphysical researches and wrote a work on the subject, entitlod _Kaivalya-navanītam_ ([TAMIL]), consisting of 293 stanzas.
+
+## Tāyumānaver. --- [TAMIL].
+
+Tāyumānaver was born at _Trichinapoly_, in the Carnatic about 150 years ago. His father **Kediliyappa Pillei** belonged to the _Velāla_ caste, and was _Samprati_ or accountant to the king **Vijaya Reghunatha Chokalinga Nayāker**. Having through the endeavours of his father skilled himself in the Sanskrit and Tamil languages, he devoted his attention to the Hindu Philosophy, and under the guidance of a famous _Guru_ of the name of **Maunadesiker**, soon obtained a knowlodge of its esoteric doctrines. From his earliest years he had a predilection for a religious life; but on the death of his father he was prevailed upon by the king's importunity to accept the Sampratiship, and employ himself at the Court. He however did not continue long in his office; for when on the death of the king, the queen conceiving a criminal passion for him endeavoured to entice him, he fled from her territory, and took up his residence in the Ramnad country. Some time afterwards he entered into marriage with a female of his own class, but she dying after giving birth to her first child, he assumed the habit of a half-naked Sanniyāsi, and led a strolling life until his death; visiting successively the _Saiva_ shrines throughout Southern India, and hymning their praises.
+
+As a philosopher Tāyumānaver is held in great esteem by the followers of the pantheistical school, and the doctrines which he held respecting God and the universe may be summed up in the following lines of **Pope**:---
+
+"_All are but parts of one stupendous whole,_  
+_Whose body Nature is, and God the soul;_  
+_Warms in the sun, refreshes in the breeze,_  
+_Glows in the stars, and blossoms in the trees,_  
+_Lives through all life, extends through all extent,_  
+_Spreads undivided, operates unspent._"
+
+As a poet, he certainly claims an undisputed pre-eminence over all his contemporaries. His spiritual songs, of which a collection consisting of 1453 stanzas of various metres was published at Madras in 1836, afford ample proof of his superior talents; for there are scarcely any of the kind in Tamil to equal them in sublimity of style.
+
+## Tirumangai Āzhvār. --- [TAMIL].
+
+This poet was a native of _Trivalūr_, and the _Vaishnavas_ venerate him as one of the twelve _Āzhvārs_, who was the foremost in promoting the interests of their sect, in opposition to the _Saivas_ and _Jainas_. His father **Nila** held the post of _Senāpati_ or generalismo of the _Chola_ army, and he himself was viceroy of a district; but failing to pay the tribute, and resisting the force which the king had sent to compel payment, he was deprived of his vice-regal authority, and left destitute, upon which he turned out a freebooter, but robbing only those who had not the _Vaishnava_ marks on their foreheads. He obtained the title of _Nātkaviperumal_ from the skill which he displayed in the composition of the four kinds of poems,* and it is said that when **Sampanter**, the famous champion of the _Saiva_ sect, disputed his right to the title he proved himself worthy of it to his satisfaction. His contribution to the _Nālāyiraprabhandam_ ([TAMIL]), consists of 1253 stanzas, in which he has not only eulogized _Vishnu_, but has likewise explained the esoteric doctrines of his sect.
+
+## Tirumazhishai Āzhvār. --- [TAMIL].
+
+The history of Tirumazhishai Āzhvār, who is reckoned as one of the twelve _Āzhvārs_ like the preceeding, has been altogether rendered a myth. This much however may be certain, that he was a foundling who was brought up in a _Veda_ family at _Tirumazhishai_. Having enthusiastically wedded himself to the _Vaishnava_ faith in his youth, he continued a rancorous opponent to the _Saivas_ throughout his life, and by his skill in polemics made many proselytes amongst them. He appears to have been a poet of superior talents, in proof of which may be mentioned his contribution of 206 stanzas to the _Nālāyiraprabhandam_ ([TAMIL]), in praise of _Vishnu_.
+
+## Tirumūler. --- [TAMIL].
+
+Little more is known of Tirumūler than that he was a _Saiva_ ascetic and philosopher, contemporary with **Agastiyer**, and like him exerted himself in diffusing the worship of _Siva_ amongst the Tamils. All that is related of him in the _Tirutonder Puranam_, in the character of one of the sixty-three special votaries of _Siva_, is manifestly fabulous, except that he was a cow-herd at _Sātanūr_, in the Carnatic, previous to his assuming the ascetic life, and establishing himself in the _Saiva_ fane at Tiruvavaduturai. Dr. **Ainslee** notices a medical treatise of Tirumūler under the title of _Tirumuler Vytia Vāgadam_ ([TAMIL]); but he is chiefly celebrated for his _Tirumulamandiram_ ([TAMIL]), a voluminous work containing an exposition of the tenets of the _Saiva_ religion, especially with reference to the four different forms of worship, as enjoined in the _Āgamas_. In the following two stanzas which we quote from it, the reader will see the striking coincidence between the doctrine which they inculcate, and that of the Bible:---
+
+[TAMIL].
+
+*) See Rotler's Tamil and English Dictionary under the word [TAMIL].
+
+_The ignorant think that God and love are different; none knows that God and love are the same; did all men know that God and love were the same, they would dwell together in peace, considering love as God._ Compare, 1. John, 4. 16.
+
+_To those of soft hearts, whose minds are melted by divine love, although their flesh be cut off their bones used as fuel, and their moisture dried up by wasting in the golden flame, and to those alone it is not forbidden to approach the God, who is the golden jewel of my soul._ Compare 1. Cor. 13. 1-3.
+
+## Tīrunīlakanda Yāzhpāner. --- [TAMIL].
+
+Tīrunīlakanda Yāzhpāner was a minstrel who flourished at _Erukkattampuliyūr_, in the Carnatic, during the reign of **Kuna Pāndiyen**. The traditions respecting him are tinged with fable; but there is no doubt that he was well skilled in his profession and being a zealous votary of _Siva_, continued all his life in composing verses in praise of his favorite god, and singing them to the lute. It is said that as he went to Madura to exhibit his performance in the temple there, the _Brāhmans_ at first would not take any notice of him; but that when he strung his lute and drew forth a few strains, they were so enraptured that they presented him a seat on a golden board, and rewarded him most munificiently. He afterwards repaired to Shiyally and joining **Sampanter** spent the remainder of his days with him.
+
+## Tirupān Āzhvār. --- [TAMIL].
+
+Tirupān Āzhvār is celebrated equally as a poet, and as one of the twelve _Āzhvārs_ or special votaries of _Vishnu_. When we strip his legend of its disguise, it would appear that his mother having exposed him in a corn-field at _Ureiyūr_ soon after his birth, he was found and adopted by a _Pānen_ or minstrel, whose profession he afterwards followed. His poetical compositions are not forthcoming at present, except the stanzas which he contributed to the _Nālāyiraprabhandam_ ([TAMIL]), pourtraying the beauties of _Vishnu_ from foot to head.
+
+## Tiruvalluver. --- [TAMIL].
+
+Tiruvalluver deservedly ranks foremost among the poets and moralists of India; for he has had no superior or equal in either character. Some place the date of his existence in the third or fourth and others in the eighth or ninth century of the Christian era, but the last is generally considered as most probable. All accounts concur in representing him as the offspring of a _Brahman_ by a _Pariah_ woman, brought up by a _Valluven_* at Mailapūr, near Madras, who had found him exposed in an _Illippe_ grove in his neighbourhood. It is not known who directed his studies; but we are told that while yet a youth, he had acquired so great a reputation for learning that **Mārgasagayen**, a weathly farmer who lived at Kāveripākam, did not disdain to bestow on him the hand of his only daughter named **Vāsuki**, and besides the highest personages in the place felt a pride in the enjoyment of his friendship. He, however, appears to have pursued a quiet and unobstrusive course of life, working at the loom for subsistence as the other Pariahs did until he was prevailed upon by his friends to take up the gauntlet against the professors of the Madura College, who had arrogantly defied all other men of learning in the country and claimed all literary honors to themselves. In order to humble the pride of the professors, he wrote an ethical poem, under the title of _Kural_ ([TAMIL]), and repairing to the College asked them to review it as judges of poetical composition, that he may have a seat on their College bench in case it was approved. The professors at first scorned at the idea of a Pariah-born poet offering himself as a competitor for a seat with them, but afterwards when he drew them into a contest and completely vanquished them, they not only approved his work and gave him the desired seat, but also conferred on him several honorary titles, such as, _Deivapulaver_ ([TAMIL]), the divine poet, _Mudetpāvaler_ ([TAMIL]), the first of poets, _Perunāveler_ ([TAMIL]), the great poet, etc. A legend would have it that the professors were so sensible of their discomfiture, that unable to survive it, they all drowned themselves in the pond in the neighbourhood of the College; but this is not confirmed by other accounts. Nothing further is known of Tiruvalluver which can be relied upon, excepting that some time after his return to Mailapūr, he was visited with a severe domestic calamity by the death of his wife to whom he was tenderly attached and it so deeply affected his mind that secluding himself from society, he devoted the remainder of his life to religious contemplation. It is said that while lying sleepless and agitated, on the night following his wife's death, he ejaculated extempore the following verse:
+
+[TAMIL].
+
+_When I have lost a woman who excelled in the knowledge of housewifery, who performed rightly all domestic duties, who never transgressed my word or my door, who chafed my limbs and never slumbering until I slept, arose before I awoke; Alas! Alas! How can my eyes again know sleep!._*
+
+*) A priest of the Pariah tribe.
+
+*) See Ellis' Kural, p. 168.
+
+The time of his death is uncertain; but a tradition would have it that when he died his body was according to his express desire exposed in the open air outside the town to be devoured by crows.
+
+It is difficult to judge from the tenor of his _Kural_ to what sect he belonged; for he has entirely avoided in the work every thing that savours of sectarianism in order to harmonize the suffrages of all the sects. The Jainas, however, claim him to belong to their sect from his having used in one of his distichs in praise of God the epithet _Andanan_ ([TAMIL]), which is applicable to _Arhā_ ([TAMIL]), the object of their worship.
+
+Independent of the _Kural_, we have no other compositions of Tiruvalluver. The physiological work, entitled _Gnānavettiyan_ ([TAMIL]), which is commonly ascribed to him, appears to have been written by some person long after his time; for the author, though he assumes the title of Tiruvalluver and speaks in his character in the body of the work, yet betrays the disguise in one of the introductory stanzas, thus:
+
+[TAMIL].
+
+_Invoking the spotless one whom the holy Valluva has revealed in his incomparable Veda as clear as the light of the sun and moon, and by the grace of the damsel Ambigai (Parvati), who delights the heart, I shall compose the Gnāna Vettiyan._
+
+The _Kural_ was first brought to the notice of the European literati by Father **Beschi** in the _Shen Tamil Grammar_, which he published in 1730, and some portions of it have since been translated into Latin, German and English languages. We subjoin the various opinions of the Tamil scholars amongst Europeans on its merits.
+
+The _Kural_ "stands confessed, even to the present day, to be the best and chief of all compositions in the polished dialect." **Taylor's** Oriental Historical Manuscripts, Vol. 1. p. 177.
+
+"Though more than fifteen hundred years old, this rare collection of precepts, conveyed in the style of unequalled poetry, has lost none of its original favour among the people. In one hundred and thirty-three chapters it treats of almost every variety of subjects pertaining to the relations and duties of life, forming a text-book of indisputable authority." **Ward's** India and the Hindus, p. 135.
+
+"The _Kural_ of Tiruvalluver is a poetic work on morals, of great merit as a literary performance, and highly esteemed among the Tamil natives, for the beauty of its language, and the truth of its sentiments." **Hoole's** Personal Narative of a Mission to the South of India." Part 2. p. 311.
+
+"It is called the first of works, from which, whether for thought or language, there is no appeal." **Drew's** Preface to the _Kural_, Vol. 1. p. 2.
+
+"Nothing certainly in the whole compass of human language can equal the force and terseness of the sententious distichs in which the author conveys the lessons of wisdom he utters." **Percival's** Land of the Veda, p. 110.
+
+"The _Kural_ of Tiruvalluver, a work consisting of 1333 distichs, or poetical aphorisms, on almost every subject connected with morals and political economy, and which is regarded by all Tamilians (and perhaps justly) as the finest composition of which the Tamil can boast appears to be not only the best but the oldest Tamil work of any extent which is now in existence. **Caldwell's** Dravidian Grammar, Introduction, p. 85.
+
+## Tiruverkādu Muttiāh Mudeliār. --- [TAMIL].
+
+Tiruverkādu Muttiāh Mudeliār was born at _Tiruverkādu_, in the Carnatic, in CE 1761. It appears from an amusing account of his own studies, written by himself, and published in **Dalrymple's** Oriental Repertory, that he had begun to apply himself to his books at the very early age of five, and before he had completed his twenty-first year, he had acquired a knowledge of the Sanskrit, Tamil, Telugu, Maharatta, Persian, English and Latin languages, and became an adept in the mystical philosophy of the Hindus. The fame of his acquirements soon procured for him the patronage of Lord **Hobart**, the then Governor of Madras, and through his kindness was admitted into the public service. After the capture of Ceylon by the British, he was sent to Colombo as one of the Dubashes, but he remained in the office only for a short time, and then returned to his country.
+
+Professor **Wilson**, in his Historical Sketch of the kingdom of Pandiya, calls Muttiah "an ingenious native" and quotes him as the author of a "History of the Modern Kings of Madura."
+
+Although the few occasional effusions of his muse show that he was possessed of abilities to make him distinguished as a poet, yet he seems never to have set his mind towards the composition of a poem of any magnitude. There are extant five acrostic stanzas addressed by him to Lord **Hobart**, of which the initial letters of the first line of each when taken together form his own name, and the final letters that of his patron.
+
+## Tiruvenkataiyer. --- [TAMIL].
+
+This poet was a _Brāhman_ who lived at _Villiputūr_, in the Carnatic. His memory has been preserved by his _Uvamāna Sangraham_ ([TAMIL]), a short but elegantly written treatise on the metaphors employed in describing the charms of the fair sex, and which greatly facilitates the composition of erotic poems.
+
+## Tiruvenkataswāmi. --- [TAMIL].
+
+Tiruvenkataswāmi, who was a _Brāhman_ of _Mādei_, in the Carnatic, distinguished himself both as a poet and metaphysician. The date of his existence, as well as the particulars of his personal history is unknown. Of his works the imitation of the _Praboda Chandrodayam_ ([TAMIL]) of **Kishna Misra** in Tamil, redounds greatly to his credit. It consists of 2012 stanzas, divided into forty-eight cantos, but unlike the Sanskrit original which is in the form of a drama, it is of an epic character. In this work the _Rāmāyana_ is explained as an allegory; the triumph of **Rāma** over **Rāvana** being represented as the triumph of the good principle over the evil.
+
+## Tenikudi Kiranār. --- [TAMIL].
+
+Of the history of Tenikudi Kiranār nothing further is known than that he was one of the forty-nine professors of the Madura College. His name would have long ago been forgotten, but for his encomiastic stanza on the _Kural_, which we quote below.
+
+[TAMIL].
+
+_By the Kural, the production of the divine Tiruvalluver, the world has been enabled to distinguish truth from falsehood which were hitherto confounded together._
+
+## Tereiyer. --- [TAMIL].
+
+Tereiyer, called also _Terer_, was one of the twelve disciples of **Agastiyer**. He is described in the _Sadur Agaradi_ as "a poet thoroughly versed in the _Āyūr Veda_, or science of medicine." There is a tradition that he displayed so much skill in the healing art, that he excited the jealousy of his master by frequently foiling him and was in consequence dismissed with a malediction which rendered his practice unsuccessful for the future; but this, as well as some other incidents reported concerning him, have much the air of fable. He was, however, a prolific writer on subjects connected with his profession; but all his works have perished, except a treatise on medicine, entitled _Sikāmani Venba_ ([TAMIL]), a treatise on pulsation, entitled _Nādikottu_ ([TAMIL]), and the fragments of a treatise on hygiene, entitled _Noiyanugāvidhi_ ([TAMIL]).
+
+The following stanzas we quote from Tereiyer's treatise on hygiene, as a specimen of his theories:---
+
+[TAMIL].
+
+_He who does not suppress the alvine discharges; he who does not indulge in venery; he who at meals drinks water that has been boiled; he who dilutes well with water his curdled milk; he who uses ghee melted, will enjoy health; for at the very mention of his name disease will depart._
+
+_We will eat only twice, and not thrice a day; we will sleep only at night, and not in the day; we will hold sexual intercourse but once a month; we will drink water only at meals, although we feel ever so thirsty; we will not eat the bulbous root of any plant, except that of the Dracontium; we will not eat any fruit, except the tender plantain, and we will take a short walk after our meals and then what has Yama (Pluto) to do with us?_
+
+_We will take an emetic once in six months; a purgative once in four months; a Nasya* once in a month and a half, get shaved (meaning the head) twice in a fortnight; anoint ourselves, and bathe every fourth day; apply collyrium to the eyes every third day; and never smell perfumes, or flowers in the middle of the night; and then what has Yama to do with us?_
+
+In the _Padhārtaguna Chintamani_ ([TAMIL]), a work on Materia Medica, consisting of 1504 stanzas, and which has been recently recovered from obscurity through the medium of the Press at Madras, by the laudable industry of **Subramanyam Panditer**, we find a great number of the stanzas quoted as Tereiyer's productions. It may be mentioned that this work not only treats of medicinal agents but also of nutrients. It begins with the elements, and climates, and then proceeds to describe the properties of the milk of different kinds of animals and vegetables, the dung and urine of different kinds of animals, the barks, leaves, flowers, fruits, seeds, nuts, gums, and roots of different kinds of trees and plants, the flesh of different kinds of beasts, birds and fish, and the preparations made from different kinds of metals and minerals, and concludes with rules on the mode of living for the preservation of health; and we consider that an English translation of this work will no doubt prove a valuable auxiliary to medical men in England in their researches into the Materia Medica of India.
+
+*) A medicine prepared from the juice of certain herbs and injected into the nostrils to promote the discharge of mucus.
+
 ToDiTTALEi Vizhuttandina'r --- Q^nisf.^fi'bsoeB Q^^^eisris^^n' 
 
 Todittalei Vizhuttandinar was one of the forty-nine professors of 
