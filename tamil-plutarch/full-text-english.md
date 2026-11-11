@@ -1369,384 +1369,169 @@ Sekizhār, called also _Arunmozhitever_ ([TAMIL]), was born of a _Velāla_ famil
 
 ## Senāthirāyer. --- [TAMIL].
 
-Senāthirāyer was the son of Nelleina'ther, the scion of a Veldia 
-family at Tillipally, in Jaffna, and traced back his line of ancestors 
-to the time of the Chakravartis. He commenced his studies early in 
-life, and distinguished himself as a poet of considerable attainments ; 
-but his circumstances in life not permitting him to devote himself 
-exclusively to the Muses, he betook himself to the legal profession, 
-and continued to practice as a Proctor first before tiie Provincial 
-Court, and afterwards before the District Court of Jaffna, and 
-thereby secured for himself a competency, sufficient to maintain his 
-independence. He was an intimate friend of all the Missionaries 
-in Jaffiia, and especially of the late Rev. Joseph Knight of Ncllorc, 
-and was not unacquainted with the doctrines of Christianity ; but 
-such were his prejudices in favour of Hinduism, that he died as 
-lie had lived, a Ilindu in the widest sense of the word. He is known 
-as the author of a poem, entitled Nallei Venha (ffisoeLSuCojCBsrufr), 
-which he composed in praise of the Saiva shrine at Ncllorc, and 
-likewise as one of the compilers of the Tamil Dictionary, which was 
-published by the American Missionaries in Jaffna. His death took 
-place in 1840, and a contemporary poet has commemorated that 
-event in the following quatrain : 
+Senāthirāyer was the son of **Nelleināther**, the scion of a _Velāla_ family at _Tillipally_, in Jaffna, and traced back his line of ancestors to the time of the _Chakravartis_. He commenced his studies early in life, and distinguished himself as a poet of considerable attainments; but his circumstances in life not permitting him to devote himself exclusively to the Muses, he betook himself to the legal profession, and continued to practice as a Proctor first before the Provincial Court, and afterwards before the District Court of Jaffna, and thereby secured for himself a competency, sufficient to maintain his independence. He was an intimate friend of all the Missionaries in Jaffna, and especially of the late Rev. **Joseph Knight** of Nellore, and was not unacquainted with the doctrines of Christianity; but such were his prejudices in favour of Hinduism, that he died as he had lived, a Hindu in the widest sense of the word. He is known as the author of a poem, entitled _Nallei Venba_ ([TAMIL]), which he composed in praise of the _Saiva_ shrine at Nellore, and likewise as one of the compilers of the Tamil Dictionary, which was published by the American Missionaries in Jaffna. His death took place in 1840, and a contemporary poet has commemorated that event in the following quatrain:
 
-Seiuianar ns n^prcsidnted by himself, was a Srdhtidn of Ambel, a 
-hnvn on the banks of the Kaveri, in the Tanjorc country, and he ac- 
-quired tlie titU^ of Ubdijd kavi or the double poet, on account of his 
-skill both in Sanskrit and Tairiil poetry. Of his compositions, 
-liowevcr, there are nonC extant, save the Divakaram, a Tamil Diction- 
-ary comprising 2286 sutras in metre, divided into (en chapters. The 
-period of his existence must be placed before the sixteenth century of 
-the Christian era ; for MANDAnAPURUDER, who wrote tlic Suddmani 
-Niga?i(lu in the early part of thatcentui'y, professes to have followed 
-the Divukaram in composing his work. 
+[TAMIL].
 
-StDAMBARA De'SiKkH ^^thu jjQjg^ SIT. 
+## Sendanār. --- [TAMIL].
 
-Sidambara Dosiker was a Saiva ascetic, who studying Under the 
-tuition of Sa'ntalinga De'siker of Tureiyur, became a proficient in 
-the art of poetry, as well as in the science of metaphysics ; and soon 
-afterwards had the distinction of being installed into the office of 
-Tamliran of the Malam at 'Tirupporur. His comments on the five 
-metaphysical treatises of his master are much esteemed ; and the 
-poem called Titupporur iannidhi^miirei {0'(!f)UQun(§n^3'^!^0(ipes)ip), 
-w'hich he wrote in praise of Skandd., who is worshipped at Tirupporur, 
-is (i.n elegant production. 
+Sendanār as represented by himself, was a _Brāhman_ of _Ambel_, a town on the banks of the Kaveri, in the Tanjore country, and he acquired the title of _Ubāya kavi_ or the double poet, on account of his skill both in Sanskrit and Tamil poetry. Of his compositions, however, there are none extant, save the _Divakaram_, a Tamil Dictionary comprising 2286 sutras in metre, divided into ten chapters. The period of his existence must be placed before the sixteenth century of the Christian era; for **Mandalapuruder**, who wrote the _Sūdāmani Nigandu_ in the early part of that century, professes to have followed the _Divakaram_ in composing his work.
 
-Sinnatamby Pl'laver --- Q iss! ear. s^ to i3u t:\e06ii a. 
+## Sidambara Desiker. --- [TAMIL].
 
-This poet was the son of Villavera'ya Mudeliar, one of the 
-chiefs who revised the Thesaicalamy, or Codex Jaffanensis, compiled 
-by order of (Governor Simons in 1706. His birth took place at Nellore 
-in Jaffna. His poetical talents appear to have developed themselves 
-at a very early agd ; for it is said that while yet a boy, as he was 
-playing a game with arccanuts, w ith his playmates in the street, a poet, 
-who came over from Southern India to wait on Villavara'ya Mu- 
-Deliar and to fecite before him a poem which he had composed in his 
-praise, not knowing the way to his house, enquired of the children 
-for it ; upon which Sinnatamby came forward^ and answered him in 
-the following impromptu :--- ^ 
+Sidambara Desiker was a _Saiva_ ascetic, who studying under the tuition of **Sāntalinga Desiker** of _Tureiyūr_, became a proficient in the art of poetry, as well as in the science of metaphysics; and soon afterwards had the distinction of being installed into the office of _Tambiran_ of the _Matam_ at Tirupporūr. His comments on the five metaphysical treatises of his master are much esteemed; and the poem called _Tirupporūr sannidhi-murei_ ([TAMIL]), which he wrote in praise of _Skanda_, who is worshipped at Tirupporūr, is an elegant production.
 
-to, there is a Kondei tret* at the golden gate of Villavaha'ya, 
-of Nellore, whose fame is diffused every where as vividly as lighten' 
+## Sinnatamby Pulaver. --- [TAMIL].
 
-Cassia Fist til a. 
+This poet was the son of **Villaverāya Mudeliar**, one of the chiefs who revised the _Thesawalamy_, or Codex Jaffanensis, compiled by order of Governor **Simons** in 1706. His birth took place at _Nellore_ in Jaffna. His poetical talents appear to have developed themselves at a very early age; for it is said that while yet a boy, as he was playing a game with arecanuts, with his playmates in the street, a poet, who came over from Southern India to wait on **Villavarāya Mudeliar** and to recite before him a poem which he had composed in his praise, not knowing the way to his house, enquired of the children for it; upon which Sinnatamby came forward, and answered him in the following impromptu:---
 
-tug, shower iiig down its golden flowers full of pungent anthers, and 
-affording good shade to the people with its luxuriant branches. 
+[TAMIL].
 
-He was the author of a poem, entitled Kalvazheiyantddi {seoeu 
-fi!S)i^iDih^n0), consisting of a series of 100 stanzas remarkably beaii- 
-tifui both in their construction, and style. He appears to Iiave been 
-patronized by Gane'siyee, an opulent Brahman who lived at Jaffna 
+_Lo, there is a Kondei tree* at the golden gate of Villavarāya, of Nellore, whose fame is diffused every where as vividly as lightening, showering down its golden flowers full of pungent anthers, and affording good shade to the people with its luxuriant branches._
+
+*) _Cassia Fistula_.
+
+He was the author of a poem, entitled _Kalvazheiyantādi_ ([TAMIL]), consisting of a series of 100 stanzas remarkably beau- 
+tiful both in their construction, and style. He appears to have been 
+patronized by **Ganesiyer**, an opulent _Brahman_ who lived at Jaffna 
 in his time, and we have the following stanza in which he has com- 
-memorated his patron : --- 
-
-The damsel with protuberant bosoms and tapering neck when wound- 
-ed by the shaft of Ananga( Cupid) resembled the peahen of the mount 
-Kailei (meaning Parvati) ; but thou O Gane'sa, the prince of men ! 
-resemblest (Krishna), dancing on the extended hood of the venom- 
-ous serpent. 
-
-Sirume'da'viya'r --- &s)iQu>^iTsStunn. 
-
-The name of this poet occurs as one of the forty-nine professoiis 
-of the Madura College ; but nothing is known of his personal history, 
-and there is no other relic of his poetical effusions than the following 
-impicmptu on the Kural : --- 
-
-Of the number of Chapters in the Kural four pertain to the preface., 
-thirty-three treat of virtue, one of fate, seventy of wealth, and twenty- 
-five of pleasure, and such is the arrangement of Valluver's work. 
-
-Sivagna'na De'siker^ --- &eij(^rreisrsiT. 
-
-Slvagnana Desiker, who was the Tambira'n of the Matam at Tir- 
-Uvavaduturei in Tinnevelly, deserves notice both as a metaphysician' 
-and poet. The date of his birth as well as that of His death has not' 
-been ascertained'; but he was contemporary with SAifKAKA Nama- 
-siva'yer, and like him prosecuted his studies under the guidance of 
-Sa'minada De'siker. Of his works the Su/>-ai't?-«<</i {^^^aeS^^^), 
-an exposition of the Tolkappiyum, d,nd \\\e Nannul Urci (f56ST@fTQ} 
-«j)£r), an exposition of the Nannul, are held in high estimation, as the 
-best helps for students in acquiring a correct knowledge of belles let- 
-tres. His Illakanavilakka-churdvali {^eoAaecsteSea a>&ff^,njeue^), a 
-critique on the lUakana-vilakkam oj Vyttiyana'tha Na'valer, is 
-
-very ably written; but we do not admire the spirit which dictated it^ 
-for whilst the faults of the work are exposed with excessive rigour, 
-Us merits are studiedly concealed. 
-
-SiVAPRAKa'sA De'SIKER 9lSljjre(T^Q;S&ilT. 
-
-Sivaprakasa Desikcr was the eldest of the three sons of Kuma'ra- 
-swa'mi Panda'kam, a Jangama priest, who lived at Kanjipuram iu the 
-early part of the seventeenth century of the Clxristian era. Losing 
-his father at an early age, and whilst still pursuing his studies, he 
-went with his mother and brothers to Trinomali to settle himself 
-there ; but he shortly after set owt to TLnnevelly for the purpose 
-of perfecting himself in grammar and poetry. On his way, how- 
-ever, he was delayed at Tiruwiangalaai for a period of two years, 
-in consequence of Anna'malei Reddi, the Gramdd' hipati* , of Tiru- 
-raangalam, having prevailed on him by his entreaties to reside in a 
-Matam which he had erected there. Afterwards taking leave of An- 
-na'malei Reddi, who presented him with a sum of 300 fkons (equiv- 
-alent to .£52 \Q), lie proceeded to TionevelKy in company with his 
-brothers. When he reached Tinnevelly, hearing that Velliyambala 
-Tambikan, the head ascetic of the Saiva Matam at Sindupundurei 
-on the banks of the Tambraparni, was the best oi Tamil scholars, he 
-with his brothers presented himself before him, and asked his instruc 
-tion in grammar and poetry. The Tambiran in order to know the 
-progress he may have already made in composing verses, desired 
-bim to compose a verse beginning and ending with the letter (§) ku, 
-and having in the middle the name of Urudeiyan (Siva), upon which 
-he uttered the following off hand : --- 
-
-The Tambiran was so much satisfied with the performance, that 
-he embraced him, and offering him an honorable seat, told that he 
-did not require any further instruction, but tliat he would gladly teach 
-his brothers. When his brothers had finished their course of studies, 
-he offered the 300 pons which he had to the Tambiran as a rumu- 
-neration for his trouble, but this offer was declined. The Tam- 
-biran only required in return that he should go to Trichendur, 
-and by his poetry defeat and put to shame a poet, who had set 
-himself up there as the Tambiran's rival, and had lampooned 
-him. He gladly undertook the task and repaired to Trichendur 
-as required, and found the poet in the temple there. No sooner had 
-the object of his visit been reported to the poet than he challenged 
-
-The head of the village. 
-
-him to a contest, in which each was to improvise thirty Yamakama 
-stanzas (a kind of stanza consisting of four lines beginning with the 
-same word but having a different sense in each lino) within a given 
-time, and that the vanquished was to become the slave of the victor. 
-The clialienge being accepted, they proceeded to the trial of their skill, 
-but the poet failing delivered himself over as a slave to his competitor, 
-who thereupon conducted him to Sindupunturei, and consigned him 
-to the Tamhiran. The Tambiran was so much gratified with the sue- 
-cess of Sivaprakasa Desiker, that unwilling to part with him, he en- 
-deavored to make him his associate in the Matam at Sindupunturei ; but 
-Sivaprakasa Desiker preferring to live by himself in solitary dignity 
-took his farewell of the Tambiran and returned to his own Matam 
-at Tirumangalam. The fame of his superior attainments soon 
-spread over the country, and all persons wishing to avail them« 
-selves of his instruction flocked to him from all parts. His time in 
-the latter part of his life appears to have been wholly engrossed in 
-philosophical and metaphysical researches, and in imparting their re- 
-sult to the public by means of a series of poetical treatises. His use- 
-ful career was howevor cut short by death, which occurred at NaU 
-kattur in the thirty-second year of his age, as he was on a visitation 
-to the Matam there. It is said that he was a staunch defender of 
-celibacy, and that when his friend Anna'malei Reddi proposed to 
-him a marriage, he disdainfully rejected the proposal observing, that 
-he would rather be possessed of a devil than be possessed of a wife. 
-Sivaprakasa Desiker was a prolific writer, and the following works 
-all which are written in well measured poetry, may be mentioned aa 
-his productions : 
+memorated his patron:---
 
-1. Prahulinga Lila, iSai^e^&i&deus^. 
+[TAMIL].
 
-2. Tirukuva Puranam, ^i^ssnajuqansssni. 
+_The damsel with protuberant bosoms and tapering neck when wounded by the shaft of Ananga (Cupid) resembled the peahen of the mount Kailei (meaning Parvati); but thou O Ganesa, the prince of men! resemblest (Krishna), dancing on the extended hood of the venomous serpent._
 
-3. Sittaiidha Sikdmajii, <^0^ni^^a>niiiesBP. 
+## Sirumedāviyār. --- [TAMIL].
 
-4. Veda'nta Sudu'maniy Goj^nih^ gt_/TU36?55p. 
+The name of this poet occurs as one of the forty-nine professors of the Madura College; but nothing is known of his personal history, and there is no other relic of his poetical effusions than the following impromptu on the _Kural_:---
 
-5. Sivaprakasa Vikdsam, ^enuiSaans^eS^ans-ib. 
+[TAMIL].
 
-6. Sivana'ma Mahimei, ^eu[inu)U)St>s>U). 
+_Of the number of Chapters in the Kural four pertain to the preface, thirty-three treat of virtue, one of fate, seventy of wealth, and twenty-five of pleasure, and such is the arrangement of Valluver's work._
 
-7. Tarkaparipdsheiy ^frsaufPu/reaja^. 
+## Sivagnāna Desiker. --- [TAMIL].
 
-8. Shonasaila Mdlei, CsF/recde^a^eOinnsLSD. 
+Sivagnāna Desiker, who was the _Tambirān_ of the _Matam_ at Tiruvāvaduturei in Tinnevelly, deserves notice both as a metaphysician and poet. The date of his birth as well as that of his death has not been ascertained; but he was contemporary with **Sankara Namasivāyer**, and like him prosecuted his studies under the guidance of **Sāminada Desiker**. Of his works the _Sūtravirutti_ ([TAMIL]), an exposition of the _Tolkappiyum_, and the _Nannūl Urei_ ([TAMIL]), an exposition of the _Nannūl_, are held in high estimation, as the best helps for students in acquiring a correct knowledge of belles lettres. His _Illakanavilakka-chūrāvali_ ([TAMIL]), a critique on the _Illakana-vilakkam_ of **Vyttyanātha Nāvaler**, is very ably written; but we do not admire the spirit which dictated it, for whilst the faults of the work are exposed with excessive rigour, its merits are studiedly concealed.
 
-9. Veiigkai Kalambagmn, CsuBeoaiaeOtiuati, 
+## Sivaprakāsa Desiker. --- [TAMIL].
 
-10. Vengkai Kovei, G€ijai6s>aaQsn&s>eij. 
+Sivaprakāsa Desiker was the eldest of the three sons of **Kumāraswāmi Pandāram**, a _Jangama_ priest, who lived at _Kanjipuram_ in the early part of the seventeenth century of the Christian era. Losing his father at an early age, and whilst still pursuing his studies, he went with his mother and brothers to Trinomali to settle himself there; but he shortly after set out to Tinnevelly for the purpose of perfecting himself in grammar and poetry. On his way, however, he was delayed at Tirumangalam for a period of two years, in consequence of **Annāmalei Reddi**, the _Gramādhipati_,* of Tirumangalam, having prevailed on him by his entreaties to reside in a _Matam_ which he had erected there. Afterwards taking leave of **Annāmalei Reddi**, who presented him with a sum of 300 pons (equivalent to £ 52 10), he proceeded to Tinnevelly in company with his brothers. When he reached Tinnevelly, hearing that **Velliyambala Tambiran**, the head ascetic of the _Saiva Matam_ at Sindupūndurei on the banks of the Tāmbraparni, was the best of Tamil scholars, he with his brothers presented himself before him, and asked his instruction in grammar and poetry. The _Tambiran_ in order to know the progress he may have already made in composing verses, desired him to compose a verse beginning and ending with the letter ([TAMIL]) _ku_, and having in the middle the name of _Ūrudeiyan_ (Siva), upon which he uttered the following off hand:---
 
-11. Vengkai Uld, Gfii/ZBewaajsv/r. 
+[TAMIL].
 
-12. Vengkai Alangkfiram, Geuikie^aujediianaii. 
+*) The head of the village.
 
-13. Tiruchendil Antddi, ^^s^Qfffh^eoib^n^. 
+The _Tambiran_ was so much satisfied with the performance, that he embraced him, and offering him an honorable seat, told that he did not require any further instruction, but that he would gladly teach his brothers. When his brothers had finished their course of studies, he offered the 300 pons which he had to the _Tambiran_ as a rumuneration for his trouble, but this offer was declined. The Tambiran only required in return that he should go to Trichendūr, and by his poetry defeat and put to shame a poet, who had set himself up there as the _Tambiran's_ rival, and had lampooned him. He gladly undertook the task and repaired to Trichendūr as required, and found the poet in the temple there. No sooner had the object of his visit been reported to the poet than he challenged him to a contest, in which each was to improvise thirty _Yamakama_ stanzas (a kind of stanza consisting of four lines beginning with the same word but having a different sense in each line) within a given time, and that the vanquished was to become the slave of the victor. The challenge being accepted, they proceeded to the trial of their skill, but the poet failing delivered himself over as a slave to his competitor, who thereupon conducted him to Sindupūnturei, and consigned him to the _Tambiran_. The _Tambiran_ was so much gratified with the success of Sivaprakāsa Desiker, that unwilling to part with him, he endeavored to make him his associate in the _Matam_ at Sindupūnturei; but Sivaprakāsa Desiker preferring to live by himself in solitary dignity took his farewell of the _Tambiran_ and returned to his own _Matam_ at Tirumangalam. The fame of his superior attainments soon spread over the country, and all persons wishing to avail themselves of his instruction flocked to him from all parts. His time in the latter part of his life appears to have been wholly engrossed in philosophical and metaphysical researches, and in imparting their result to the public by means of a series of poetical treatises. His useful career was however cut short by death, which occurred at Nalkattur in the thirty-second year of his age, as he was on a visitation to the _Matam_ there. It is said that he was a staunch defender of celibacy, and that when his friend **Annāmalei Reddi** proposed to him a marriage, he disdainfully rejected the proposal observing, that he would rather be possessed of a devil than be possessed of a wife.
 
-14. Satdmani Mdlei, ff^ai€ssf'iDnQ£0. 
+Sivaprakāsa Desiker was a prolific writer, and the following works all which are written in well measured poetry, may be mentioned as his productions:
 
-15. Na'lver Na'nmani Ma'lciy msoeua {h(]^u:€<sSiL(Jf>\&>. 
+1\. _Prabulinga Līla_, [TAMIL].
 
-16. Niranjana Ma'Iei, i^o^ffemttneiev. 
+2\. _Tirukūva Puranam_, [TAMIL].
 
+3\. _Sittāndha Sikāmani_, [TAMIL].
 
-THE TAMIL PLUTARCIJ. 93 
+4\. _Vedānta Sudāmani_, [TAMIL].
 
-17. Kailala Ma lei, 6S)3^^ffOiDneiJiO. 
+5\. _Sivaprakāsa Vikāsam_, [TAMIL].
 
-18. Abishcsra Ma'lci, ^■SCet^sLdneiso. 
+6\. _Sivanāma Mahimei_, [TAMIL].
 
-19. Ishlaliiiga Fvrungkaxhincdil, @a^t_6\?/Bau Qu^!k'(ti^ecQib 
+7\. _Tarkaparipāshei_, [TAMIL].
 
-If eo. 
-20. hhinJinga Kunniglazhinodil, Qei^L.eS'iBiaa^^iB&f^'^i^QihUf.ei), 
-31. Nanncri, [hd5tG6!yfi$. 
+8\. _Shonasaila Mālei_, [TAMIL].
 
-Of tliese the Nos. 1 and 2 are epic poems, one treating of the IiIst 
-tury of Alhvna Prabhu, the founder of the Jangavia sect and the 
-other of the legends of the Saiva fane at Tirukkuvai. The Nos 3, 
-4, 5, 6 and 7 treat of the Hindu system of Meta{)hysical philosoj)hy, 
-and the Nos. 8,9, 10, 11, 12, 13, 14, 15, 16, 17, 18, 19 and 20 of 
-the praise of certain Saiva shrines, while the No. 21 contains a series* 
-of moral apothegms, from which we quote below a few as specimen, 
+9\. _Vengkai Kalambagam_, [TAMIL].
 
-The worthiffeel the griefs of others as their oion griefs as butter 
-meltcth in the fire; thus., 0 thou who art ornamented with choice jew- 
-els ! the pain caused to a limb by a loQal disorder the eye beholds and 
-weeps. 
+10\. _Vengkai Kovei_, [TAMIL].
 
-The truly wise hasten to sustain the griefs sustained by others and 
-io protect them courageously, O thou who art adorned by polished jew-, 
-els ! thus, the arm receives on itself and sustains the blow of the club 
-ivhicli the body looiild otherwise sustain' 
+11\. _Vengkai Ulā_, [TAMIL].
 
-The worthy think not of supplying their own wants, but endeavoxir 
-io supply the pressing xva7its of others ; thus the moon, heeding not 
-the removal of the darkness of its own spots, chaseth away the dark- 
-ness which flleth the world. Elljs. 
+12\. _Vengkai Alangkāram_, [TAMIL].
 
-Sivapraka'sa Desiker was also the author of three different pancgyv 
-rics on Ba'laya'nandaSwa'mi, who was his Guru or spiritual instruc- 
-tor, besides a hymn on each of the Saiva shrines in southern India, 
-which were commemorated in the chants of Apper, Sundarer and 
-Sampax^ter in ancient times. He undertook to perfect the Kdlatti 
+13\. _Tiruchendil Antādi_, [TAMIL].
 
+14\. _Satāmani Mālei_, [TAMIL].
 
-Oi THE Tamil rLiTAncH. 
+15\. _Nālver Nānmani Mālei_, [TAMIL].
 
-Purdnam {a>nen a^0u\an€mih), which his brother Karunaipraka sa 
-DEziKERhad left unfinished ; but he died before lie could execute liis 
-task. 
+16\. _Niranjana Mālei_, [TAMIL].
 
-This eminent philosopher is known as the author of a monotheisti- 
-cal treatise bearing his own name, and in which he has attacked and 
-exposed tlic Hindu religion, and its concomitant superstitions. TJie 
-era of his existence is variously stated ; but it cannot be fi.xed ants'- 
-rior to the incursion of the Muhamnicdans into the Dekkan, as he al- 
-ludes to their creed in his treatise. 
+17\. _Kaitala Mālei_, [TAMIL].
 
-As a specimen of the style and tenets of Sivavakiyar, we subjoin 
-the five following stanzas, and th.cir English translation by the late 
-JMr. Ellis. 
+18\. _Abishega Mālei_, [TAMIL].
 
+19\. _Ishtalinga Perungkazhinedil_, [TAMIL].
 
-Formerly hoio many /lowers have I gathered and scattered. 
-Jloio many prayers have I repeated in a vain ivorship 7 
-While yet in the prime of my life, how much water hacc 1 poured 
-out ? 
+20\. _Ishtalinga Kurungkazhinedil_, [TAMIL].
 
+21\. _Nanneri_, [TAMIL].
 
-a»HE T;tMIJ PhlTAfrCH. 95f 
+Of these the Nos. 1 and 2 are epic poems, one treating of the histtory of _Allama Prabhu_, the founder of the _Jangama_ sect and the other of the legends of the _Saiva_ fane at _Tirukkūvai_. The Nos 3, 4, 5, 6 and 7 treat of the Hindu system of Metaphysical philosophy, and the Nos. 8, 9, 10, 11, 12, 13, 14, 15, 16, 17, 18, 19 and 20 of the praise of certain _Saiva_ shrines, while the No. 21 contains a series of moral apothegms, from which we quote below a few as specimen:
 
-And, Jiwreover, how often have I encompassed the holy places of 
-Sivcn, 
+[TAMIL].
 
-This I have left off, for the wise who know the true God, the Lord 
-of heavenly beings. 
+_The worthy feel the griefs of others as their own griefs as butter melteth in the fire; thus, O thou who art ornamented with choice jewels! the pain caused to a limb by a local disorder the eye beholds and weeps._
 
-Believe not the Idol of the temples aj)parent to the eyes to he God, 
-7wr lift up to it their hands. 
+_The truly wise hasten to sustain the griefs sustained by others and to protect them courageously, O thou who art adorned by polished jewels! thus, the arm receives on itself and sustains the blow of the club which the body would otherwise sustain._
 
-While taking tip the water and throicing it again into the tcater 
-(in performing the sandhya and other rites) what is the ohjcct on 
-which you think J 
+_The worthy think not of supplying their own wants, but endeavour to supply the pressing wants of others; thus the moon, heeding not the removal of the darkness of its own spots, chaseth away the darkness which filleth the world._ **Ellis.**
 
-On tvhatsoever you think you have throivn all the toater vainly : 
+Sivaprakāsa Desiker was also the author of three different panegyrics on **Bālayānanda Swāmi_, who was his _Guru_ or spiritual instructor, besides a hymn on each of the _Saiva_ shrines in southern India, which were commemorated in the chants of **Apper**, **Sundarer** and **Sampanter** in ancient times. He undertook to perfect the _Kālatti Purānam_ ([TAMIL]), which his brother **Karunaiprakāsa Deziker** had left unfinished; but he died before he could execute his task.
 
-Think on the root, think on the seed, and on the hejK^t arising from 
-that seed ; 
+## Sivavākiyar. --- [TAMIL].
 
-Whe7i you arr thus ahle to think, yoximay approach the feet of God. 
+This eminent philosopher is known as the author of a monotheistical treatise bearing his own name, and in which he has attacked and exposed the Hindu religion, and its concomitant superstitions. The era of his existence is variously stated; but it cannot be fixed anterior to the incursion of the Muhammedans into the Dekkan, as he alludes to their creed in his treatise.
 
-It is not Ari, it is not Aren, it is ?iot Aycn ; 
+As a specimen of the style and tenets of Sivavākiyar, we subjoin the five following stanzas, and their English translation by the late Mr. **Ellis.**
 
-Far beyond the black (the colour of Vishnu) the ichite (the colour 
-of Siven) or the red (the colour of Brahm-a) soars the everlasting 
-cause ; 
+[TAMIL].
 
-It is not great, it is not small, neither is it male nor female : 
+_Formerly how many flowers have I gathered and scattered._  
+_How many prayers have I repeated in a vain worship?_  
+_While yet in the prime of my life, how much water have I poured out?_  
+_And, moreover, how often have I encompassed the holy places of Siven,_  
+_This I have left off, for the wise who know the true God, the Lord of heavenly beings._  
+_Believe not the Idol of the temples apparent to the eyes to be God, nor lift up to it their hands._
 
-Beyond every state of corpo-real being it is farther, farther, and 
-farther still. 
+_While taking up the water and throwing it again into the water (in performing the sandhya and other rites) what is the object on which you think?_  
+_On whatsoever you think you have thrown all the water vainly:_  
+_Think on the root, think on the seed, and on the benefit arising from that seed;_  
+_When you are thus able to think, you may approach the feet of God._
 
-What, O wretch, is caste 1 is not water an accumuJafidn of fluid par- 
-ticles ? 
+_It is not Ari, it is not Aren, it is not Ayen;_  
+_Far beyond the black (the colour of Vishnu) the white (the colour of Siven) or the red (the colour of Brahma) soars the everlasting cause;_  
+_It is not great, it is not small, neither is it male nor female:_  
+_Beyond every state of corporeal being it is farther, farther, and farther still._
 
-Are not the five elements mid the five senses one 7 
+_What, O wretch, is caste? is not water an accumulation of fluid particles?_  
+_Are not the five elements and the five senses one?_  
+_Are not the several ornaments for the neck, the breast, and the feet equally gold?_  
+_What then is the peculiar quality supposed to result from difference in caste?_
 
-Are not the several ornaments for the neck, the breast, and the feet 
-equally gold ? 
+_As milk once drawn cannot again enter the udder, nor butter churned be recombined with milk;_  
+_As sound cannot be produced from a broken conch, nor the life be restored to its body;_  
+_As a decayed leaf and a fallen flower cannot he reunited to the parent tree;_  
+_So a man once dead is subject to no future birth._
 
-What then is the peculiar quality supposed to result from difference 
-in caste ? 
+## Sīnivāsakar. --- [TAMIL].
 
-As milk once drctivn cannot again enter the udder, nor butter churn- 
-ed be recombined with milk ; 
+Sīnivāsakar was a Brahman poet, who flourished in the Ramnad country. He is celebrated as the composer of a collection of _Nautch_ songs, much admired for their melody. Neither the time of his birth nor death is known; but he appears to have been alive in the beginning of the present century, enjoying the patronage of **Vellei MirdhPoligar** of Sherewele, who was hanged for rebellion against the English Government in CE 1801.
 
-As sound cannot be produced from a broken conch, nor the life be 
-restored to its body; 
+## Sīttaleichāttanār. --- [TAMIL].
 
-As a decayed leaf and a fallen flower cannot he reuriited to the 
-parent tree ; 
+This poet was one of the forty-nine professors of the Madura College. It is related that having been in the habit of striking his head with his stylus, whenever he found any fault in the works submitted by their authors to the judgment of the College bench, he brought on a headache which tormented him all his life: hence his fellow professor **Marutuven Tāmotharanār** while applauding the _Kural_, jocosely observed, that other people got rid off their headache by smelling the salt produced from the stalk of the _Sīndil_,* and the sliced dry ginger mixed with honey; but Sīttaleichāttanār got rid of his headache, by hearing the _Kural_ recited, because it contained no faults. The following is the impromptu which he uttered in praise of the _Kural_:---
 
-So' a mem once dead is subject to no future birth. 
+[TAMIL].
 
-Sinivasakar was a Brahman poet, who flourished in the Ramnarr 
-country. He is celebrated as the composer of a collection of Nautck 
-songs, much admired for their melody. Neither the time of his birtlv 
-nor death is known; but he appears to have been alive in the begin- 
-ning of the present century, enjoying the patronage of Vellei Mirdh- 
-PoLiGAR of Sherewele, who was hanged for rebellion against the" 
-English Government in A. D. 1801. 
+_The three parts (of the Kural) composed by Valluver, are each a garland on the crowns of the three kings (Chera, Chola and Pāndiya), who are respectively possessed of the three mountains (Kolli, Neri and Pothiya), the three countries (Chera, Chola and Pāndiya), the three rivers, (Porunai, Caveri and Vygai), the three cities (Karūr, Ureiyūr and Madura), the three kinds of drums (Mangala-murasu, Vettimurasu and Kodei-murasu) the three dialects of Tamil (colloquial, poetical and dramatic), the three banners (Vitkodi, Pulikodi and Minakodi), and the three horses (Kanavattam, Pādalam and Koram)._
 
-Si'TTALEICHA'TTANA'R ^^^'2sO<^.?-/7/-^(OT)/f. 
+## Subrahmanya Vediyer. --- [TAMIL].
 
-This poet was one of the forty-nine professors of the Madura Col-- 
-lege. It is related that having been in the habit of striking his head' 
+This poet was a member of a _Brahman_ family at _Alvar Tinnevelly_, in the Carnatic. The time of his birth, as well as that of his death is not known; but he was contemporary with **Samināda Tambiran**, who makes honorable mention of him in his Introduction to the _Illakkanakottu_. He wrote the _Prayoga-Vivegam_ ([TAMIL]), a treatise highly esteemed on account of its being a great help in the composition of poems.
 
+## Sundarer. --- [TAMIL].
 
-96 THE TAMIL PLUTARCH. 
-
-with his stylus, whenever he found any fault in the woi-ks submitted 
-by their authors to the judgment of the College bench, he brought on 
-ft headache which tormented him nil his life : hence his fellow pro- 
-fessor Marutuven Ta'motharana'r while applauding the Kiiral, 
-jocosely observed, that other people got rid off their headache by smell- 
-ing the salt produced from the stalk of the Sindil* and the sliced dry 
-ginger mixed with honey ; but Sitaleichattanar got rid of his head- 
-ache, by hearing the Kural recited, because it contained no faults. 
-The following is the impromptu which he uttered in praise of tliG 
-Kural : --- 
-
-The three parts (of the Kural) tomposed by VALHtvF.R, dre edch a 
-garland on the crowns of the three kings (Chera, Chola and Pandiya', 
-who are respectively possessed of the thi'ec mountains Kolli, Neri and 
-Pothiya),/Ae three countries (Chei'a, Chola and Pandiya), the three 
-rivers, (Porunai, Caveri and Vygai), the three cities (Karur, Ureiyur 
-and Madura), the three kinds of drxims (Mangala-murasu, Vettimura- 
-su and Kodei-murasu) the three dialects of Tamil (colloquial, poetical 
-and dramatid), the three hannei's (Vitkodi, Pulikodi and iMinakodi), and 
-the three horses (Kanavattam, Padalam and Koram). 
-
-SUBRAHMANYA Ve'DIYER 3fU iSlj-msssBiuQeu^lUI^. 
-
-This poet was a member of a Bi'ahman family at ^Zrttr Tiunevelhj-, 
-In the Carnatic. The time of his bifth, as well as that of his death 
-is not known ; but he was contemporary with Samina'da Tambiran, 
-who makes honorable mention of him in his Introduction to the lllak- 
-kanakottu. He wrote the Prayogd-Vivegam (.i3iQiins6S>(i)jSih)i a 
-treatise highly esteemed on account of its being a great help in tho 
-composition of poems* 
-
-SuNO AKElt --- -^ k^nn. 
 Sundarer was a contemporary of Apper and SajipAnter and like 
 Ihem a poet, as well as a zealous champion for the Saiva faith against 
 Ihe Jainas. His real name was Namhiya'rurer, which he afterwards 
@@ -1760,7 +1545,7 @@ daughter of a Bralunan at Puttur ; but just on the day fixed for its
 celebration he broke off tlie match, and assuming the ascetic life vis- 
 ited the different Siva fanes in Southern India, and hymned their praises 
 
-Mcniapermum cnrdifolium. 
+*) Menispermum cordifolium.
 
 m a series of 37,000 Pathigatns, cacli consisting of ten stanzas. It is 
 liowevcr certain that he did not preserve continence which is mani- 
@@ -1813,10 +1598,6 @@ ed into the mysteries of Saivaism proposed to go in search of a Guru
 or teacher ; but they agreed before starting, that he who succeeded 
 in his undertaking, should become the Guru of the one who failed. 
 Tatvarayer went towards the north, and Sva'rupa'nander towards the 
-13 
-
-
-98 THt XAMtl, PLUTAhCH. 
 
 south. Tatvarayer lulled m fi-mling a Guru; but Sva'rupa NANDEKwas 
 fortunate enough to find one in the person of Sivapraka'ser, a Saiva 
@@ -1848,9 +1629,9 @@ following is a list of the works which he composed, viz.
 
 12. Tiruvadi Mdtei, ^(§siJif.LC>n6i£):>. 
 
-13. Gndnarinodan Kulamhagam, 0/T6Cl6iP(J^^65r<S6\)tbu6Bii). 
+13. Gndnarinodan Kulamhagam, 0/T6Cl6iP(J^^65rS6\)tbu6Bii). 
 
-14. Uld^ s.6\)n. 
+14. Uld s.6\)n. 
 
 15. Siledei Uld, ^Qe06S)l-iL\60n. 
 
