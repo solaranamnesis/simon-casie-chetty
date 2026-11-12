@@ -1784,101 +1784,37 @@ This poet was the son of Villiputtūrer; but of his life no memorials have been 
 
 Varathakavirāyer was a poet, who lived at _Chunnāgam_, in Jaffna, in the seventeenth century of the Christian era. He belonged to a _Brāhman_ family and was well skilled both in the Vedic and profane literature. His principal works were the _Sivarātri Puranam_ ([TAMIL]) and the _Ekādesi Puranam_, ([TAMIL]), both which are epic poems, recounting the legends connected with the vigil observed by the _Saivas_ on the night preceeding the new moon towards the end of February or beginning of March, and the fast on the eleventh day after the full or new moon in every month.
 
-Varatunga Ra'ma Pa'nditen --- surr^/sissriTLcufTsmt^ajdr. 
+## Varatunga Rāma Pāndiyen. --- [TAMIL].
 
-Varatunga Rama Pandiyen was the younger brother of Athivira 
-Ra'ma Pa'ndiyrn, and was like him a poet of great attainments. His 
-imitation of the Bramothara Kmidam (iSaCSiiin^aaiTemt---tL) of the 
-Ska7ida Pwana is a work of sterling merit, in so far as its poetry is 
-concerned, and it appeai-s to have been approved of as such by the 
-learned professors of the Madura College to whose criticism it wa» 
-subjected. It consFists of 1323 stanzas, arranged in twenty-two can- 
-tos, and has for its subject the legends of certain votaries of Siva who 
-had obtained beatitude by bearing his emblems, or uttering his name 
-by accident. 
+Varatunga Rāma Pāndiyen was the younger brother of **Athivira Rāma Pāndiyen**, and was like him a poet of great attainments. His imitation of the _Bramothara Kandam_ ([TAMIL]) of the _Skanda Purana_ is a work of sterling merit, in so far as its poetry is concerned, and it appears to have been approved of as such by the learned professors of the Madura College to whose criticism it was subjected. It consists of 1323 stanzas, arranged in twenty-two cantos, and has for its subject the legends of certain votaries of _Siva_ who had obtained beatitude by bearing his emblems, or uttering his name by accident.
 
-Veluvithiya'b --- Oa 
+## Vellivithiyār. --- [TAMIL].
 
+Vellivithiyār was one of the forty-nine professors of the Madura College. He was present when the _Kural_ was exhibited and subjected to the criticism of the College bench, and the subjoined is the stanza which he uttered on the merits of that work.
 
-Vellivithiyar was one of the forty-nine professors of the Madura 
-College. He was present when the Kurctl was exhibited and sub- 
-jected to the criticisn> of the College bench, and the subjoined is the 
-stanza which he uttered on the merits of that work. 
+[TAMIL].
 
-QuiTiLnunQuinL^si^ii) Qunq^Q&rnissiQp --- Q^iuluit 
+_The uncreated word (meaning the Veda) and the unfailing word of Tiruvalluver both have the same meaning; but the former is the exclusive property of the Brahmans (for they alone are allowed to study it), while the latter is the common property of all._
 
-Tlie tmcreated word (meaning the Veda) and the unfailing word 
-ofTiRirvALLUvER hoth have the same meaning; hut the former is the 
-exclusive property of the Brahmans (for they alone are allowed to 
-study it), while the latter is the common property of all. 
+## Venbāpuli. --- [TAMIL].
 
-Venba'pxjli --- QsuemuiTuLfeSI. 
+Venbāpuli was born of the _Kollery_ tribe at Ramnad, in the beginning of the eighteenth century of the Christian era. His real name is not known, the one under which he is here noticed being merely titular, denoting his adroitness in the composition of verses of the _Venba_ metre. He appears to have been a very eccentric character; for we are told that shortly after he had finished his studies and obtained a reputation as a poet, he became an ascetic and lived upon alms until he was persuaded by the Raja of Sivaganga to take up his residence in his palace. Whether he composed any larger poems or not is unknown, and we have met with only a few of his stray pieces. It is related of him, that one day as he was carrying a bundle of betel leaves, Tamba Mudeli, the betel renter, met him on the road, and not knowing who he was, asked him where he had stolen the betel leaves; upon which he uttered the following verse extempore:---
 
-Venbapuli was born of the Kollery tribe at Karanad, in the begin^ 
-ning of the eighteenth century of the Christian era. His real name 
-is not known, the one under which he is here noticed being merely 
-titular, denoting his adroitness in the composition of verses of the 
-Venba metre. He appears to have been a very eccentric character j 
-for we are told that shortly after he had finished his studies and 
+[TAMIL].
 
-obtained a reputation as a poet, he became an ascetic and lived upon 
-alms until he was persuaded by the Raja of Sivaganga to take up 
-his residence in his palace. Whether he composed any larger poems 
-or not is unknown, and we have met with only a few of his stray 
-pieces. It is related of him, that one day as he was carrying a bun- 
-dle of betel leaves, Tamba Mudeli, the betel renter, met him on the 
-road, and not knowing who he was, asked him where he had stolen 
-the betel leaves ; upon which he uttered the following verse extem- 
-pore : --- 
+**Tamba Mudeli** immediately knowing to whom he was speaking apologized for his conduct and they both parted friends.
 
-QsueacrunuLfeSQiLKSsrQri'ioQsupr^QmtT 
-(^^^<5S)suSi&)Qsu^fS'^ioSiius QsnesarQ'Siji^nQeO^Tssruujw 
+## Vedaghiri Mudeliar. --- [TAMIL].
 
-Tamba Mudeli immediately knowing to whom he was speaking 
-apologized for his conduct and they both parted friends. 
+Vedaghiri Mudeliar was born of a _Tuluva Velāla_ family at _Kulattūr_, in the Carnatic, CE 1795. Having made some progress in the study of grammar and poetry in his own native place, he repaired to Madras, where he had the advantage of perfecting them under the able tuition of **Ramanuja Kavirāyer**, and where, he soon afterwards became the head of a Tamil Literary Institution which his master had originated. Sometime afterwards he was invited over to Madura, by the principal native gentlemen of that town, to whom his rising fame had reached, and there continued to preside over a Tamil Literary Institution for a period of seven years, when owing to a failure in his health he was obliged to relinguish his post and repair to Pondicherry, where for sometime he was employed as a Tamil Pundit in the Catholic College. He afterwards went a second time to Madras, and having established a Press of his own, commenced publishing through its medium several valuable classical works, such as the _Kural_, _Naidatham_, _Illakkanakottu_, etc. with a learned commentary of his own in prose on each; and while thus usefully engaged, his career was closed by death in the year 1852, at the age of fifty-seven.
 
-Ve'DAGHIRI MuDELIAR Qsu^QlfiQp^eSlujrTiT- 
+Vedaghiri Mudeliar was a frequent contributor to the Jaffna _Morning Star_, from 1841 to 1843, and his contributions, which were chiefly on Grammar, and Classics, tended very much to enhance the value of that periodical, and drew forth to him from the Editors their high tribute of thanks through the following stanza:---
 
-Vedaghiri Mudeliar was born of a Tuluva Velala family at Kulat- 
-tur, in the Carnatic, A. D. 1795. Having made some progress in 
-the study of grammar and poetry in his own native place, he repair- 
-ed to Madras, where he had the advantage of jMjrfecting them under 
-the able tuition of Ramanuja Kavira'yer, and where, he soon after- 
-wards became the head of a Tamil Literary Institution which his 
-master had originated. Sometime afterwards he was invited over to 
-Madura, by the principal native gentlemen of that town, to whom his 
-rising fame had reached, and there continued to preside over a Tamil 
-Literary Institution for a period of seven years, when owing to a 
-failure in his health he was obliged to relinguish his post and repair 
-to Pondicherry, where for sometime he was employed as a Tamil 
-Pundit in the Catholic College. He afterwards went a second time 
-to Madras, and having established a Press of his own, commenced 
-publishing through its medium several valuable classical works, such 
-as the Kural, Naidalham, Illakkanakoltu, etc. with a learned com- 
-mentary of his own in prose on each ; and while thus usefully engag- 
-ed, his career was closed by death in the year 1852, at the age of 
-fifty-seven. 
+[TAMIL].
 
-Vedaghiri Mudeliar was a frequent contributor to the Jaffna Mor7i- 
-ing Star, from 1841 to 1843, and his contributions, which were chiefly 
-on Grammar, and Classics, tended very much to enhance the value of 
-that periodical, and drew forth to him from the Editors their high trib- 
-ute of thanks through the following stanza : --- 
+See Morning Star, vol. 1. p. 280.
 
-See Morning Star, vol. 1. p. 280. 
-
-Ho dill not, however, compose any epic poems. All that he has 
-left as specimens of his poetical talents are four didactic poems, 
-respectively entitled Manuniti Sadagam (tD^i^^^sih) ; Manvik- 
-iyiina Sadagam (tOgysiSi.l'ujiTSOT.f^^LD), Niti Chintdmani (i^^^fs^rr 
-lOGsS) and Sanmdrgasdram (s=mmnffS3,3=naii), of which the first 
-three contain a hundred stanzas each, and the last a hundred and ten 
-stanzas. These poems were inscribed by him to a friend of his in 
-Ceylon, whoso name he has introduced at the end of every stanza. 
-The Addendum to the Tamil Dictionary published at the American 
-Mission Press at Manipy in 1842, was his production as well as the 
-stanzas marked with asterisks in the 1 1th part of Mandalapukudek 
-Nigandu published at the same Press in 1843. 
+He did not, however, compose any epic poems. All that he has left as specimens of his poetical talents are four didactic poems, respectively entitled _Manunīti Sadagam_ ([TAMIL]); _Manvikiyāna Sadagam_ ([TAMIL]), _Nīti Chintāmani_ ([TAMIL]) and _Sanmārgasāram_ ([TAMIL]), of which the first three contain a hundred stanzas each, and the last a hundred and ten stanzas. These poems were inscribed by him to a friend of his in Ceylon, whose name he has introduced at the end of every stanza. The Addendum to the Tamil Dictionary published at the American Mission Press at Manipy in 1842, was his production as well as the stanzas marked with asterisks in the 11th part of **Mandalapuruder** _Nigandu_ published at the same Press in 1843.
 
 Ve'laya De'siker --- Q6u'hs\)LuG^QsiT- 
 
