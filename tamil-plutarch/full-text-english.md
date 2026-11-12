@@ -1816,165 +1816,51 @@ See Morning Star, vol. 1. p. 280.
 
 He did not, however, compose any epic poems. All that he has left as specimens of his poetical talents are four didactic poems, respectively entitled _Manunīti Sadagam_ ([TAMIL]); _Manvikiyāna Sadagam_ ([TAMIL]), _Nīti Chintāmani_ ([TAMIL]) and _Sanmārgasāram_ ([TAMIL]), of which the first three contain a hundred stanzas each, and the last a hundred and ten stanzas. These poems were inscribed by him to a friend of his in Ceylon, whose name he has introduced at the end of every stanza. The Addendum to the Tamil Dictionary published at the American Mission Press at Manipy in 1842, was his production as well as the stanzas marked with asterisks in the 11th part of **Mandalapuruder** _Nigandu_ published at the same Press in 1843.
 
-Ve'laya De'siker --- Q6u'hs\)LuG^QsiT- 
+## Velaya Desiker. --- [TAMIL].
 
-Velaya Desiker was born at Kanjipuram. After the death of his 
-father Ivumaraswa'mi PANDA'wAW.he repaired with his brothers Siv- 
-apraka'sa and Karunaipraka'ser to Tinnevelly, where under the 
-tuition of Velliambala Tabibira'n the head ascetic of the Matam of 
-Sindiipoontuvei, he studied the Tamil CTrammar and Classics, and be- 
-came a renowned poet. He composed the following poems, viz : the 
-Nalliir Purdnam {[heoe^nuqatTimih), Virasingddana Pvranam (eSir 
-#i5;afT^67jrqa/T65WL0)^ IshtaUngakaittala Mdlei {^ex^u.eS'iBaiticia^.^ 
-edLDnciso) Namasivdya Lild {tr^iD^Qiam^eiso), Krishnacharitrupdri- 
-suda Lihi {Sit^ei^emBif^^^auniBs'n^c^eisc), and Mailatlirattei Md- 
-lei {ir>d9sO0^nLLm)L-ir)neieo), besides completing the KdlaiiJ^urdiuuii 
-{s fr en ^ ^Lj a neissiih) which his brothers had left unfinished. He died 
-at Perumatur in the seventy second year of his age. 
+Velaya Desiker was born at _Kanjipuram_. After the death of his father **Kumaraswāmi Pandāram**, he repaired with his brothers **Sivaprakāsa** and **Karunaiprakāser** to Tinnevelly, where under the tuition of **Velliambala Tambirān** the head ascetic of the _Matam_ of Sindupoonturei, he studied the Tamil Grammar and Classics, and became a renowned poet. He composed the following poems, viz: the _Nallūr Purānam_ ([TAMIL]), _Vīrasingādana Puranam_ ([TAMIL]), _Ishtalingakaittala Mālei_ ([TAMIL]), _Namasivāya Līlā_ ([TAMIL]), _Krishnacharitrapārisāda Līlei ([TAMIL]), and _Mailattirattei Mālei_ ([TAMIL]), besides completing the _Kālati Purānam_ ([TAMIL]) which his brothers had left unfinished. He died at Perumātur in the seventy second year of his age.
 
-The following is an elegiac verse which he recited extempore on 
-the death of his two brothers : --- 
+The following is an elegiac verse which he recited extempore on the death of his two brothers:---
 
-O Damsel, whose teeth t'le inth the Jessamine fiower in heauty ! Born 
-as I was second of three brothers, whose poetry, even the God enthron- 
-ed on the lotus-Jlower could not easily understand, alas ! I have now 
-iecome like a Joint in the stalk of a sugar-cane (cut out and thrown 
-aside as refuse). 
+[TAMIL].
 
-Villipa'kam Ta'ndavara'ya Mudeliar --- ^nssan---euffninQfi^eS 
-lunfr. 
-This poet was first a student and afterwards a Teacher in the Col- 
-lege of Fort St. George, and having been well versed both in the 
-Tamil and Maliaratta languages enjoyed much reputation on that ac- 
-count. In 1825, by order of the Board of College he wrote a Tamil 
-Grammar in a catechetical form under the title of Ulakkana Vina'- 
-videi (@6^ia6ror6i9@)6i96oL.) and in the following year translatecf the 
-Panchatantra stories (u^ff^m^/jasejn^) from Maharatta into Tamil, 
-besides himself producing a series of instructive fables called Kata'- 
-vianjari (a^nms^g^if). He also revised and edited the three first 
-parts of Beschis Sadur Agara'di, the ten first parts of the Sudamani 
-Nigandu, and the first eight parts of the Biva'karam, which had hith- 
-erto been circulated in manuscript replete with errors of the copyists, 
+_O Damsel, whose teeth vie with the Jessamine flower in beauty! Born as I was second of three brothers, whose poetry, even the God enthroned on the lotus-flower could not easily understand, alas! I have now become like a joint in the stalk of a sugar-cane (cut out and thrown aside as refuse)._
 
-ViDVA'N Sa'mina'da Pillel --- sS^^QjtrissT ffni£lisn^i3en'bcn. 
+## Villipākam Tāndavarāya Mudeliar. --- [TAMIL].
+ 
+This poet was first a student and afterwards a Teacher in the College of Fort St. **George**, and having been well versed both in the Tamil and Maharatta languages enjoyed much reputation on that account. In 1825, by order of the Board of College he wrote a Tamil Grammar in a catechetical form under the title of _Illakkana Vināvidei_ ([TAMIL]) and in the following year translated the _Panchatantra_ stories ([TAMIL]) from Maharatta into Tamil, besides himself producing a series of instructive fables called _Katāmanjari_ ([TAMIL]). He also revised and edited the three first parts of **Beschis** _Sadur Agarādi_, the ten first parts of the _Sūdamani Nigandu_, and the first eight parts of the _Divākaram_, which had hitherto been circulated in manuscript replete with errors of the copyists.
 
-Vidvan Saminada Tillei, who distinguished himself by his literary 
-. attainments, and enjoyed a prominent position among the poets of 
-his day, was born of a Velula family at Pondicherry in the latter 
-j)art of the last century . His parents not only secured for him u 
-classical education, but likewise brought him up in the Catholic reli- 
-gion which they professed. Having removed his residence to xMad- 
-ras, he was introduced to the notice of Mr. Ellis, and was employ- 
-ed by that celebrated orientalist as his preceptor in the Tamil lan- 
-guage. His juvenile productions the Nazarai Kalambagam {ih^esia 
-^aeOihusth),n.nd Samindden PiUeiiamil {antS!hn3i6cn3sn&£n^^i£!ifi), 
-though possessed of poetic beauties did not however attract much 
-notice, being merely panegyrics. But the epic which he wrote in 
-liis maturcr years, under the title of Gndnddiku Rayer Kappiyam 
-(g5fT@^affia/Tiu/T5fTuL9iuLD), commanded general admiration, and 
-spread his fume throughout Southern India, in the Gndnddiku Rdyer 
-Kdppiyam, he has introduced many historical passages from the 
-Bible, by way of episodes in the life of the hero of the poem, 
-in a style and language highly creditable to him. As usual 
-with the writers of epics in Tamil, he opens his poem after the invo- 
-cation with an eulogy on rain, and the following two stanzas as quot- 
-ed by Mr. Ei.lis, in his comments on the Kural. form the first part 
-of it : 
+## Vidvān Sāmināda Pillei. --- [TAMIL].
 
-The earth, impatient of the scorching heat oj the sun of heaven, to 
-annoy him assumed the form of a slujjendous vioxmtain ; the bright 
-burning sun, calling Jorth the armies of the clouds, ordered them to 
-reduce the rebellious earth ; tlien the thunder bolts darted forth like 
-arrows and ike water Jlowing down seemed to dissolve the entire 
-mountain. 
+Vidvān Sāmināda Pillei, who distinguished himself by his literary attainments, and enjoyed a prominent position among the poets of his day, was born of a _Velāla_ family at Pondicherry in the latter part of the last century. His parents not only secured for him a classical education, but likewise brought him up in the Catholic religion which they professed. Having removed his residence to Madras, he was introduced to the notice of Mr. **Ellis**, and was employed by that celebrated orientalist as his preceptor in the Tamil language. His juvenile productions the _Nazarai Kalambagam_ ([TAMIL]), and _Samināden Pilleitamil_ ([TAMIL]), though possessed of poetic beauties did not however attract much notice, being merely panegyrics. But the epic which he wrote in his maturer years, under the title of _Gnānādiku Rāyer Kāppiyam_ ([TAMIL]), commanded general admiration, and spread his fame throughout Southern India. In the _Gnānādiku Rāyer Kāppiyam_, he has introduced many historical passages from the Bible, by way of episodes in the life of the hero of the poem, in a style and language highly creditable to him. As usual with the writers of epics in Tamil, he opens his poem after the invocation with an eulogy on rain, and the following two stanzas as quoted by Mr. **Ellis**, in his comments on the _Kural_, form the first part of it:
 
-When the sun, the father of various Jiving beings, destroys in his 
-bunmig wrath his offspring, their mother earth, imoardly jntying 
-them, hides her children from his vieio by a propitious vail of clouds 
-and seems to cherish them with milk springing from her breasts, the 
-rocky mountains. 
+[TAMIL].
 
-Villiputtu'rer --- eSleoeSi^^s^nn. 
+_The earth, impatient of the scorching heat of the sun of heaven, to annoy him assumed the form of a stupendous mountain; the bright burning sun, calling forth the armies of the clouds, ordered them to reduce the rebellious earth; then the thunder bolts darted forth like arrows and like water flowing down seemed to dissolve the entire mountain._
 
-Villiputturer was born of a Brdhman family of the Vaislmav a sect 
-at Saniyur, in the Coinibatorc country, in the fifth century of the 
-Christian era. lie was no less distinguished as one of the A'zhva'rs 
-or special votaries of Vishnu than as a poet. Having refused to give 
-his brother his share of inheritance from the paternal estate, the 
-brother applied to the king for just ice against him ; but the king with- 
-out pronouncing any judgment on the matter directly sent for him, 
-and requested him to imitate in Tamil, the Mahabharat. On the 
-day the work was finished and recited in the royal presence his 
-brother by desire of the king repeated hiscomplaint. The king there- 
-upon feigning to be angry Looked fiercely at the poet, and asked him 
-" Oh ! is this the perception of the great man who wrote the Mahabha- 
-rat V The king's question struck his mind with shame, for the sub- 
-ject of the Mahabharat is the feud which originated in the elder 
-brother refusing to give the younger his paternal iihare of inheritance 
-and he thereupon delivered up the wliole of the jiatrimony to his 
-brother and retiring to Sirangam spent the remainder of his life in 
-devotional exercise. His imitation of the Mahabharat includes only 
-the first ten Parvas, or books of that work, and consists of 3373 stan- 
-zas. It is decidedly a masterpiece, for scarcely any Tamil epics, 
-except perhaps Kamber's Ramayanam, can vie with it either in "vivi- 
-da vis auLini" or churniij of language and vcrcificatioii. 
+_When the sun, the father of various living beings, destroys in his burning wrath his offspring, their mother earth, inwardly pitying them, hides her children from his view by a propitious vail of clouds and seems to cherish them with milk springing from her breasts, the rocky mountains._
 
-This poet who lived in the latter part of the eighteenth century of 
-the Christian era, was the son of a tailor at Tutocoryn. Imbibing 
-a dislike to his father's profession, he applied himself to the study o£ 
-poetry, and obtained some reputation in the literary circle of his day. 
-lie was first patronized by Katabomma Nayaker, tlie Poligarof Pan- 
-jalamkurichi, and afterwards by Don Gabriel Vaz Faldano, the Para- 
-va Chieftain of Tutocoryn. He was a great wit, in proof of which 
-many anecdotes are related of him. It is said that on a certain day as he 
-went to witness a Nautch, a poet of the shepherd tribe, pointing at 
-the dancing girl, observed to him, "Taiyel nulla taiijeV (a phrase 
-which may mean either, "the girl is a fine girl," or "the sewing is 
-good sewing)," and he immediately understanding that to be a hint 
-at his caste, made this repartee '•' AtlukJcu tirrama taiyel" (a phrase 
-which may mean either "Is the girl belter than the dance r" or "is 
-the sewing better than the sheep ?'') and completely outwitted him.. 
-Of his compositions there are only a few stray pieces, chiefly devot- 
-ed to the praises of his benefactors. 
+## Villiputtūrer. --- [TAMIL].
 
-Vi'rakavira'ver --- s^jrseSjjnujrf. 
+Villiputtūrer was born of a _Brāhman_ family of the _Vaishnava_ sect at _Saniyūr_, in the Coimbatore country, in the fifth century of the Christian era. He was no less distinguished as one of the _Āzhvārs_ or special votaries of _Vishnu_ than as a poet. Having refused to give his brother his share of inheritance from the paternal estate, the brother applied to the king for justice against him; but the king without pronouncing any judgment on the matter directly sent for him, and requested him to imitate in Tamil, the Mahabhārat. On the day the work was finished and recited in the royal presence his brother by desire of the king repeated his complaint. The king thereupon feigning to be angry looked fiercely at the poet, and asked him "Oh! is this the perception of the great man who wrote the _Mahabhārat_?" The king's question struck his mind with shame, for the subject of the _Mahabhārat_ is the feud which originated in the elder brother refusing to give the younger his paternal share of inheritance and he thereupon delivered up the whole of the patrimony to his brother and retiring to Sirangam spent the remainder of his life in devotional exercise. His imitation of the _Mahabhārat_ includes only the first ten _Parvas_, or books of that work, and consists of 3373 stanzas. It is decidedly a masterpiece, for scarcely any Tamil epics, except perhaps **Kamber's** _Ramayanam_, can vie with it either in "vivida vis animi" or charms of language and versification.
 
-Virakavirayer was a distinguished poet who lived at Nellu'r, in the 
-Carnatic. In A.. D. 1524 he wrote an epic poem, called Arichandra 
-PurAnam {,g)jifff3'rh^aq'jne66iih), which drew forth much applause 
-from the savans at Madura, when it was submitted to their inspection. 
-This poem consists of 1212 stanzas, arranged into twelve cantos, and 
-recounts the adventures of the king Harischandra. Though it can- 
-not stand on a par with the Naidatham in the charms of language and 
-versification ; yet it is far superior' to the ordinary strain of current 
-poetry and bears the stamp of no common talent. The following 
--stanzas, which we have extracted from the canto, entitled Maycina 
-Kdndam, containing the lamentations of the Queen ChandramaLi on 
-finding her son lying dead in a wood by the bite of a sevj)ent, arc 
-very pathetic and affecting : --- 
+## Vīrapāndiya Pulaver. --- [TAMIL].
 
-I do not know what heinous &in I have commit fed that thou shouhlst 
-meet with thy death from the cruel serpent with protuberant eyes and 
-which suffers neither from l)eing drenched xc'ith deu\ nor searched with 
-the sun, nor from ivant of food. Oh ! my son, who, xohen affected hy the 
-venom didst lay thyself i:i! ainne and ivrithe in agony on the grotind ! 
-To ichom shall my lord and myself look for help hereafter ? 
+This poet who lived in the latter part of the eighteenth century of the Christian era, was the son of a tailor at Tutocoryn. Imbibing a dislike to his father's profession, he applied himself to the study of poetry, and obtained some reputation in the literary circle of his day. He was first patronized by **Katabomma Nayaker**, the Poligar of Pānjalamkurichi, and afterwards by **Don Gabriel Vaz Faldano**, the Parava Chieftain of Tutocoryn. He was a great wit, in proof of which many anecdotes are related of him. It is said that on a certain day as he went to witness a Nautch, a poet of the shepherd tribe, pointing at the dancing girl, observed to him, "_Taiyel nalla taiyel_" (a phrase which may mean either, "the girl is a fine girl," or "the sewing is good sewing)," and he immediately understanding that to be a hint at his caste, made this repartee "_Attukku tirrama taiyel_" (a phrase which may mean either "Is the girl better than the dance?" or "is the sewing better than the sheep?") and completely outwitted him. Of his compositions there are only a few stray pieces, chiefly devoted to the praises of his benefactors.
 
-Wert thoufa'ed to die in a leood, where instead of the sound of 
-musiecd instruments, only the sound of the fappings of the icings of 
-eagles is heard J O h my son ! why was this fate ordained for thee, 
-the son of the king, icho weilds the bright javelin, and who made over 
-his fertile kingdom to the suppliant Brahman. 
+## Vīrakavirāyer. --- [TAMIL].
 
-Whilst icith tears streaming froJii mine eyes, like rain from the 
-clouds, 1 stand by thy side as a green twig burning in the fierce five, 
-and lament thy fate. Oh my son ! is it proper that thou shouldsl not 
-respond to viy call } 
+Vīrakavirāyer was a distinguished poet who lived at **Nellūr**, in the Carnatic. In CE 1524 he wrote an epic poem, called _Arichandra Purānam_ ([TAMIL]), which drew forth much applause from the savans at Madura, when it was submitted to their inspection. This poem consists of 1212 stanzas, arranged into twelve cantos, and recounts the adventures of the king _Harischandra_. Though it cannot stand on a par with the _Naidatham_ in the charms of language and versification; yet it is far superior to the ordinary strain of current poetry and bears the stamp of no common talent. The following stanzas, which we have extracted from the canto, entitled _Mayāna Kāndam_, containing the lamentations of the Queen _Chandramati_ on finding her son lying dead in a wood by the bite of a serpent, are very pathetic and affecting:---
 
-Oh ! my son, jchoseface resembles the lotus-fioiver ! When thy fath- 
-er, icho sways the scejytre unth justice and equals the fierce elephant in 
-strength, shall return to redeem iis and ask me "where is my darling 
-S0«?" ichat shall I say to hivil 
+[TAMIL].
+
+_I do not know what heinous sin I have committed that thou shouldst meet with thy death from the cruel serpent with protuberant eyes and which suffers neither from being drenched with dew, nor scorched with the sun, nor from want of food. Oh! my son, who, when affected by the venom didst lay thyself all alone and writhe in agony on the ground! To whom shall my lord and myself look for help hereafter?_
+
+_Wert thou fated to die in a wood, where instead of the sound of musical instruments, only the sound of the flappings of the wings of eagles is heard? Oh my son! why was this fate ordained for thee, the son of the king, who weilds the bright javelin, and who made over his fertile kingdom to the suppliant Brahman._
+
+_Whilst with tears streaming from mine eyes, like rain from the clouds, I stand by thy side as a green twig burning in the fierce fire, and lament thy fate, Oh my son! is it proper that thou shouldst not respond to my call?_
+
+_Oh! my son, whose face resembles the lotus-flower! When thy father, who sways the sceptre with justice and equals the fierce elephant in strength, shall return to redeem us and ask me "where is my darling son?" what shall I say to him?_
 
 ViSVANa'tHA Sa'STRIYA'R---- a? ^6ru^//?UJ /7/f- 
 
@@ -1996,9 +1882,6 @@ the obscuration and the ultimate duration of the eclipse of the moon
 * Clirislianity in Ceylon, p. li{!>. 
 
 ' I'riluiam's Ceylon and ilB Dcj'tndoiicit;-, \v\ ii [i, Cilb 
-
-
-113 THE TAMIL PLUTARCH. 
 
 on the 2Isii of March 1828, he did not come off triumphant ; for that 
 eclipse began fifteen minutes sooner and continued for twenty-four 
@@ -2046,9 +1929,6 @@ Ra'ma from Sita), nor the seven Mara trees* (meaning those
 which Ra'ma shot through with a single arrow) to shoot at. 
 
 ' Uivfpijioi Lbtnastci 
-
-
-THE TAMIL PI.UTARril, 119 
 
 The king iinmodintoly laid aside the garb of the arclier, and suc- 
 ressively [Hitting on the rolics of llic Queen, and his own, desired 
