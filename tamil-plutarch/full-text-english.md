@@ -1862,100 +1862,28 @@ _Whilst with tears streaming from mine eyes, like rain from the clouds, I stand 
 
 _Oh! my son, whose face resembles the lotus-flower! When thy father, who sways the sceptre with justice and equals the fierce elephant in strength, shall return to redeem us and ask me "where is my darling son?" what shall I say to him?_
 
-ViSVANa'tHA Sa'STRIYA'R---- a? ^6ru^//?UJ /7/f- 
+## Visvanātha Sāstriyār. --- [TAMIL].
 
-Visvanatha Sastriyar was both a poet and astronomer who flourish- 
-ed among the Brahmans at Araly, a village of Batticotta, in Jaffna. 
-Sir Emerson Tennent, in his "Christianity in Ceylon," states, that 
-Visvanatha Sastriyar, or as he calls him Visuvenathen, was "the most 
-celebrated of the astronomers of Ceylon, inasmuch as he concentrated 
-in his own person the accumulated science of his ancestors, who for 
-nine generations had been cultivators of the same study."* His Al- 
-manac, which he published every year until his death, was preferred 
-to all others as being more accurate ; and Sir Alexander Johnston 
-w^hile Chief Justice of Ceylon, procured for him from George the 
-IVth, the honorary distinction of Almanac Maker to his l\kijcsty''t. 
-But it should be mentioned, that in his controversy with the Americ- 
-an Missionaries at Batticotta, resjiecting the bcgiiming and extent of 
-the obscuration and the ultimate duration of the eclipse of the moon 
+Visvanātha Sāstriyār was both a poet and astronomer who flourished among the _Brahmans_ at Arāly, a village of _Batticotta_, in Jaffna. Sir **Emerson Tennent**, in his "Christianity in Ceylon," states, that Visvanātha Sāstriyār, or as he calls him _Visuvenathen_, was "the most celebrated of the astronomers of Ceylon, inasmuch as he concentrated in his own person the accumulated science of his ancestors, who for nine generations had been cultivators of the same study."* His Almanac, which he published every year until his death, was preferred to all others as being more accurate; and Sir **Alexander Johnston** while Chief Justice of Ceylon, procured for him from **George** the 4th, the honorary distinction of Almanac Maker to his Majesty."* But it should be mentioned, that in his controversy with the American Missionaries at Batticotta, respecting the beginning and extent of the obscuration and the ultimate duration of the eclipse of the moon on the 21st of March 1828, he did not come off triumphant; for that eclipse began fifteen minutes sooner and continued for twenty-four minutes longer than his calculation and it obscured only three-eighths and not five-eighths of the disc as he had predicted. As a poet he has distinguished himself by the production of two poems, the _Māreikuravanji_ ([TAMIL]), a drama founded on the legend of the horse-faced _Chola_ princess who is fabled to have been cured of her deformity by bathing in the sea, near Kirimalei, and the _Kurunāther Killeividudūtu_ ([TAMIL]), a panegyric on _Skanda_.
 
-* Clirislianity in Ceylon, p. li{!>. 
+*) Christianity in Ceylon, p. 139.
 
-' I'riluiam's Ceylon and ilB Dcj'tndoiicit;-, \v\ ii [i, Cilb 
+*) Pridham's Ceylon and its Dependencies, vol. 2. p. 516.
 
-on the 2Isii of March 1828, he did not come off triumphant ; for that 
-eclipse began fifteen minutes sooner and continued for twenty-four 
-minutes longer than his calculation and it obscured only three-eighths 
-and not five-eighths of the disc as he had predicted. As a poet he 
-lias distinguished himself by the j)roduction of two poems, the Mdrei- 
-kuruvanji (LDneooji^ipsue^^), a drama founded on the legend of the 
-horse-faced Chola princess who is fabled to have been cured of her 
-deformity by i)athing in the soa, near Kirimalei, and the Kitrinuither 
-Killcicidudutu {^.^ihnsjfr S^siensS^j;^^'), a panegyric on Skatida. 
+## Vytianātha Nāvaler. --- [TAMIL].
 
-Vytiana'tha Na'valer --- <5S)ay^^lajisn^isna&)iT. 
+This poet was a native of _Tiruvārūr_, a town in the Tanjore country, near Kumbakonam, and lived at the same time with **Sāmināda Tambiran**, whose friendship he enjoyed. He is celebrated for his high attainments in philology, and we have a work of his on Grammar, entitled _Ilakkana Vilakkam_ ([TAMIL]), written chiefly as a critique on the _Nannūl_.
 
-This poet was a native of Tiruv"rur^ a town in the Tanjore coun- 
-try, near Kumbakonam, and lived at the same time with Sa'mina'da 
-Tambirax, whose friendship he enjoyed. He is celebrated for his 
-high attainments in philology, and we have a work of his on Gram- 
-mar, entitled i/flMuHrt Vilakkam (©soaaOTsisiSorraaii)), written chiefly 
-as a critique on the Nannul. 
+## Yālpāna Nāyanār. --- [TAMIL].
 
-Ya'lpa'na Na'yana'k --- uun^uunsssriBaiJu^n. 
+Yālpāna Nāyanār, otherwise called _Virarāgaven_, was a minstrel who lived in the _Chola_ country. Being blind, he depended for his subsistence entirely on the earnings of his wife. One day his wife having delayed to serve out to him his meals at the proper hour, he quarrelled with her on that account, and quitted his house saying, that he was going to Ceylon, upon which she sneeringly observed. "Ah! you are going to Ceylon to obtain a tusked elephant and a fertile land." When he arrived in Ceylon, he was refused admittance into the king's presence, as it was considered ominous for a king to see a blind man; but it was afterwards arranged that the king should stand behind a curtain, and hear the blind minstrel's song. The king divesting himself of his royal garments, put on a pair of short drawers like those worn by an archer, and stood behind the curtain with a bow in his hand, and bade him sing. He, some how or other, being informed of the king's disguise improvised the following stanza characterizing the king as **Rāmā** of old:---
 
-Yalpana Nayanar, otherwise called Viraragaven^ was a minstrel 
-who lived in the Chola country. Being blind, he depended for his 
-subsistence entirely on the earnings of his wife. One day his wife 
-having delayed to serve out to him his meals at the proper hour, he 
-quarrelled with her on that account, and quitted his house saying, 
-that he was going to Ceylon, upon which she sneeringly observed. "Ah! 
-you are going to Ceylon to obtain a tusked elephant and a fertile 
-land." VV'hen he arrived in Ceylon, he was refused admittance into 
-the king's presence, as it was considered ominous for a king to see a 
-blind man ; but it was afterwards arranged that the king should stand 
-behind a curtain, and hear the blind minstrel's song. The king di- 
-vesting himself of his royal garments, put on a pair of short drawers 
-like those worn by an archer, and stood behind the curtain with a 
-bow in his hand, and bade him sing. Ho, some how or other, being 
-informed of the king's disguise improvised the following stanza char- 
-acterizing the king as Ra'ma' of old; --- 
+[TAMIL].
 
-O Aditya! f meaning Ra'ma) whose jwtcul ai-ms stemmed the 
-waves of the sea, p>'ui/ lehi/ have I hi/ hands assurned I he bow ^ Jor the 
-prosperous Luiika has neither her king (meaning Ka'vana), nor the 
-xlag (meaning IMa'kiciii,) who in the disguise of a stag decoyed away 
-Ra'ma from Sita), nor the seven Mara trees* (meaning those 
-which Ra'ma shot through with a single arrow) to shoot at. 
+_O Aditya! (meaning Rāma) whose potent arms stemmed the waves of the sea, pray why have thy hands assumed the bow? for the prosperous Lanka has neither her king (meaning Rāvana), nor the stag (meaning Mārichi,) who in the disguise of a stag decoyed away Rāma from Sita), nor the seven Mara trees* (meaning those which Rāma shot through with a single arrow) to shoot at._
 
-' Uivfpijioi Lbtnastci 
+*) Diospyros Ebenaster.
 
-The king iinmodintoly laid aside the garb of the arclier, and suc- 
-ressively [Hitting on the rolics of llic Queen, and his own, desired 
-liini to sing. He thereupon conii)osed extempore a lyric in ten stan- 
-zas to suit the respective guises of tlie king, and sang it to the lute 
-which he himself played. The king being greatly pleased with his 
-performance, honored him by the gift of a tusk(>d elephant, and by 
-the donation of a land on the northern extremity of the Island in per- 
-petuity ; and thus was realized what his wife had said in bitter irony. 
+The king immediately laid aside the garb of the archer, and successively putting on the robes of the Queen, and his own, desired him to sing. He thereupon composed extempore a lyric in ten stanzas to suit the respective guises of the king, and sang it to the lute which he himself played. The king being greatly pleased with his performance, honored him by the gift of a tusked elephant, and by the donation of a land on the northern extremity of the Island in perpetuity; and thus was realized what his wife had said in bitter irony.
 
-The land which he obtained from the king was no other than the 
-present peninsula of .lalVna. It was then uninhabit(!d, and covered 
-with jungle, but he had it cleared, and having induced a colony of 
-Tamils from Southern India to settle in it, soon rendered it a rich coun- 
-try which he called after his own professional name Ydlpdna nadu 
-i. e. the minstrel's country. He did not, however, assume any sov- 
-ereignty over the countiy but Inviting over from the Continent a 
-youth, who was the natural son of a Chola king by a Brahman wo- 
-man, installed him as its king, under the title of Singariya Chakra- 
-vnrti. The installation of Sivgdruja Chakravarti is stated in the 
-Kuilasa Malci to have occurred in the Kali year 3000 (A. D. 101); 
-and if this date be correct, the Singhalese monarch, who patronized 
-the blind minstrel, must have been Wasahha, who reigned at Anur- 
-adhapura from A. D. 62 to 106. In the lyric, which has been notic- 
-ed above, the minstrel does not celebrate his patron under his pro- 
-per name, he styles him merely Pararujasingan, an appellation sig- 
-nifying one who is as a lion to other kings. 
-
-
-E U R A T A 
+The land which he obtained from the king was no other than the present peninsula of Jaffna. It was then uninhabited, and covered with jungle, but he had it cleared, and having induced a colony of Tamils from Southern India to settle in it, soon rendered it a rich country which he called after his own professional name _Yālpāna nadu_ i. e. the minstrel's country. He did not, however, assume any sovereignty over the country but inviting over from the Continent a youth, who was the natural son of a _Chola_ king by a _Brahman_ woman, installed him as its king, under the title of _Singāriya Chakravarti_. The installation of _Singāriya Chakravarti_ is stated in the _Kailasa Mālei_ to have occurred in the _Kali_ year 3000 (CE 101); and if this date be correct, the _Singhalese_ monarch, who patronized the blind minstrel, must have been _Wasabha_, who reigned at Anuradhapura from CE 62 to 106. In the lyric, which has been noticed above, the minstrel does not celebrate his patron under his proper name, he styles him merely _Pararājasingan_, an appellation signifying one who is as a lion to other kings.
