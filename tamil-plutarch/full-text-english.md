@@ -409,20 +409,7 @@ _Pleasure and pain are two different things (one constituting the whole of posit
 
 ## Inbakavi. --- [TAMIL].
 
-Inbakavi was a native of _Manapar_, in the Tinnevelly District, and 
-born of parents of the _Parava_ caste. His Christian name was **Xavi- 
-er Henric Leām**. The juvenile productions of his muse, although not 
-of the highest order, were nevertheless sufficient to secure him the pa- 
-tronage of **Don Gabriel Vaz Gomez**, the _Parava_ Chieftain of Tuti- 
-korin. Going once on a visit to the Raja of Ettiapore, the ambition 
-of the poet was checked when he found that he had to stand, whilst 
-the _Samprati_ or minister enjoyed a seat in the Raja's presence; but 
-an impromptu stanza in which he praised the Raja, and respectfully 
-claimed a seat, soon procured him the desired privilege, and also 
-many presents. We subjoin the above mentioned stanza, and at- 
-tempt to give an English translation of it, which we are sorry to say 
-being stript of the melody and linked-sweetness of the original, ap- 
-pears but too trite in a foreign language.
+Inbakavi was a native of _Manapar_, in the Tinnevelly District, and born of parents of the _Parava_ caste. His Christian name was **Xavier Henric Leām**. The juvenile productions of his muse, although not of the highest order, were nevertheless sufficient to secure him the patronage of **Don Gabriel Vaz Gomez**, the _Parava_ Chieftain of Tutikorin. Going once on a visit to the Raja of Ettiapore, the ambition of the poet was checked when he found that he had to stand, whilst the _Samprati_ or minister enjoyed a seat in the Raja's presence; but an impromptu stanza in which he praised the Raja, and respectfully claimed a seat, soon procured him the desired privilege, and also many presents. We subjoin the above mentioned stanza, and attempt to give an English translation of it, which we are sorry to say being stript of the melody and linked-sweetness of the original, appears but too trite in a foreign language.
 
 [TAMIL].
 
@@ -1391,11 +1378,7 @@ _Lo, there is a Kondei tree* at the golden gate of Villavarāya, of Nellore, who
 
 *) _Cassia Fistula_.
 
-He was the author of a poem, entitled _Kalvazheiyantādi_ ([TAMIL]), consisting of a series of 100 stanzas remarkably beau- 
-tiful both in their construction, and style. He appears to have been 
-patronized by **Ganesiyer**, an opulent _Brahman_ who lived at Jaffna 
-in his time, and we have the following stanza in which he has com- 
-memorated his patron:---
+He was the author of a poem, entitled _Kalvazheiyantādi_ ([TAMIL]), consisting of a series of 100 stanzas remarkably beautiful both in their construction, and style. He appears to have been patronized by **Ganesiyer**, an opulent _Brahman_ who lived at Jaffna in his time, and we have the following stanza in which he has commemorated his patron:---
 
 [TAMIL].
 
@@ -1604,7 +1587,7 @@ Tatvarāyer was an eminent poet and metaphysician, born of a _Brāhman_ family o
 
 Tāndavamūrti was a _Saiva_ ascetic who obtained considerable reputation by his skill in the Sanskrit and Tamil languages, and their respective literature. In the latter part of his life he devoted his attention entirely to metaphysical researches and wrote a work on the subject, entitlod _Kaivalya-navanītam_ ([TAMIL]), consisting of 293 stanzas.
 
-## Tāyumānaver. --- [TAMIL].
+## Tāyumānaver. --- தாயுமானவர்.
 
 Tāyumānaver was born at _Trichinapoly_, in the Carnatic about 150 years ago. His father **Kediliyappa Pillei** belonged to the _Velāla_ caste, and was _Samprati_ or accountant to the king **Vijaya Reghunatha Chokalinga Nayāker**. Having through the endeavours of his father skilled himself in the Sanskrit and Tamil languages, he devoted his attention to the Hindu Philosophy, and under the guidance of a famous _Guru_ of the name of **Maunadesiker**, soon obtained a knowlodge of its esoteric doctrines. From his earliest years he had a predilection for a religious life; but on the death of his father he was prevailed upon by the king's importunity to accept the Sampratiship, and employ himself at the Court. He however did not continue long in his office; for when on the death of the king, the queen conceiving a criminal passion for him endeavoured to entice him, he fled from her territory, and took up his residence in the Ramnad country. Some time afterwards he entered into marriage with a female of his own class, but she dying after giving birth to her first child, he assumed the habit of a half-naked Sanniyāsi, and led a strolling life until his death; visiting successively the _Saiva_ shrines throughout Southern India, and hymning their praises.
 
@@ -1725,204 +1708,81 @@ In the _Padhārtaguna Chintamani_ ([TAMIL]), a work on Materia Medica, consistin
 
 *) A medicine prepared from the juice of certain herbs and injected into the nostrils to promote the discharge of mucus.
 
-ToDiTTALEi Vizhuttandina'r --- Q^nisf.^fi'bsoeB Q^^^eisris^^n' 
+## Todittalei Vizhuttandinār. --- [TAMIL].
 
-Todittalei Vizhuttandinar was one of the forty-nine professors of 
-the Madura College. What has contributed to preserve his name 
-from oblivion is his encomiastic stanza on the Kural, which we sub- 
-join. 
+Todittalei Vizhuttandinār was one of the forty-nine professors of the Madura College. What has contributed to preserve his name from oblivion is his encomiastic stanza on the _Kural_, which we subjoin.
 
-The greed poet has in his Kural divided tlte topic Virtue^ into four 
-sections ; the topic wealth into seven sections ; and the topic pleasure 
-into three sections ; including in them the fourth topic, eternal happi' 
-ness, xohich is difficult to he obtained: hence the work comprises every 
-thing, and if there be any thing which it does not comprise, he alone 
-knows it, 
+[TAMIL].
 
-TOLKA'PPIYANA'R Q^IT&)airu iSluJi^iT^ 
+_The great poet has in his Kural divided the topic Virtue into four sections; the topic wealth into seven sections; and the topic pleasure into three sections; including in them the fourth topic, eternal happiness, which is difficult to be obtained: hence the work comprises every thing, and if there be any thing which it does not comprise, he alone knows it._
 
-Tolkappiyanar, otherwise called Trvnadhwm&gni (^aemsK^f^^^ 
-«jfl), was one of the twelve disciples of Agastiyer, and pre-eminent 
-to them all in learning. He belonged to a Brahman family of the 
-tribe of Jamadagni, and Tolkdppiyakkttdi, a. town s'liusited to the south 
-of Madura, is reported to have been the place of his residence. It is 
-reported of him that having quarrelled with Agastiyer, he set up a 
-rival school, and composed for the use of his scholars a grammar of 
-his own, under the title of Tolkdppiyam, which though based on the 
-grammatical institutes of Agastiyer, yet on the whole deviated from 
-them. Athankota'siriyer, who was also a disciple of Agastiyer, 
-taking the part of his master endeavoured to bring the Tolkappiyani 
-into disrepute by severely criticising it, when it was submitted to the 
-judgment of the assembly of the learned in the court of the Pandiya 
-king ; but the author defended his work so successfully that it met 
-with due approbation. This work, which is the oldest of the kind in 
-existence, consists of 1276 Sutras or rules in verse, and it has had 
-three commentaries written upon it, one by Nachchinarkiniyana'r, 
-another by Ilampu'raner, and the other by Se'navareiyer and which 
-are respectively called after the names of the commentators Nachchi- 
-na'rkiniyam) {ihS^^^nsSosBiuii))^ lla7npuranain{@6tTiiiy,n€Ssnb),a.nd 
-Sena'vareiyam (Ctf@)Qj65)ffwu)). 
+## Tolkāppiyanār. --- [TAMIL].
 
-ToNDARAmppo'Bi A'ZHVAR --- Q^irGSBn-!ru^uQum^ujniJirir- 
+Tolkāppiyanār, otherwise called _Trinadhūmāgni_ ([TAMIL]), was one of the twelve disciples of **Agastiyer**, and pre-eminent to them all in learning. He belonged to a _Brahman_ family of the tribe of **Jamadagni**, and _Tolkāppiyakkudi_, a town situated to the south of Madura, is reported to have been the place of his residence. It is reported of him that having quarrelled with **Agastiyer**, he set up a rival school, and composed for the use of his scholars a grammar of his own, under the title of _Tolkāppiyam_, which though based on the grammatical institutes of **Agastiyer**, yet on the whole deviated from them. **Athankotāsiriyer**, who was also a disciple of **Agastiyer**, taking the part of his master endeavoured to bring the _Tolkappiyam_ into disrepute by severely criticising it, when it was submitted to the judgment of the assembly of the learned in the court of the Pandiya king; but the author defended his work so successfully that it met with due approbation. This work, which is the oldest of the kind in existence, consists of 1276 _Sūtras_ or rules in verse, and it has had three commentaries written upon it, one by **Nachchinarkiniyanār**, another by **Ilampūraner**, and the other by **Senavareiyer** and which are respectively called after the names of the commentators _Nachchinārkiniyam_ ([TAMIL]), _Ilampūranam_ ([TAMIL]), and _Senāvareiyam_ ([TAMIL]).
 
-This poet, whose real name was Vipra Nara'yaner, ranks high in the 
-■estimation of the Vaishnavas as one of the twelve special votarie* 
+## Tondaradippodi Āzhvār. --- [TAMIL].
 
-« f Vishnu. He was born of a Brahman family at Tirumandang- 
-kudi, and after having completed his course of studies in the Ve- 
-dic and profane literature, became an ascetic, and spent the re- 
-mainder of his days in ministering in the Vaishnam shrine at Siran- 
-^^am. Of his poetical compositions the Tiruma'lei, {^^irinQjeo), and 
-firuppaUiezhtichi {^^uueneiBGuji£ff^), which form a part of the 
-Na'la' yiraprabhmidam {(hnson\i33\SnumB,\h), consist of fifty stanzas in 
-praise of Vishnu, and they are deserving of notice. 
+This poet, whose real name was _Vipra Narāyaner_, ranks high in the estimation of the _Vaishnavas_ as one of the twelve special votaries of _Vishnu_. He was born of a _Brahman_ family at _Tirumandangkudi_, and after having completed his course of studies in the Vedic and profane literature, became an ascetic, and spent the remainder of his days in ministering in the _Vaishnava_ shrine at Sirangam. Of his poetical compositions the _Tirumālei_, ([TAMIL]), and _Tiruppalliezhuchi_ ([TAMIL]), which form a part of the _Nālāyiraprabhandam_ ([TAMIL]), consist of fifty stanzas in praise of _Vishnu_, and they are deserving of notice.
 
-Ulagana'then --- tt-eo« wn^thr. 
+## Ulaganāthen. --- [TAMIL].
 
-This poet though born of parents who belonged to the Amhatta, 
-or barber caste, nevertheless raised himself to eminence by his su- 
-perior genius. Neither the place of his birth nor the date of his ex- 
-istence is known. He is remembered as the author of two metrical 
-rompositions, of which the one entitled Vlaga Niti (a.ffO«f^^), con- 
-tains a series of moral precepts, and the other, entitled Jatibeda 
-Nul (ffn^QUi^^eo), treats of the origin of the divisions, and differ- 
-ences of caste. 
+This poet though born of parents who belonged to the _Ambatta_, or barber caste, nevertheless raised himself to eminence by his superior genius. Neither the place of his birth nor the date of his existence is known. He is remembered as the author of two metrical compositions, of which the one entitled _Ulaga Niti_ ([TAMIL]), contains a series of moral precepts, and the other, entitled _Jatibeda Nūl_ ([TAMIL]), treats of the origin of the divisions, and differences of caste.
 
-Ukraperuvazhuthiya'r --- e.dQiruQu(i^Qj(ip^ujniT. 
+## Ukraperuvazhuthiyār. --- [TAMIL].
 
-Ukraperuvazhuthiyar was one of the forty-nine professors of the 
-Madura College. Some invest him likewise with regal dignity ; but 
-no king of such a name appears to have reigned at Madura later than 
-ihe seventh or sixth century B. C, and we cannot therefore admit 
-It without involving ourselves into a serious anachronism. Tradition 
-lias handed down the following impromptu, in which he eulogized 
-both Tiruvalluver and his Kural. 
+Ukraperuvazhuthiyār was one of the forty-nine professors of the Madura College. Some invest him likewise with regal dignity; but no king of such a name appears to have reigned at Madura later than the seventh or sixth century BCE, and we cannot therefore admit it without involving ourselves into a serious anachronism. Tradition has handed down the following impromptu, in which he eulogized both **Tiruvalluver** and his _Kural_.
 
-iBiT^L£i€S)puSmQLDiuLjQuiT(T^'B£ir QfiuQu iT0istrn CB!T^ Qps^Q^ nm 
+[TAMIL].
 
-The fotir -faced (Brahma) disguising himself as Yallvve'R has im- 
-parled the truths of the four Vedas in the three parts of the Kural., 
-which is therefore to be adored by the head, praised by the mouth, 
-pondered by the mind, and heard by the ears. 
+_The four-faced (Brahma) disguising himself as Valluver has imparted the truths of the four Vedas in the three parts of the Kural, which is therefore to be adored by the head, praised by the mouth, pondered by the mind, and heard by the ears._
 
-Uma'pati Siva'chariya'r --- e-mtru^ ^sunffnifluun. 
+## Umāpati Sivāchariyār. --- [TAMIL].
 
-This celebrated poet and philosopher flourished in the sevcntccntli 
-century of the Christian era. He belonged to the Vaishnava Brah- 
-mans resident at Chillambaram, in the Carnatic ; but being dissatis- 
-fied with the philosophy of the Vaishnava school, he embraced that 
-of the Saiva which he studied thoroughly under the guidance of the 
-Saiva Guru Marreigna'na Sampanter at Maruthur. His principal 
-work is the Sivaprakasam {^6uuL9aan3=ib), consisting of a centum 
-of stanzas, illustrative of the doctrines as taught in the i4'^« /has re- 
-specting the existence of God, his essence and attributes, and of the 
+This celebrated poet and philosopher flourished in the seventeenth century of the Christian era. He belonged to the _Vaishnava Brahmans_ resident at _Chillambaram_, in the Carnatic; but being dissatisfied with the philosophy of the _Vaishnava_ school, he embraced that of the _Saiva_ which he studied thoroughly under the guidance of the _Saiva Guru_ **Marreignāna Sampanter** at Maruthūr. His principal work is the _Sivaprakasam_ ([TAMIL]), consisting of a centum of stanzas, illustrative of the doctrines as taught in the _Āgamas_ respecting the existence of God, his essence and attributes, and of the nature of the human soul, and the organization of the human body. We are glad to notice an abstract of its contents translated into English by the Rev. **Henry R. Hoisington**, and published in the fourth volume of the Journal of the American Oriental Society. He was also the author of the _Tirutonder Puranasāram_ ([TAMIL]), in which he has, in the narrow compass of seventy-five stanzas, given the substance of the legends of the sixty-four votaries of _Siva_ as related by _Sekilar_ in 2255 stanzas. He wrote as well of the _Sekilar Puranam_ ([TAMIL]), which treats of the life and character of _Sekilar_ himself in 100 stanzas, and the _Koyit Puranam_ ([TAMIL]), which treats of the legends of the shrine of _Siva_ at Chillambaram in 410 stanzas. The time of his existence is not known; but we find his name mentioned in the introduction to the _Sidambara Purānam_ ([TAMIL]), which dates CE 1513.
 
+## Uppei. --- உப்பை.
 
-nature of the human soul, and the organization of the human body. 
-Wc are glad to notice an abstract of its contents translated into 
-English by the Rev. He::ry R. IIoisington, and published in the 
-fourth volume of the Journal of the American Oriental Society. He 
-was also the author of the Tirutonder Puranasa'ram {^^i^^Q^nsmt-fr 
-LfDrrems^naii), in which he has, in the narrow compass of seventy-five 
-stanzas, given the substance of the legends of the sixty-four votaries of 
-Siva as related by Sekihir in 2255 stanzas. He wrote as well of the 
-Sekilar Puranam (Ga=ii'iprrfTqafT6i33ia)), which treats of the life and 
-character of Sekilar himself in 100 stanzas, and the Koijif Puranam 
-{(Sanu^riqanismib), which treats of the legends of the shrine of Siva 
-at Chillambaram in 410 stanzas. The time of his existence is not 
-known ; but we find his name mentioned in the introduction to tlie 
-Sidamhara Puranam {^s,iiuni^nnemih), which dates A. D. 1513. 
+This poetess was one of the sisters of **Tiruvalluver**, and having been exposed by her mother, as soon as born, in a choultry at _Utukadū_ in the Arcot district, she was found and brought up by a washerman. She distinguished herself not only by her proficiency in the art of poetry but likewise in the science of moral philosophy, of which she wrote a treatise. The Hindus having deified her after her death, under the title of _Māri Ammei_, the further particulars of her life have become blended with fable.
 
-UpPEI S-USSlU. 
+## Ureiūr Muthukūtanar. --- [TAMIL].
 
-This poetess was one of the sistei-s of Tiruvalluver, and having 
-been exposed by her mother, as soon as born, in a choultry at Utu- 
-kadii in the Arcot district, she was found and brought up by a wash- 
-erman. She distinguished herself not only by her proficiency in the 
-art of poetry but likewise in the science of moral philosophy, of which 
-she wrote a treatise. The Hindus having deified her after her death, 
-under the title of Aldri Ammei^ the further particulars of her life 
-have become blended with fable. 
+The name of this poet has been handed down by tradition as one of the forty-nine professors of the Madura College; but we have no particulars of his life, or any of his compositions, save the subjoined impromptu on the _Kural_.
 
-UrEIU'R MuTHUKU'TANAR ■Q-QSip^nQfi^Sf^ppi^n. 
+[TAMIL].
 
-The name of this poet has been handed down by tradition as one 
-of the forty-nine professors of the Madura College ; but we have no 
-particulars of his life, or any of his compositions, save the subjoined 
-impromptu on the Kiirah 
+_They who have not studied the Kural of the divine Valluver are incapable of good actions; neither their tongues have expressed what is sweet in language, nor their minds understood what is sublime in sense._
 
-They wlio have not studied the Rural of the divine Valluver are 
-incapable of good actions; neither their tongues have expressed what is 
-sweet in language, nor their minds understood what is suhlime in sense. 
+## Uruttirasanmer. --- [TAMIL].
 
+This poet was the son of an opulent merchant at Madura. He is said to have been dumb from his birth until he passed his childhood, and then became supernaturally possessed of poetic spirit. Such was his fame as a critic, that when a dispute arose amongst the professors of the Madura College as to superiority, in consequence of each of them having composed a poem, and each vaunted the merits of his own composition, they chose him as arbitrator to settle that dispute. Having heard the professors each recite his poem, he adjudged some to be good in style, but bad in sense; and some to be good in sense but bad in style; and nodded approbation only to those composed by **Kapiler**, **Paraner**, and **Narkirer**, as perfect both in style, and in sense; and the professors were so much satisfied with his judgment that they at once admitted him as their associate. Moreover when the professors were in doubt, as to who amongst them was worthy of sitting on the College bench, and of hearing **Tiruvalluver** recite his _Kural_ it is stated that an aerial voice declared Uruthirasanmer to be the person.
 
-Uruttirasanmer --- a-( 
+The following is his impromptu on the merits of the _Kural_:
 
-This poet was the son of an opulent merchant a Madura. He Ls 
-said to have been dumb from his birth until he passed his childhood, 
-and then became supernaturally possessed of poetic spirit. Such was 
-his fame as a critic, that when a dispute arose amongst the profess- 
-ors of the Madura College as to superiority, in consequence of each 
-of them having composed a poem, and each vaunted the merits of his 
-own composition, they chose him as arbitrator to settle that dispute. 
-Having heard the professors each recite his poem, he adjudged some 
+[TAMIL].
 
-to be good in style, but bad in sense ; and some to be good in sense 
-but bad in style ; and nodded approbation only to those composed by 
-Kapiler, Paraner, and Narkirer, as perfect both in style, and in 
-sense ; and the professors were so much satisfied with his judgment 
-that they at once admitted him as their associate. Moreover when 
-the professors were in doubt, as to who amongst them was worthy of 
-sitting on the College bench, and of hearing Tiruvallitveb recite his 
-Kural^ it is stated that an aerial voice declared Uruthirasanmer to be 
-the person. 
+_Water will spring forth when the earth is dug, milk will spring forth when the child sucks the mother's breast; but knowledge will spring forth when the poets study Valluver's Kural._
 
-The following is his impromptu on the merits of the Rural : 
+## Uruvei. --- [TAMIL].
 
-Water %oUl spring forth when the earth is dtig, milk will spring 
-forth when the child sucks the mother's hreast ; but knowledge will 
-spring forth when the poets study Yalluvee's Kural. 
-Uruvei --- s-jyaDQ/. 
+This poetess was a sister of **Tiruvalluver**, and was found when she was exposed by her mother soon after her birth, and brought up by a man of the _Sanar_ caste at _Kāveripatnam_. She is said to have been well versed in poetry, and to have composed several poems on different subjects, which, however, have not reached the present time. The Hindus have deified her, as they have done her sister **Uppei**, and she is now an object of worship at Tiruvālangkādu.
 
-This poetess was a sister of Tiruvalluver, and was found when 
-«he was exposed by her mother soon after her birth, and brought up 
-by a man of the Sanar caste at Kfiveripatnam. She is said to have 
-been well versed in poetry, and to have composed several poems on 
-different subjects, which, however, have not reached the present time. 
-The Hindus have deified her, as they have done her sister Uppei, 
-and she is now an object of worship at Tiruvalangkadu. 
+## Vannakkanchāttanār. --- [TAMIL].
 
-Vannakkancha'ttana'r --- (3uesBremda(i^ffiTjbjD(eff)iT. 
+Vannakkanchāttanār was one of the forty-nine professors of the Madura College.
 
-Vannakkanchattanar was one of the forty-nine professors of tlie 
-Madura College. 
+The following is his stanza on the merits of the _Kural_.
 
-The foUowinw is his stanza on the merits of the Kural. 
+[TAMIL].
 
-It is difficult to say whether the Sa7iskrit or the Tamil is the 
-vest, they are perhaps on a par, since the Sanskrit possesses the Ve- 
-da, and the Tamil the Kural, composed by the divine Valluver, 
+_It is difficult to say whether the Sanskrit or the Tamil is the best, they are perhaps on a par, since the Sanskrit possesses the Veda, and the Tamil the Kural, composed by the divine Valluver.
 
-Varantaruva'n --- suiriB^Q^ejtrar. 
-This poet was the son of Villiputturer ; but of his life no memo- 
-rials have been preserved. It would appear, however, that he was 
-the author of the prefatory stanzas which are affi.xcd to his father's 
-imitation of the Mahdbhdrat, 
+## Varantaruvān. --- [TAMIL].
 
+This poet was the son of Villiputtūrer; but of his life no memorials have been preserved. It would appear, however, that he was the author of the prefatory stanzas which are affixed to his father's imitation of the _Mahābhārat_.
 
-THE Tamil plutarch. Ill 
+## Varathakavirāyer. --- [TAMIL].
 
-VARATHAKAVIRA'yER SaiT^aeS !f ntun. 
-
-Varathakavireyer was a poet, who lived at Chwindgam, in Jaffna, 
-in the seventeenth century of the Cliristian era. He belonged to a 
-Bruhman family and was well skilled both in the Vedie and profane 
-literature. His principal works were the Sivaratri Pttranam {fisiian 
-^^(flLjatressnb)^and the Ekddesi Purancnn^ (^anQ^.^uq!jnemii), both 
-which are epic poems, recounting the legends connected with the vigil 
-observed by the Saivas on the night preceeding the new moon to- 
-wards the end of February or beginning of March, and the fast on the 
-eleventh day after the full or new moon in every month. 
+Varathakavirāyer was a poet, who lived at _Chunnāgam_, in Jaffna, in the seventeenth century of the Christian era. He belonged to a _Brāhman_ family and was well skilled both in the Vedic and profane literature. His principal works were the _Sivarātri Puranam_ ([TAMIL]) and the _Ekādesi Puranam_, ([TAMIL]), both which are epic poems, recounting the legends connected with the vigil observed by the _Saivas_ on the night preceeding the new moon towards the end of February or beginning of March, and the fast on the eleventh day after the full or new moon in every month.
 
 Varatunga Ra'ma Pa'nditen --- surr^/sissriTLcufTsmt^ajdr. 
 
