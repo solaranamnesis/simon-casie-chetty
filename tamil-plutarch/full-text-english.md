@@ -1774,7 +1774,7 @@ The following is his stanza on the merits of the _Kural_.
 
 [TAMIL].
 
-_It is difficult to say whether the Sanskrit or the Tamil is the best, they are perhaps on a par, since the Sanskrit possesses the Veda, and the Tamil the Kural, composed by the divine Valluver.
+_It is difficult to say whether the Sanskrit or the Tamil is the best, they are perhaps on a par, since the Sanskrit possesses the Veda, and the Tamil the Kural, composed by the divine Valluver._
 
 ## Varantaruvān. --- [TAMIL].
 
