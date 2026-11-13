@@ -1818,7 +1818,7 @@ He did not, however, compose any epic poems. All that he has left as specimens o
 
 ## Velaya Desiker. --- [TAMIL].
 
-Velaya Desiker was born at _Kanjipuram_. After the death of his father **Kumaraswāmi Pandāram**, he repaired with his brothers **Sivaprakāsa** and **Karunaiprakāser** to Tinnevelly, where under the tuition of **Velliambala Tambirān** the head ascetic of the _Matam_ of Sindupoonturei, he studied the Tamil Grammar and Classics, and became a renowned poet. He composed the following poems, viz: the _Nallūr Purānam_ ([TAMIL]), _Vīrasingādana Puranam_ ([TAMIL]), _Ishtalingakaittala Mālei_ ([TAMIL]), _Namasivāya Līlā_ ([TAMIL]), _Krishnacharitrapārisāda Līlei ([TAMIL]), and _Mailattirattei Mālei_ ([TAMIL]), besides completing the _Kālati Purānam_ ([TAMIL]) which his brothers had left unfinished. He died at Perumātur in the seventy-second year of his age.
+Velaya Desiker was born at _Kanjipuram_. After the death of his father **Kumaraswāmi Pandāram**, he repaired with his brothers **Sivaprakāsa** and **Karunaiprakāser** to Tinnevelly, where under the tuition of **Velliambala Tambirān** the head ascetic of the _Matam_ of Sindupoonturei, he studied the Tamil Grammar and Classics, and became a renowned poet. He composed the following poems, viz: the _Nallūr Purānam_ ([TAMIL]), _Vīrasingādana Puranam_ ([TAMIL]), _Ishtalingakaittala Mālei_ ([TAMIL]), _Namasivāya Līlā_ ([TAMIL]), _Krishnacharitrapārisāda Līlei_ ([TAMIL]), and _Mailattirattei Mālei_ ([TAMIL]), besides completing the _Kālati Purānam_ ([TAMIL]) which his brothers had left unfinished. He died at Perumātur in the seventy-second year of his age.
 
 The following is an elegiac verse which he recited extempore on the death of his two brothers:---
 
