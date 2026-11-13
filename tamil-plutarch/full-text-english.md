@@ -850,7 +850,7 @@ Mandalapuruder was a _Jaina_ ascetic, equally eminent as a poet and lexicographe
 
 ## Maruttuven Tamotharanar. --- [TAMIL].
 
-This poet was one of the forty-nine professors of the Madura College, but nothing further is known of him than that he was also well skilled in the medical art. His encomiastic impromptu on the _Kural_, which we subjoin, is very curious, in as much as it contains at the same time a recipe for head-ache._
+This poet was one of the forty-nine professors of the Madura College, but nothing further is known of him than that he was also well skilled in the medical art. His encomiastic impromptu on the _Kural_, which we subjoin, is very curious, in as much as it contains at the same time a recipe for head-ache.
 
 [TAMIL].
 
