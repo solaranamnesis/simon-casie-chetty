@@ -945,7 +945,7 @@ Nambiyāndār Nambi was a poet, who flourished amongst the _Brāhmans_ of the _A
 
 ## Namāzhvār. --- [TAMIL].
 
-Nam Āzhvār deserves notice as a poet as well as one of the twelve_Āzhvars_ or special votaries of _Vishnu_. He was born of a _Velāla_ family at _Tirukurugai_, on the _Tāmbraparni_ river, and his genius having displayed itself while yet a child to the astonishment of his parents, they not being able to account for it otherwise persuaded themselves into the belief that he was an incarnation of **Sena Mudellar**, one of their saints. He was the author of four different poems in honour of _Vishnu_ containing in all 1296 stanzas, and they now form a part of the _Nālāyiraprabhandam_ ([TAMIL]), which the _Vaishnavas_ regard next to the _Vedas_.
+Nam Āzhvār deserves notice as a poet as well as one of the twelve _Āzhvars_ or special votaries of _Vishnu_. He was born of a _Velāla_ family at _Tirukurugai_, on the _Tāmbraparni_ river, and his genius having displayed itself while yet a child to the astonishment of his parents, they not being able to account for it otherwise persuaded themselves into the belief that he was an incarnation of **Sena Mudellar**, one of their saints. He was the author of four different poems in honour of _Vishnu_ containing in all 1296 stanzas, and they now form a part of the _Nālāyiraprabhandam_ ([TAMIL]), which the _Vaishnavas_ regard next to the _Vedas_.
 
 ## Nappālattanār. --- [TAMIL].
 
