@@ -182,7 +182,14 @@ _Hail! O Muttukishna, thou skilled in all languages! Under the benignant auspice
 
 This epistle having been favourably received by the _Mudeliar_, he had the satisfaction of reciting his work before him, and the following impromptu, which he uttered on the occasion, commemorates the high honours, and munificent presents bestowed on him by this distinguished individual.
 
-[TAMIL].
+கனந்தந்தான் கனகாபிஷேகந்தந்தான்‌  
+களங்கமில்லாக்கருப்பொருளையழைத்துத்தந்தான்‌  
+மனந்தந்தான்‌ முடிசூட்டுமாலைதந்தான்‌  
+வானிசிங்காதானத்திருத்தி வரிசைதந்தான்‌  
+இனந்தந்தான்‌ ராமகதையெவர்க்குந்தந்தான்  
+எனைராமாயணக்கவிஞனெனப்பேர்தந்தான்‌  
+அனந்தந்தான்‌ மணலிமுத்துக்கிஷணபூபன்‌  
+அகந்தந்தானிருமையிலுஞ்‌ சுகந்தந்தானே.
 
 _He gave me gold, and heaped riches upon me;_  
 _He gave me the products of the different countries;_  
@@ -198,9 +205,9 @@ Sometime afterwards **Tulaji Maharāja** having become reconciled with the **Naw
 
 It appears that in the latter years of his life a gloom having overspread his mind, he assumed the garb of a _Saiva Pandāram_, and lived in retirement at Shīyally, where he died in CE 1779, at the age of sixty-seven.
 
-## Arunaghiri Nāther. --- [TAMIL].
+## Arunaghiri Nāther. --- அருணகிரிநாதர்.
 
-Arunaghiri Nāther was an eminent poet, who from his entire devotedness to the worship of _Siva_, renounced the world and assuming the life of an ascetic, lived and died at the _Siva_ fane at Trinomali, in the Carnatic. His compositions are of a religious character, and in praise of _Skanda_, the Hindu Mars. They are as follows: _Kanden Alangkāram_ ([TAMIL]), _Kanden Anubhūdi_ ([TAMIL]), _Kanden Antādi_ ([TAMIL]), _Tiruvaguppu_ ([TAMIL]), and _Tiruppugazh_ ([TAMIL]). This last work containing a series of 100 stanzas, being enriched by a splendid and harmonious flow of diction, has gained great popularity amongst the _Saivas_, who generally have it recited, when any member of their sect is at the point of death. Arunaghiri Nāther was also the author of a short harmonic poem, entitled _Udatkūtu Vannam_ ([TAMIL]), descriptive of the different stages of human life, which together with an abridged translation of it in English, by the Rev. Mr. **Roberts**,* as revised by us we here subjoin:
+Arunaghiri Nāther was an eminent poet, who from his entire devotedness to the worship of _Siva_, renounced the world and assuming the life of an ascetic, lived and died at the _Siva_ fane at Trinomali, in the Carnatic. His compositions are of a religious character, and in praise of _Skanda_, the Hindu Mars. They are as follows: _Kanden Alangkāram_ (கந்தனலங்காரம்), _Kanden Anubhūdi_ ([TAMIL]), _Kanden Antādi_ ([TAMIL]), _Tiruvaguppu_ ([TAMIL]), and _Tiruppugazh_ ([TAMIL]). This last work containing a series of 100 stanzas, being enriched by a splendid and harmonious flow of diction, has gained great popularity amongst the _Saivas_, who generally have it recited, when any member of their sect is at the point of death. Arunaghiri Nāther was also the author of a short harmonic poem, entitled _Udatkūtu Vannam_ ([TAMIL]), descriptive of the different stages of human life, which together with an abridged translation of it in English, by the Rev. Mr. **Roberts**,* as revised by us we here subjoin:
 
 *) Roberts Oriental Illustrations of the Sacred Scriptures, p. 348.
 
