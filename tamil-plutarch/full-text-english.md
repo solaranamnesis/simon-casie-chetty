@@ -207,11 +207,35 @@ It appears that in the latter years of his life a gloom having overspread his mi
 
 ## Arunaghiri Nāther. --- அருணகிரிநாதர்.
 
-Arunaghiri Nāther was an eminent poet, who from his entire devotedness to the worship of _Siva_, renounced the world and assuming the life of an ascetic, lived and died at the _Siva_ fane at Trinomali, in the Carnatic. His compositions are of a religious character, and in praise of _Skanda_, the Hindu Mars. They are as follows: _Kanden Alangkāram_ (கந்தனலங்காரம்), _Kanden Anubhūdi_ ([TAMIL]), _Kanden Antādi_ ([TAMIL]), _Tiruvaguppu_ ([TAMIL]), and _Tiruppugazh_ ([TAMIL]). This last work containing a series of 100 stanzas, being enriched by a splendid and harmonious flow of diction, has gained great popularity amongst the _Saivas_, who generally have it recited, when any member of their sect is at the point of death. Arunaghiri Nāther was also the author of a short harmonic poem, entitled _Udatkūtu Vannam_ ([TAMIL]), descriptive of the different stages of human life, which together with an abridged translation of it in English, by the Rev. Mr. **Roberts**,* as revised by us we here subjoin:
+Arunaghiri Nāther was an eminent poet, who from his entire devotedness to the worship of _Siva_, renounced the world and assuming the life of an ascetic, lived and died at the _Siva_ fane at Trinomali, in the Carnatic. His compositions are of a religious character, and in praise of _Skanda_, the Hindu Mars. They are as follows: _Kanden Alangkāram_ (கந்தனலங்காரம்), _Kanden Anubhūdi_ (கந்தனனுபூதி), _Kanden Antādi_ (கந்தனந்தாதி), _Tiruvaguppu_ (திருவகுப்பு), and _Tiruppugazh_ (திருப்புகழ்). This last work containing a series of 100 stanzas, being enriched by a splendid and harmonious flow of diction, has gained great popularity amongst the _Saivas_, who generally have it recited, when any member of their sect is at the point of death. Arunaghiri Nāther was also the author of a short harmonic poem, entitled _Udatkūtu Vannam_ (உடற்கூற்றுவண்ணம்), descriptive of the different stages of human life, which together with an abridged translation of it in English, by the Rev. Mr. **Roberts**,* as revised by us we here subjoin:
 
 *) Roberts Oriental Illustrations of the Sacred Scriptures, p. 348.
 
-[TAMIL].
+உடறகூற்றுவண்ணம்‌.
+
+ஒருமடமாது மொருவனுமாகி யின்பசுகந்தரு மன்புபொருந்தி, உணர்வுகலங்கி யொழுகியவிந்து வூறுசுறோணித மீதுகலந்து, பனியிலோர்பாதி சிறுதுளிமாது, பண்டியில்வந்து புகுந்துதிரண்டு, பதுமவரும்பு கமடமிதென்று பார்வை மெய்‌ வாய்‌ செவி கால்கைகளென்‌ற, உருவமுமாகி யுயிர்‌வளர்மாத மொன்பதுமொன்று நிறைந்துமடந்தை, உதரமகன்று புவியில்விழுந்து யோகமும்‌ வாரமும்‌ நாளுமறிந்து, மகளிர்கள்‌ சேனை தரவணையாடை மண்படவுந்தி யுதைந்துகவிழ்‌ந்து, மடமயில்கொங்கை யமுதமருந்தி, யோரறிவீரறிவாகிவளர்ந்து, ஒளிநகையூறலிதழ்மடவாரு வந்துமுகந்திட வந்துதவழ்ந்து, மடியிலிருந்து மழலைமொழிந்து வாவிருபோவென நாமம்விளம்ப, உடைமணியாடை யரைவடமாட வுண்பவர்‌ தின்பவர்‌ தங்களோடுண்டு, தெருவிலிருந்து புழுதியளைந்து தேடியபாலரோடோடிநடந்து, அஞ்சுவயதாகிவிளையாடியே.
+
+உயர்தருஞான குருவுபதேச முந்தமிழின்கலையுங்கரைகண்டு, வளர்பிறையென்று பலரும்விளம்ப வாழ்பதினாறுபிராயமும்வந்து, மயிர்‌முடிகோதியறுபதநீல வண்டிமிர்தண்டொடை கொண்டைபுனைந்து, மணிபொனிலங்கு பணிகளணிந்து, மாகதர்போகதர்‌ கூடிவணங்க, மதனசொரூபனிவனெனமோக மங்கையர்கண்டு மருண்டுதிரண்டு, வரிவிழிகொண்டு சுழியவெறிந்து, மாமயில்போலவர்‌போவதுகண்டு, மனதுபொறாமலவர்பிறகோடி மங்கலசெங்கலசந்திகள்‌கொங்கை, மருவமயங்கியிதழமுதுண்டு தேடியமாமுதல்‌ சேரவழங்‌கி, ஒருமுதலாகி முதுபொருளாயிருந்ததனங்களும்‌ வம்பிலிழந்து, மதனசுகந்தவிதனமிதென்று வாலிபகோலமும்‌ வெறுபிரிந்து, வளமையுமாறி யிளமையுமாறி வன்பல்விழுந்திரு கண்களிருண்டு, வயதுமுதிர்ந்து நரைதிரைவந்து வாதவிரோத குரோதமடைந்து, செங்‌கையினிலோர்தடியுமாகியே.
+
+வருவதுபோவதொருமுதுகூனு மந்தியெனும்படி குந்திநடந்து, மதியுமழிந்து செவிதிமிர்வந்து வாயறியாமல்‌ விடாமன்மொழிந்து, துயில்வருநேரமிருமல்பொறாது தொண்டையுநெஞ்சுமுலர்‌ந்துவரண்டு, துகிலுமிழந்து சுணையுமழிந்து, தோகையர்பாலர்கள்‌ கோறணிகொண்டு, கலியுகமீதிலிவர்மரியாதை கண்டிடுமென்பவர்‌ சஞ்சலமிஞ்ச, கலகலவென்று மலசலம்வந்து கால்வழிமேல்வழி சாரநடந்து, தெளிவுமிராமலுரைதடுமாறி சிந்தையுநெஞ்சுமுலைந்துமருண்டு, திடமுமலைந்து மிகவுமலைந்து தேறினலாதரவேதெனநொந்து, மறையவன்வேதனெழுதியவாறு வந்ததுகண்டமுமென்றுதெளிந்து, இனியெனகண்ட மினியெனதொந்த, மேதினிவாழ்வுமிலாதினிநின்ற, கடன்‌முறைபேசுமெனவுரைநாவுறங்கிவிழுந்துகைகொண்டுமருந்து, ௧டைவிழிகஞ்சியொழுகிடவந்து பூதமுநாலு சுவாசமுநின்று, நெஞ்‌சிதடுமாறிவருநேரமே.
+
+வளர்பிறைபோலவெயிறுமுரோம முஞ்சடையுஞ்சிறுகுஞ்சியும்வி
+ஞ்சு, மனதுமிருண்ட வடிவுமிலங்க, மாமலைபோல்‌ யமதூதர்கள்‌வந்
+துவலைகொடுவீசி வுயிர்கொடுபோக மைக்தரும்‌உந்து குனிந்தழநொந்
+து, மடியில்விழுந்து மனைவிபுலம்‌ப மாழ்கினரேயிவர்காலமறிந்து,
+
+
+பழையவர்காணுமெனுமப3லைர்ஈள்‌ பஞ்சுபறந்திட கின்றவர்பக்தர்‌,
+இடுமெனவந்து பறையிடமுந்த வேபிணம்‌ 2வக விசாரியுமெண்று, ப
+லரையுமேவி முதியவர்சாமிருஈ்சசவங்கமுவுஞ்சிலரென்று. பற்று
+கஇிறொங்கல்‌ களபமணிக்து பாவகமேசெய்து நாறுமுட ம்பை, வரி
+
+சைகெடாமலெூமென2வாடி, வகந்திளமைந்தர்‌ குனிந்துசமத்து,
+கடுதிஈடந்து சுடலையடைந்து மானிடலாழ்கெனலாழ்‌வெனசொச்‌
+து, விறவடைமூடி யழல்‌9சொரபோட வெர்துவிமுந்து முறிந்து நண
+௩்க, ளூருகியெலும்பு கருகயடங்கு யோர்பிடிரீழ மிலாதவுடம்பை)
+
+மம்புமடியேனை யினியாளு மே.
 
 _The beginning of man is as a dew-drop falling from the tip of a blade of grass: he assumes his corporeal form in the womb of his mother, in the course of ten months and is then brought forth; he lies down, crawls, prattles, walks, and becomes acquainted with science. At sixteen he is in the bloom of youth; goes forth richly dressed, and adorned with jewels, courts the society of young women, is ravished by their eyes, lets himself loose to all irregularities and squanders his wealth. His youth now passes away and old age creeps on; his hair turns grey, his teeth drop, his eyes grow dim, his organs of hearing are impaired, his body becomes dry, his back bends, and he is troubled with incessant cough, which disturbs his sleep. He is no longer able to walk, and has recourse to a cane, and is gazed at by the young with derision. While in this condition, the ministers of Yama (Pluto), with their shaggy hair and frightful countenance, approach him, and seize and bear away his life amidst the screams of his wife and children. His kinsfolk and friends then assembled, talk of his good or evil deeds, convey his body to the burning ground with the sound of tom-toms, and commit it to the flame which consumes and reduces it to a handful of ashes._
 
