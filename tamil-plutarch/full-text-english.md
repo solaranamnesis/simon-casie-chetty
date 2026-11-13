@@ -1460,7 +1460,7 @@ _The truly wise hasten to sustain the griefs sustained by others and to protect 
 
 _The worthy think not of supplying their own wants, but endeavour to supply the pressing wants of others; thus the moon, heeding not the removal of the darkness of its own spots, chaseth away the darkness which filleth the world._ **Ellis.**
 
-Sivaprakāsa Desiker was also the author of three different panegyrics on **Bālayānanda Swāmi_, who was his _Guru_ or spiritual instructor, besides a hymn on each of the _Saiva_ shrines in southern India, which were commemorated in the chants of **Apper**, **Sundarer** and **Sampanter** in ancient times. He undertook to perfect the _Kālatti Purānam_ ([TAMIL]), which his brother **Karunaiprakāsa Deziker** had left unfinished; but he died before he could execute his task.
+Sivaprakāsa Desiker was also the author of three different panegyrics on **Bālayānanda Swāmi**, who was his _Guru_ or spiritual instructor, besides a hymn on each of the _Saiva_ shrines in southern India, which were commemorated in the chants of **Apper**, **Sundarer** and **Sampanter** in ancient times. He undertook to perfect the _Kālatti Purānam_ ([TAMIL]), which his brother **Karunaiprakāsa Deziker** had left unfinished; but he died before he could execute his task.
 
 ## Sivavākiyar. --- [TAMIL].
 
