@@ -1100,7 +1100,7 @@ Pānapattiran was a minstrel, who lived at the court of **Varaguna Pandiyen** at
 
 ## Periya Āzhvār. --- [TAMIL].
 
-This poet was a native of _Villiputtūr_, and has had the distinction of carrying a prize in a poetical contest in the court of **Vallabadeva Pāndiyen**, king of Madura. He is considered as one of the Āzhvārs_ or special votaries of _Vishnu_, and that four-hundred stanzas of the _Nālāyiraprabhandam_ ([TAMIL]) are said to have been contributed by him.
+This poet was a native of _Villiputtūr_, and has had the distinction of carrying a prize in a poetical contest in the court of **Vallabadeva Pāndiyen**, king of Madura. He is considered as one of the _Āzhvārs_ or special votaries of _Vishnu_, and that four-hundred stanzas of the _Nālāyiraprabhandam_ ([TAMIL]) are said to have been contributed by him.
 
 ## Perunchītanār. --- [TAMIL].
 
