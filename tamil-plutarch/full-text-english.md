@@ -265,7 +265,7 @@ Immediately afterwards Auveiyar happening to call at the dancing girl's house an
 The following is the translation of the above stanza:---
 
 _The best of rivers is the_ Kāveri, _the best of kings is_ Chola,  
-_The best of lands is Cholamandalam, the best of Chilambus,  
+_The best of lands is Cholamandalam, the best of Chilambus,_  
 _Are the gold Chilambus on the lotus feet,_  
 _Of the damsel Chilambi of Ambel._
 
