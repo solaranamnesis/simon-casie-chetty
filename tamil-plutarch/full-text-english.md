@@ -276,11 +276,17 @@ _To give is Virtue. That which is acquired without sin, is Wealth. The constant 
 
 When **Tiruvalluver** went to the Madura College to submit the _Kural_ to its judgment, Auveiyar accompanied him thither, and making some signs to the professors, asked them what she meant by those signs upon which one of them improvised the following stanza, in reply:---
 
-[TAMIL].
+இவ்வளவுகண்ணினாளிவ்‌வளவுசிற்றிடையா  
+ளிவ்‌வளவுபோன்றவிளமுலையா --- ளிவ்வளவாய்க்  
+காமத்தலைவனையுங்‌ காணாதுகன்றினா  
+ணாமத்தைக்காட்டுகுறிநன்கு.
 
 Not satisfied with the explanation, she interpreted the signs herself, thus:
 
-[TAMIL].
+ஐயமிடுமினறநெறியைக் கைப்பிடுமி  
+னிவ்வளவேனும்‌ மனத்தையிட்டுண்மின்‌ --- றெய்வ  
+மொருவனேயென்னவுணரவல்லீரே  
+லருவினைகளைந்துமறும்‌.
 
 _Give alms, hold fast the true virtue,_  
 _Eat rice, after giving to others even as much as a pinch._  
@@ -296,7 +302,8 @@ Auveiyar had the nickname of Kūzhukupādi (கூழுக்குப்பா
 
 Immediately afterwards Auveiyar happening to call at the dancing girl's house and being informed of the affair, added the two following lines to the unfinished stanza of **Kamber**, accepting as a reward merely a cup of pap.
 
-[TAMIL].
+அம்பற்சிலம்பியரவிந்தத்தாழணியுஞ்  
+செம்பொற்சிலம்பேசிலம்பு.
 
 The following is the translation of the above stanza:---
 
@@ -309,14 +316,23 @@ _Of the damsel Chilambi of Ambel._
 
 On one occasion when some men reviled the character of women in Auveiyar's hearing, she is said to have retorted upon them with the following impromptu:
 
-[TAMIL].
+நல்லார்களெல்லாரு நல்லாரேதன்மையால்‌  
+வல்லாராற்கேடு படாராயின்‌ --- நல்லறி  
+வாண்மக்கட்பற்பலர்க்கேயுண்டாகும்‌ பெண்டீரும்‌  
+மாண்புக்கெடுக்காவிடின்‌.
 
 _All women would be good by nature, if men did not spoil them; and most men would have a tolerable stock of sense, if the women did 
 not make fools of them._ **Ellis**.
 
 The subjoined stanza eulogizing the city of _Kānjipuram_ is attributed to Auveiyar:---
 
-[TAMIL].
+வையகமெல்லாங்‌ கழனியாய்‌ வையகத்துட்‌  
+செய்யகமேநாற்றிசையின்‌ றேயங்கள்‌ --- செய்யகத்துள்‌  
+வான்கரும்பேதொண்டை வழநாடுவான்கரும்பின்‌  
+சாறேயந்நாட்டிற்றலையூர்கள்சாறட்ட  
+கட்டியேகச்சிப்புறமெல்லாங்கட்டியுட்‌  
+டானெற்றமான்‌ சருக்கரைமாமணியே  
+யானேற்றான்‌ கச்சியகம்‌.
 
 _The whole earth may be compared to an expanse of wet-land:_  
 _The several countries of the earth, marked by their boundaries on the four sides, are cultivated fields within it;_  
@@ -324,16 +340,16 @@ _Tondei-vala-nadu is a lofty sugar-cane in one of these fields;_
 _The chief towns of this country are the crude juice of this sugar-cane;_  
 _Cachchipuram (Conjiveram) and its vicinity are like a cake of unrefined sugar obtained by boiling this juice;_  
 _And a large concretion of refined sugar in the midst of this cake_  
-_Represents the interior of Cachchi, where the bull-borne Deity resides._
+_Represents the interior of Cachchi, where the bull-borne Deity resides._  
 **Ellis**.
  
-## Avīnayanār. --- [TAMIL].
+## Avinayanār. --- அவிநயனார்.
 
-Little is known of the life of Avīnayanār, except that he was one of the twelve disciples of **Agastiyer** and the author of a treatise on versification, which is called after his own name, _Avīnayam_ ([TAMIL]). Father **Beschi**, in his Introduction to the Shen Tamil Grammar, notices Avīnayanār as one of the persons, who wrote on the Tamil Grammar after **Agastiyer's** time and whose works have perished.
+Little is known of the life of Avinayanār, except that he was one of the twelve disciples of **Agastiyer** and the author of a treatise on versification, which is called after his own name, _Avinayam_ (அவிநயம்). Father **Beschi**, in his Introduction to the Shen Tamil Grammar, notices Avinayanār as one of the persons, who wrote on the Tamil Grammar after **Agastiyer's** time and whose works have perished.
 
-## Avīrāmipatter. --- [TAMIL].
+## Avirāmipatter. --- அவிராமிப்பட்டர்.
 
-Avīrāmipatter, corrigo, _Abirāmi Bhatta_, was a poet equally well versed in Sanskrit and Tamil literature. He belonged to a class of _Brahmans_ at _Tirukadavūr_ in the Carnatic, and was a staunch adherent of the sect which worship _Pārvati_, the female energy of _Siva_, under the name of _Abirāmi_. Of his poetical compositions we have only a centum of hymns, addressed to _Abirāmi_, and which are remarkably harmonious in their versification. Such is the faith that _Saivas_ have in the efficacy of these hymns, that it is not unusual for them to commit them to memory, and recite them privately with great veneration. The following is one of the hymns referred to:
+Avirāmipatter, corrigo, _Abirāmi Bhatta_, was a poet equally well versed in Sanskrit and Tamil literature. He belonged to a class of _Brahmans_ at _Tirukadavūr_ in the Carnatic, and was a staunch adherent of the sect which worship _Pārvati_, the female energy of _Siva_, under the name of _Abirāmi_. Of his poetical compositions we have only a centum of hymns, addressed to _Abirāmi_, and which are remarkably harmonious in their versification. Such is the faith that _Saivas_ have in the efficacy of these hymns, that it is not unusual for them to commit them to memory, and recite them privately with great veneration. The following is one of the hymns referred to:
 
 [TAMIL].
 
