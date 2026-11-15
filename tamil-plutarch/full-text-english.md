@@ -351,19 +351,25 @@ Little is known of the life of Avinayanār, except that he was one of the twelve
 
 Avirāmipatter, corrigo, _Abirāmi Bhatta_, was a poet equally well versed in Sanskrit and Tamil literature. He belonged to a class of _Brahmans_ at _Tirukadavūr_ in the Carnatic, and was a staunch adherent of the sect which worship _Pārvati_, the female energy of _Siva_, under the name of _Abirāmi_. Of his poetical compositions we have only a centum of hymns, addressed to _Abirāmi_, and which are remarkably harmonious in their versification. Such is the faith that _Saivas_ have in the efficacy of these hymns, that it is not unusual for them to commit them to memory, and recite them privately with great veneration. The following is one of the hymns referred to:
 
-[TAMIL].
+மணியேமணியினொளியேயொளிருமணிபுனைந்த  
+வணியேயணியுமணிக்கழகேயணுகாதவர்க்குப்‌  
+பிணியேபிணிக்குமருந்தேயமரர்‌ பெருவிருந்தே  
+பணியேனொருவரை நின்பத்மபாதம்‌ பணிந்தபின்னே.
 
 _Thou art the gem, thou art the brightness of that gem; thou art the necklace formed of that gem, and it is thou that givest it its beauty. Thou art the disease of those who do not approach thee, and the cure of those who approach thee; and thou art the great feast of the celestials. I shall not adore the feet of any after I have adored thy lotus-feet._
 
-## Ālankudi Vanganār. --- [TAMIL].
+## Ālankudi Vanganār. --- ஆலங்குடிவங்கனார்.
 
 Nothing is known of this poet, except that he was a native of _Ālankudi_ and that his high attainments had obtained for him a place in the Madura College as one among the forty-nine professors. His works have all perished, and even his own name would have long ago fallen into oblivion, but for the following impromptu which he uttered when the _Kural_ passed the College bench.
 
-[TAMIL].
+வள்ளுவர்பாட்டின்‌ வளமுரைக்கின்‌ வாய்மடுக்குந்  
+தெள்ளமுதின்றீஞ்சுவையுமொவ்வாதாற்‌ --- றெள்ளமுத  
+முண்டறிவார்தேவருலகடையவுண்ணுமால்‌  
+வண்டமிழின்முப்பான்மகிழ்ந்து.
 
 _Even the sweetness of ambrosia cannot be compared to the sweetness of Valluver's poem. The gods have known the taste of ambrosia by having partaken of it, but men will know it when they imbibe the milk (instruction), which issues from the three udders (the three parts) of the Kural._
 
-## Ālavandār. --- [TAMIL].
+## Ālavandār. --- ஆளவந்தார்.
 
 Ālavandār was both a poet and philosopher. He belonged to a class of _Brāhmans_, styled _Bhattas_, and traced his pedigree to **Mādhava Bhatta**, an eminent _Guru_, who lived at _Vīrei_ in the Carnatic, in ancient times. His poetical version of the _Gnāna Vāshistha_ from Sanskrit into Tamil in 2,055 stanzas is an elaborate performance, and greatly redounds to his credit. The _Gnāna Vāshitha_ treats of the _Vedic_ philosophy, and is interspersed with legends of various real or fabulous personages. The following stanza which we quote from the work contains a description of the attributes of God:
 
