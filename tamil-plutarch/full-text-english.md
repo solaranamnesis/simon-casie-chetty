@@ -373,29 +373,36 @@ _Even the sweetness of ambrosia cannot be compared to the sweetness of Valluver'
 
 Ālavandār was both a poet and philosopher. He belonged to a class of _Brāhmans_, styled _Bhattas_, and traced his pedigree to **Mādhava Bhatta**, an eminent _Guru_, who lived at _Vīrei_ in the Carnatic, in ancient times. His poetical version of the _Gnāna Vāshistha_ from Sanskrit into Tamil in 2,055 stanzas is an elaborate performance, and greatly redounds to his credit. The _Gnāna Vāshitha_ treats of the _Vedic_ philosophy, and is interspersed with legends of various real or fabulous personages. The following stanza which we quote from the work contains a description of the attributes of God:
 
-[TAMIL].
+அத்தமியாதசோதியருக்கனாயளவிலாதாய்‌  
+மெத்தியபிணியிலாதாய்‌ மேவரும்பிறப்பிலாதா  
+யெத்தலங்களினுமென்றுமியாவுமாயாவுஞ்செய்து  
+முத்தியுமாகியோங்கு முதற்பரம்பொருளொன்றுண்டு.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;ஞானவிண்மகன்கதை 𑌨𑍍𑌧 ம்‌ பாட்டு.
 
 _There is a supreme being, --- he is the sun who shines with unreflected light, without setting, --- he who is infinite, --- he who is free from infirmity, --- he who is not subject to birth, --- he who is everywhere and at all times, --- he who is all and the creator of all, and he who is the final beatitude itself._
 
-## Āndī Pulavar. --- [TAMIL].
+## Āndi Pulavar. --- ஆண்டிப்புலவர்.
 
-This poet, who distinguished himself by his eminent attainments in philology, was the son of **Pāvādei Vādhyār** of _Ūtankal_, a village in the Gingee country. He had a great partiality for writing verses of the kind called _Āsīrīyam_, and we have a commentary of his on the first two parts of the _Nannūl_, under the title of _Ureiyari Nannūl_ ([TAMIL]), and a _Nigandu_, or dictionary of the Tamil synonyms, both written in the same metre.
+This poet, who distinguished himself by his eminent attainments in philology, was the son of **Pāvādei Vādhyār** of _Ūtankal_, a village in the Gingee country. He had a great partiality for writing verses of the kind called _Āsīrīyam_, and we have a commentary of his on the first two parts of the _Nannūl_, under the title of _Ureiyari Nannūl_ (உரையறிநந்நூல்), and a _Nigandu_, or dictionary of the Tamil synonyms, both written in the same metre.
 
-## Āsiriyer Nallanduvanār. --- [TAMIL].
+## Āsiriyer Nallanduvanār. --- ஆசிரியர்நல்லந்துவனார்.
 
 This poet was one of the forty-nine professors of the Madura College. He had the title of _Āsiriyer_ or doctor, conferred on him as an honorary mark of literary distinction. Neither his parentage nor personal history is known, and even of his compositions we have nothing more than the following impromptu in which he expressed his approbation of the _Kural_, and eulogized its author when that work was submitted to the criticism of the College bench.
 
-[TAMIL].
+சாற்றியபலகலையுந் தப்பாவருமறையும்‌  
+போற்றியுரைத்தபொருளெல்லாந் --- தோற்றவே  
+முப்பான்மொழிந்த முதற்பாவலரொப்பா  
+ரெப்பாவலரினுமில்‌.
 
 _There is none amongst the learned that can compete with the first of poets (meaning Tiruvalluver) who composed the Kural, which has in itself all that the works of the sages and the infallible Vedas have preserved._
 
-## Chatteimuni. --- [TAMIL].
+## Chatteimuni. --- சட்டைமுனி.
 
-Nothing is known of Chatteimuni, except that he was a _Saiva_ ascetic, who lived at the same time with **Agastiyer**, and enjoyed some reputation as a poet, philosopher and physician. He wrote a work on theology, called _Gnāna Nūru_ ([TAMIL]), and another on medicine, called _Kalpa Nūru_ ([TAMIL]). He is also believed to have been the author of the _Vāda Nigandu_ ([TAMIL]), a treatise on alchemy which passes under his name.
+Nothing is known of Chatteimuni, except that he was a _Saiva_ ascetic, who lived at the same time with **Agastiyer**, and enjoyed some reputation as a poet, philosopher and physician. He wrote a work on theology, called _Gnāna Nūru_ (ஞானநூறு), and another on medicine, called _Kalpa Nūru_ (கலப்பநூறு). He is also believed to have been the author of the _Vāda Nigandu_ (வாதநிகண்டு), a treatise on alchemy which passes under his name.
 
-## Cheramān Perumān. --- [TAMIL].
+## Chēramān Perumān. --- சேரமான்பெருமான்.
 
-Cheramān Perumān, also called _Perumākodeiyar_, was both a king and poet. Some say that he was the son of **Sankaranātha Chera** and others of **Senkotporei Chera**, and in the _Cholapūrva Patayam_, one of the Mackenzie Mss. the date of his accession is placed in the _Kali_ year 3538, (CE 437). He became an ascetic while yet a youth, and retiring from Cranganore, where his father held his court established himself in the _Saiva_ temple at Tiruvanjikalam, but on the abdication of the throne by his father, he returned to the capital and assumed the reins of government upon the importunity of the ministers. He appears to have endeavoured to advance the interests of literature, by patronizing the poets, who resorted to his court; but being a superstitious votary of _Siva_, spent most of his time in making pilgrimages. He was a friend of **Sundarer**, and died simultaneously with him as may be inferred from the fable of their repairing to _Kailāsam_ together and remaining there in a state of beatification. He composed three poems in honour of _Siva_, namely, the _Mummani-kovei_ ([TAMIL]), _Kailāsavulā_ ([TAMIL]), and _Ponvannatandādi_ ([TAMIL]) and they are still in much repute.
+Chēramān Perumān, also called _Perumākodeiyar_, was both a king and poet. Some say that he was the son of **Sankaranātha Chera** and others of **Senkotporei Chera**, and in the _Cholapūrva Patayam_, one of the Mackenzie Mss. the date of his accession is placed in the _Kali_ year 3538, (CE 437). He became an ascetic while yet a youth, and retiring from Cranganore, where his father held his court established himself in the _Saiva_ temple at Tiruvanjikalam, but on the abdication of the throne by his father, he returned to the capital and assumed the reins of government upon the importunity of the ministers. He appears to have endeavoured to advance the interests of literature, by patronizing the poets, who resorted to his court; but being a superstitious votary of _Siva_, spent most of his time in making pilgrimages. He was a friend of **Sundarer**, and died simultaneously with him as may be inferred from the fable of their repairing to _Kailāsam_ together and remaining there in a state of beatification. He composed three poems in honour of _Siva_, namely, the _Mummani-kovei_ ([TAMIL]), _Kailāsavulā_ ([TAMIL]), and _Ponvannatandādi_ ([TAMIL]) and they are still in much repute.
 
 ## Deivasihāmani Pillei. --- [TAMIL].
 
