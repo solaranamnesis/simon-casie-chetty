@@ -402,49 +402,65 @@ Nothing is known of Chatteimuni, except that he was a _Saiva_ ascetic, who lived
 
 ## Chēramān Perumān. --- சேரமான்பெருமான்.
 
-Chēramān Perumān, also called _Perumākodeiyar_, was both a king and poet. Some say that he was the son of **Sankaranātha Chera** and others of **Senkotporei Chera**, and in the _Cholapūrva Patayam_, one of the Mackenzie Mss. the date of his accession is placed in the _Kali_ year 3538, (CE 437). He became an ascetic while yet a youth, and retiring from Cranganore, where his father held his court established himself in the _Saiva_ temple at Tiruvanjikalam, but on the abdication of the throne by his father, he returned to the capital and assumed the reins of government upon the importunity of the ministers. He appears to have endeavoured to advance the interests of literature, by patronizing the poets, who resorted to his court; but being a superstitious votary of _Siva_, spent most of his time in making pilgrimages. He was a friend of **Sundarer**, and died simultaneously with him as may be inferred from the fable of their repairing to _Kailāsam_ together and remaining there in a state of beatification. He composed three poems in honour of _Siva_, namely, the _Mummani-kovei_ ([TAMIL]), _Kailāsavulā_ ([TAMIL]), and _Ponvannatandādi_ ([TAMIL]) and they are still in much repute.
+Chēramān Perumān, also called _Perumākodeiyar_, was both a king and poet. Some say that he was the son of **Sankaranātha Chera** and others of **Senkotporei Chera**, and in the _Cholapūrva Patayam_, one of the Mackenzie Mss. the date of his accession is placed in the _Kali_ year 3538, (CE 437). He became an ascetic while yet a youth, and retiring from Cranganore, where his father held his court established himself in the _Saiva_ temple at Tiruvanjikalam, but on the abdication of the throne by his father, he returned to the capital and assumed the reins of government upon the importunity of the ministers. He appears to have endeavoured to advance the interests of literature, by patronizing the poets, who resorted to his court; but being a superstitious votary of _Siva_, spent most of his time in making pilgrimages. He was a friend of **Sundarer**, and died simultaneously with him as may be inferred from the fable of their repairing to _Kailāsam_ together and remaining there in a state of beatification. He composed three poems in honour of _Siva_, namely, the _Mummani-kōvei_ (மும்மணிக்கோவை), _Kailāsavulā_ (கைலாசவுலா), and _Ponvannatandādi_ (பொன்வண்ணத்தந்தாதி) and they are still in much repute.
 
-## Deivasihāmani Pillei. --- [TAMIL].
+## Deivasihāmani Pillei. --- தெய்வசிகாமணிப்பிள்ளை.
 
-Deivasihāmani Pillei, was head _Sirashtadar_ of the Hussoor Kutcherry at Calicut. He was born of a _Velāla_ family at _Dindigal_, in the Carnatic, on the 10th of April, CE 1804, and his father **Anthonimuttu Ubadesi**, a Christian, took every care to secure him a sound religious education. He had from his early years a predilection for poetry, which he afterwards cultivated with great success. In 1842 he composed two beautiful poems in praise of our Lord, respectively entitled _Inbamanimalei_ ([TAMIL]), and _Stotrokummi_ ([TAMIL]), and they were both inserted in the _Rising Sun_, a monthly Tamil periodical then edited at Colombo by ourselves. His poetical career was however not very long, for it was cut short by death on the 30th of November 1846.
+Deivasihāmani Pillei, was head _Sirashtadar_ of the Hussoor Kutcherry at Calicut. He was born of a _Velāla_ family at _Dindigal_, in the Carnatic, on the 10th of April, CE 1804, and his father **Anthonimuttu Ubadesi**, a Christian, took every care to secure him a sound religious education. He had from his early years a predilection for poetry, which he afterwards cultivated with great success. In 1842 he composed two beautiful poems in praise of our Lord, respectively entitled _Inbamanimalei_ (இன்பமணிமாலை), and _Stōtrokummi_ (ஸ்தோத்திரக்கும்மி), and they were both inserted in the _Rising Sun_, a monthly Tamil periodical then edited at Colombo by ourselves. His poetical career was however not very long, for it was cut short by death on the 30th of November 1846.
 
-## Ellappa Nāvaler. --- [TAMIL].
+## Ellappa Nāvaler. --- எல்லப்பநாவலர்.
 
-Ellappa Nāvaler was well versed in the Sanskrit and Tamil languages, and well read in the classics of both. His poetry was distinguished by superior excellence, as his imitation of **Vyāsā's** _Arunāchala Mahātmya_ (the legends of the _Saiva_ shrine at Trinomali in Tamil, under the title of _Arunāchala Purānam_ ([TAMIL]), manifestly proves. This work comprises 586 stanzas, arranged in twelve cantos, and it has obtained an unusually wide circulation amongst the _Saivas_. We quote the following three stanzas from the fifth canto ([TAMIL]), as a specimen, and which accounts for _Siva_ being represented as androgynous, or half man and half woman:---
+Ellappa Nāvaler was well versed in the Sanskrit and Tamil languages, and well read in the classics of both. His poetry was distinguished by superior excellence, as his imitation of **Vyāsā's** _Arunāchala Mahātmya_ (the legends of the _Saiva_ shrine at Trinomali in Tamil, under the title of _Arunāchala Purānam_ (அருணாசலபுராணம்), manifestly proves. This work comprises 586 stanzas, arranged in twelve cantos, and it has obtained an unusually wide circulation amongst the _Saivas_. We quote the following three stanzas from the fifth canto (பாகம்பெற்றசருக்கம்), as a specimen, and which accounts for _Siva_ being represented as androgynous, or half man and half woman:---
 
-[TAMIL].
+பிறப்‌பிலாமுதன்மறையெலாமளவிடாப்பெரியோ  
+னிறப்‌பிலாவிறைவிடையின்மேலினிதெழுந்தருள  
+வறத்தினாயகியடிபணிந்திறைஞ்சினளனைத்துந்  
+துறக்குமண்ணலுமவளுடனிவையிவைசொல்லும்‌.
+
+பெண்ணுமாணுமாயுலகுயிர்ப்பொருளெலாம்பிரித்தோ  
+மண்ணிதாகிய பீடமுமிலிங்கமுமானோ  
+மெண்ணுநீயெனநாமெனவிரண்டிலைமரமு  
+முண்ணிலாவிய வயிரமுநிகர்த்துடனுறைவோம்‌.
+
+அங்கம்யாவுநம்பொருட்டுவிட்டிமையவெற்படைந்தா  
+யிங்குநாமுனக்கொருபுறமளிப்பதேயியற்கை  
+மங்கையேநமதிடப்புறத்துறையெனமகிழ்வுற்‌  
+றங்கையாலணைத்தருளினனுருகியொன்றானார்‌.
 
 _When the Eternal, who is beyond the compass of the various Vedas manifested himself riding on the bull, the virtuous (Pārvati) casting herself at his feet, adored him: thereupon he addressed her thus; Come, O Pārvati! I and thou becoming male and female produced all the living beings in the world, we became the Yoni and the Linga, there is no difference between us as I and thou; let us then be united together as the tree and the core._
 
 _Having quitted the whole of thy body for my sake thou hast betaken thyself to the mountain Imaus; hence it is proper that I should yield to thee one half of my body. O Damsel! take thy place with me on my left. So saying he embraced her with his arms, and then their bodies melted and became united together._
 
-## Erichalūr Malādanār. --- [TAMIL].
+## Erichalūr Malādanār. --- எருச்சலூர்மலாடனார்.
 
 Erichalūr Malādanār was a native of _Erichalūr_, and one of the forty-nine professors of the Madura College. His personal history like that of his colleagues has been lost, and the only relic of his poetical compositions is the following impromptu on the _Kural_, which merely enumerates the divisions and subdivisions of that work.
 
-[TAMIL].
+பாயிரநான்கில்லறமிருபான்பன்மூன்றே  
+தூயதுறவறமொன்றூழாக --- வாய  
+வறத்துப்பானால்வகையாவாய்ந்துரைத்தார்நூலின்‌  
+றிறத்துப்பால்‌வள்‌ளுவனார்தேர்‌ந்து.
 
-## Ganapati Aiyer. --- [TAMIL].
+## Ganapati Aiyer. --- கணபதி ஐயர்.
 
-Ganapati Aiyer was a _Brāhman_ of _Batticotta_ in Jaffna, who enjoyed the reputation both of a poet and physician. The date of his birth is not known; but he died in CE 1803. He is chiefly known as the author of two dramas, the _Alankārarūpa Nādakam_ ([TAMIL]), and the _Vālabīma Nādakam_ ([TAMIL]), which have gained much popularity and are often acted.
+Ganapati Aiyer was a _Brāhman_ of _Batticotta_ in Jaffna, who enjoyed the reputation both of a poet and physician. The date of his birth is not known; but he died in CE 1803. He is chiefly known as the author of two dramas, the _Alankārarūpa Nādakam_ (அலங்காரரூபநாடகம்), and the _Vālabīma Nādakam_ (வாளபீமநாடகம்), which have gained much popularity and are often acted.
 
-## Gnāna Kūtur. --- [TAMIL].
+## Gnāna Kūtur. --- ஞானக்கூத்தர்.
 
-Gnāna Kūtur was a _Saiva_ ascetic and poet, who lived at _Sivenpakam_, in the Carnatic; but of whose personal history scarcely any thing is known. He is however remembered as the author of the _Vriddhāchala Purānam_ ([TAMIL]), a poem consisting of 435 stanzas, arranged in eighteen cantos, and recounting the legends of the _Saiva_ shrine on the Vriddhāchala Hill, in the Carnatic.
+Gnāna Kūtur was a _Saiva_ ascetic and poet, who lived at _Sivenpakam_, in the Carnatic; but of whose personal history scarcely any thing is known. He is however remembered as the author of the _Vriddhāchala Purānam_ (விருத்தாசலப்புராணம்), a poem consisting of 435 stanzas, arranged in eighteen cantos, and recounting the legends of the _Saiva_ shrine on the Vriddhāchala Hill, in the Carnatic.
 
-## Gnānaprakāsa Desiker. --- [TAMIL].
+## Gnānaprakāsa Dēsiker. --- ஞானப்பிரகாசதேசிகர்.
 
 Gnānaprakāsa Desiker was a native of _Tinnevelly_, in Jaffna. Having gone over to Southern India in his early youth, and perfected himself there in the knowledge of the Tamil Grammar and Classics, under the tuition of several Pundits, he repaired to the Gauda country for the purpose of studying Sanskrit, in order to read the _Saiva Agamas_ in their original; but the _Brāhmans_ of Gauda objected to it on the ground that he being a _Sūdra_ could not have access to those sacred books. One of them however, who was more liberal minded than the rest, perceiving the acuteness of his intellect, received him as his pupil, and in the course of a few years made him an able Sanskrit scholar. He afterwards returned to Southern India, and having been invested with the office of _Tambirān_, established himself at Trinomali, and composed several works in Sanskrit for the use of the members of the _Matam_ at that place. Whilst he was thus employed at Trinomali, having heard some through envy remark that he was clever only in Sanskrit and not in Tamil, he wrote in Tamil a learned Commentary on the _Sivagnāna Sittiyar_ which is now in great repute wherever the _Saiva_ religion prevails.
 
-## Gunavira Panditer. --- [TAMIL].
+## Gunavīra Panditer. --- குணவீரபண்டிதர்.
 
-This poet was a native of _Kalendai_, a town near Chingleput, and he attracted much notice in his day. He is known as the author of two treatises on the art of poetry, one of which styled _Neminādam_ ([TAMIL]), consists of 96 stanzas, and the other styled _Venbāpāttiyel_ ([TAMIL]), consists of 100 stanzas. The last work is stated to have been composed under the patronage of **Vachchanandimuni**, an eminent ascetic, in the time of the king **Tribhuvana Deva**, perhaps the same with **Tribhuvana-malla**, who reigned at Anumakonda in the eleventh century of the Christian era.*
+This poet was a native of _Kalendai_, a town near Chingleput, and he attracted much notice in his day. He is known as the author of two treatises on the art of poetry, one of which styled _Neminādam_ (நேமிநாதம்), consists of 96 stanzas, and the other styled _Venbāpāttiyel_ (வெண்பாப்பாட்டியல்), consists of 100 stanzas. The last work is stated to have been composed under the patronage of **Vachchanandimuni**, an eminent ascetic, in the time of the king **Tribhuvana Deva**, perhaps the same with **Tribhuvana-malla**, who reigned at Anumakonda in the eleventh century of the Christian era.*
 
 *) Madras Journal of Literature and Science, vol. 10. p. 20.
 
-## Gurupādadāsen. --- [TAMIL].
+## Gurupādadāsen. --- குருபாததாசன்.
 
-Nothing more is known of this poet than that he was the author of a poem, entitled _Kumaresa Satagam_ ([TAMIL]), comprising a centum of stanzas on moral and social duties, and which has obtained great popularity. Each stanza in this work ends with an eulogistic address to _Kumaresa_, the form of _Skanda_ worshipped at Tiruppulvaiyal, and we subjoin one of them as a specimen.
+Nothing more is known of this poet than that he was the author of a poem, entitled _Kumaresa Satagam_ (குமரேசசதகம்), comprising a centum of stanzas on moral and social duties, and which has obtained great popularity. Each stanza in this work ends with an eulogistic address to _Kumaresa_, the form of _Skanda_ worshipped at Tiruppulvaiyal, and we subjoin one of them as a specimen.
 
 [TAMIL].
 
