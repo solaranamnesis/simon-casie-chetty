@@ -462,43 +462,53 @@ This poet was a native of _Kalendai_, a town near Chingleput, and he attracted m
 
 Nothing more is known of this poet than that he was the author of a poem, entitled _Kumaresa Satagam_ (குமரேசசதகம்), comprising a centum of stanzas on moral and social duties, and which has obtained great popularity. Each stanza in this work ends with an eulogistic address to _Kumaresa_, the form of _Skanda_ worshipped at Tiruppulvaiyal, and we subjoin one of them as a specimen.
 
-[TAMIL].
+தங்கமானது தழலினின்றுருகிமறுகினுந் தன்னொளிமழுங்கிடாது --- சந்தனக்குறடுதான்‌ மெலிந்துதேய்ந்தாலுமோ தன்மணங்குன்றிடாது --- பொங்கமிகுசங்குசெந்தழலில்வெந்தாலுமோ பொலிவெண்மைகுறைவுறாது --- போதவேகாய்ந்துநன்பால்குறுகினாலும்‌ பொருந்துசுவைபோய்விடாது --- துங்கமணிசாணையிற்றேய்ந்துவிட்டாலுந் துலங்குகுணமொளியாதுபின்‌ --- தொன்மைதருபெரியோர்‌ மடிந்தாலுமவர்களது தூயநிறைதவறாகுமோ --- மங்களகல்யாணிகுற மங்கைசுரகுஞ்சரியை மருவுதிண்புயவரசனே --- மயிலேறிவிளையாடு குகனேபுல்வயனீடு மலைமேவுகுமரேசனே.
 
 _As gold though melted in the fire, yet will not lose its lustre; the sandal-wood though worn out, yet will not lose its fragrance; the chank though burnt, yet will not lose its whiteness; the milk though diminished in quantity by being boiled, yet will not lose its flavour; and the gem though ground, yet will not lose its brilliancy; so great men though impoverished, yet will not lose their magnanimity; O Kumaresa! the strong-shouldered king, who wedded the Kurava female and riding on the peacock, sports on the hill at Pulvaiyel._
 
-## Ideikāder. --- [TAMIL].
+## Ideikāder. --- இடைக்காடர்.
 
 Ideikāder, so named after _Ideikazhi-nādu_, the land of his nativity, was a poet from his earliest youth. Having heard that **Kulesa Pāndiyen**, who then reigned at Madura, added to the title of a king the still more enduring distinction of a poet, and had a seat on the College bench, Ideikāder sought to secure his patronage by composing a panegyric on him, and reciting it in his presence; but the king took no notice of it. Stung to the quick at the neglect, he retired to a temple at Vada Madura, whither **Kapiler**, and the rest of the professors of the College, who did not approve of the king's conduct, followed him. The king on receiving this intelligence went to Vada Madura, and by much entreaty prevailed on him, and the professors to return to the College and having heard his poem again recited, honoured him by the gift of an elephant, and a horse, and by the donation of lands and gold. Satisfied with this he took leave of the king, and returned to his country. He again went to Madura to be present when his friend **Tiruvalluver** submitted the _Kural_ to the judgment of the College bench. After having heard the forty-nine professors each recite a stanza in praise of the _Kural_, he expressed his own opinion of the merits of that work in the following distich:---
 
-[TAMIL].
+கடுகைத்துளைத்தேழ்கடலைப்புகட்டிக்  
+குறுகத்தறித்தகுறள்.
 
 _The Kural contains much in a little compass. Such is the ingenuity of its author, that he has compressed within its narrow limits all the branches of knowledge; as if he had hollowed a mustard seed, and inclosed all the waters of the seven seas in it._
 
 When the professors found that **Tiruvalluver** had readily answered the many puzzling questions which they proposed to him, they attempted to try Ideikāder. He improvised the following stanza which they could not understand, and hence remained silent:---
 
-[TAMIL].
+ஆற்றங்கரையினருகிருந்தமாமரத்திற்  
+காக்கையிருந்து ௧ஃகஃகெனக் --- காக்கைதனை  
+யெய்யக்கோலில்லாமலிச்சிச்செனவெய்தான்‌  
+வையக்கோனார்தன்மகன்‌.
 
-Of Ideikāder's works we have not met with any; but we find a grammatical treatise of his, under the title of _Oosimuri_ ([TAMIL]), quoted by **Gunasāgarer**, the Commentator of the _Kārigai_.
+Of Ideikāder's works we have not met with any; but we find a grammatical treatise of his, under the title of _Oosimuri_ (ஊசிமுரி), quoted by **Gunasāgarer**, the Commentator of the _Kārigai_.
 
-## Ilāvettanār. --- [TAMIL].
+## Ilavēttanār. --- இளவேட்டனார்.
 
 This poet was one of the forty-nine professors of the Madura College. All that is known of his personal history is, that he was a native of Madura, and belonged to the caste of _Aruvei-vānigars_, or linen-drapers. The following is the impromptu which he uttered in approval of the _Kural_:
 
-[TAMIL].
+இன்பமுந் துன்பமுமென்னுமிவையிரண்டு  
+மன்பதைக்கெல்லாமனமகிழ வன்பொழியா  
+துள்ளியுணரவுரைத்தாரேயோதுசீர்‌  
+வள்ளுவர்வாயுறைவாழ்த்து.
 
 _Pleasure and pain are two different things (one constituting the whole of positive happiness and the other the whole of misery), and Valluver is to be praised for teaching all mankind in his Kural the means of securing the one, and avoiding the other._
 
-## Inbakavi. --- [TAMIL].
+## Inbakavi. --- இன்பகவி.
 
 Inbakavi was a native of _Manapar_, in the Tinnevelly District, and born of parents of the _Parava_ caste. His Christian name was **Xavier Henric Leām**. The juvenile productions of his muse, although not of the highest order, were nevertheless sufficient to secure him the patronage of **Don Gabriel Vaz Gomez**, the _Parava_ Chieftain of Tutikorin. Going once on a visit to the Raja of Ettiapore, the ambition of the poet was checked when he found that he had to stand, whilst the _Samprati_ or minister enjoyed a seat in the Raja's presence; but an impromptu stanza in which he praised the Raja, and respectfully claimed a seat, soon procured him the desired privilege, and also many presents. We subjoin the above mentioned stanza, and attempt to give an English translation of it, which we are sorry to say being stript of the melody and linked-sweetness of the original, appears but too trite in a foreign language.
 
-[TAMIL].
+கங்கைகுலத்திற்‌ கனகமணியாயுதித்த  
+சங்‌கரக்குமார தயாநிதியே --- உங்களுடை  
+சம்பிரதிக்கந்தவிடந் தங்களுக்குமிந்தவிட  
+மின்பகவிக்கெங்கேயிடம்‌.
 
 _O Shankara Kumāra, the bountiful, who has sprung up like a resplendent gem from the race of Ganga! That seat is for the Samprati, and this seat is for thee, but where is the seat for Inbakavi?_
 
 Finding so much success attend him in his native District, Inbakāvi resolved to visit the neighbouring Districts, and obtain rewards by singing the praises of the high personages there. He was well received wherever he went, and especially in Tanjore, where **Tattogee**, the minister of the king **Surfogee**, treated him with marked distinction by presenting him with a palanquin. He had been long while on his peregrination, when a severe attack of illness which threatened his life, obliged him to return to Tutikorin. On his presenting himself before the _Parava_ chieftain, and being asked where he had been so long absent, he answered in the following impromptu: 
 
-[TAMIL].
+பிலத்ததொருவானவரை முனிவரரையுலகிலுள்ளபெரியோர்தம்‌மை --- யழைத்துவிடுமெமராசன்‌ முன்சென்றேனெனையும்பார்த்தெவர்காணென்றான்‌ --- தலத்திலுயர்‌ பரதசாதித்தலைவமோர்‌ வாசல்வித்வானென்றேன்‌ --- மலைத்தவனு முனதுநகர்க்கேகுமென்றான்‌ யானுமிதோ வந்திட்டேனே.
 
 _Having appeared before Yama (the king of death), who summons before his presence the mighty celestials as well as the sages and magnates of this world, he asked me who I was, and I replied that I was the poet employed at the Gate of the eminent Parava Chieftain, and he thereupon was perplexed, and bade me go back to thy city, and behold I am here!_
 
@@ -511,11 +521,14 @@ _My soul invokes the heavenly Muse._
 
 We give a very well authenticated anecdote of Inbakavi, which will prove that he was not to be taken advantage of even in his weakest moments. A poet at Jaffna happening to meet Inbakavi when in a state of inebriety, in the house of Mr. **Philip Rodrigo Muttukishna**, the Kutcherry Mudeliar, tried to ascertain whether the powers of mind, or the strength of alcohol predominated in him. He asked Imbakavi to improvise a stanza, which should begin with the word _mai_ (black paint), and end with the word _maiyir_ (hair). Inbakavi hesitated not a moment, but surprised the rival poet with the following beautiful lines:---
 
-[TAMIL].
+மையினமோகார்மணலோவண்டினமோ கொண்டலதோ  
+சைவலமோயாதெனநான்‌ சாற்றுவேன்‌ --- மையலுறு  
+கங்கைகுலமாலாபிறகாமுகில்‌ மேலாசைகொண்ட  
+மங்கையிவள்‌கொண்டைமயிர்.
 
 _To what shall I liken the colour of the hair of the condé of the damsel, who is enamoured of the noble Abraham* of the race of Ganga? Shall I liken it to the black paint, or to the black sand, or to the black beetle, or to the black cloud, or to the black moss?_
 
-Before he quitted Jaffna he wrote a drama, called _Kuravanji_ ([TAMIL]), in honour of the Kutcherry Mudeliar, which elicited general admiration for its musical cadence, and its vivid colouring and imagery. This was his only composition of any bulk; but he has left several very singularly beautiful stray pieces, which he addressed to his different benefactors. One day when he was drunk, and attending the feast in the Hindu temple at Nellore as a spectator, he hymned the praises of _Skanda_ in an ode with the chorus ([TAMIL]), "_Skanda of Nellore has mounted his vehicle, the peacock, yea he has mounted his vehicle, the peacock_," but in his sober moments feeling compunction for it, he instantly composed another ode commemorating the crucifixion of our Lord, the chorus of which is as follows:--- ([TAMIL]) "_Lord Jesus has enthroned himself, yea he has enthroned himself on the Cross._"
+Before he quitted Jaffna he wrote a drama, called _Kuravanji_ (குறவஞ்சி), in honour of the Kutcherry Mudeliar, which elicited general admiration for its musical cadence, and its vivid colouring and imagery. This was his only composition of any bulk; but he has left several very singularly beautiful stray pieces, which he addressed to his different benefactors. One day when he was drunk, and attending the feast in the Hindu temple at Nellore as a spectator, he hymned the praises of _Skanda_ in an ode with the chorus ([TAMIL]), "_Skanda of Nellore has mounted his vehicle, the peacock, yea he has mounted his vehicle, the peacock_," but in his sober moments feeling compunction for it, he instantly composed another ode commemorating the crucifixion of our Lord, the chorus of which is as follows:--- ([TAMIL]) "_Lord Jesus has enthroned himself, yea he has enthroned himself on the Cross._"
 
 A supplicatory stanza of Inbakavi, addressed to our Lord in imitation of the one addressed to _Siva_ by **Tāyumānaver**,* is too good to be omitted, and we therefore give it below with an English paraphrase.
 
