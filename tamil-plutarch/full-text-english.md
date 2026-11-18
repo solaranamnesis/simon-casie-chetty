@@ -582,7 +582,14 @@ _Thy younger brother (Skanda) is a stealer of maidens, and that vile Māyen (Vis
 
 Neither the place, nor the date of the Iretteiyer's death is known, but a tradition would have it that they both died simultaneously. The Rev. Mr. **Taylor** in the 2d volume of his Oriental Historical Manuscripts, Appendix, D., quotes the following stanza in praise of **Prākrama Pandiyen**, as the production of the two brothers, and the reader will find that we have adopted his translation, with a few alterations in order to make it approximate to the original:---
 
-[TAMIL].
+குறுமுனிவன்கொல்லியிலோ தமிழ்ப்பிறந்ததம்மானே  
+ஒப்பரியதிருவிளையாட்டுறையூரோவம்மானே  
+திருநெடுமாலவதாரஞ்‌ சிறுபுலியோவம்மானே  
+சிவன்முடிமேலணிவதுவுஞ்‌ செங்கதிரோவம்மானே  
+கரையழிந்தகாவிரியோ வுரைதெரிந்ததம்மானே  
+கடிப்பகைக்குவேம்போ கடுக்கையோவம்மானே  
+பரவைபடிந்ததுஞ்சோழன்‌ பதந்தனிலோவம்மானே  
+பராக்கிரமபாண்டியன்புகழைப்‌ பகரெளிதோவம்மானே
 
 _O Lady! Was it from the mount Kolli the dwarfish sage (Agastiyer) produced the Tamil language?_ (_No, from the Pothiya in the Pāndiya country._)
 
@@ -602,21 +609,24 @@ _O Lady! Is it then a light thing to declare the praise of Prākrama Pāndiyen?_
 
 N. B. The answers within brackets are our own, placed for the purpose of rendering the sense of the questions intelligible. It would appear that the poets praise _Pāndiya_, at the expense of _Chola_, by reminding that the latter cannot glory in such things as the former can.
 
-## Kachiyapper. --- [TAMIL].
+## Kachiyapper. --- கச்சியப்பர்.
 
-Kachiyapper was a _Brāhman_ of the _Adi Saiva_ sect, who officiated in the temple of _Ekāmbeswara_ at Kanjipuram, in the Carnatic. He was no less conspicuous as a poet than as a _Vedāntist_, as is evident from the poetical talents which he has displayed in his imitation of the _Sankara Sanhita_ of the _Skanda Purāna_ in Tamil, under the title of _Kandapūranam_ ([TAMIL]), comprising 13,305 stanzas in six books. He undertook this work upon the request of certain illustrious personages at Kānjipuram, and finished it, according to the date specified in the following stanza prefixed to **Parasirāma Mudeliar's Kandapurāna Vāsakam**, in the _Saka_ year 700, corresponding with CE 778.
+Kachiyapper was a _Brāhman_ of the _Adi Saiva_ sect, who officiated in the temple of _Ekāmbeswara_ at Kanjipuram, in the Carnatic. He was no less conspicuous as a poet than as a _Vedāntist_, as is evident from the poetical talents which he has displayed in his imitation of the _Sankara Sanhita_ of the _Skanda Purāna_ in Tamil, under the title of _Kandapūranam_ (கந்தப்புராணம்), comprising 13,305 stanzas in six books. He undertook this work upon the request of certain illustrious personages at Kānjipuram, and finished it, according to the date specified in the following stanza prefixed to **Parasirāma Mudeliar's Kandapurāna Vāsakam**, in the _Saka_ year 700, corresponding with CE 778.
 
-[TAMIL].
+வேதவேதாந்தமாகமத்தருமநூலதாம்‌ விரிந்திடுபுராணம்‌  
+போதமார்முனிவரிசைத்திடுபுராணமிருதிகள்சங்கிதைப்பொருந்து  
+நாதமார்சடங்கஞ்‌ சிப்பிகள்பிறவு நன்குணர்கச்சிமாமுனிவ  
+னேதமில்சகாத்த மேழெனுநூறிற்‌ காந்தத்தைத் தமிழினாலிசைத்தான்‌.
 
 The _Saivas_, especially in Jaffna, consider it as one of their most sacred works next to the _Vedas_, and regularly recite it in their temples once a year with great solemnity.
 
-## Kadigaimuttu Pulaver. --- [TAMIL].
+## Kadigaimuttu Pulaver. --- கடிகைமுத்துப்புலவர்.
 
-Kadigaimuttu Pulaver was a celebrated poet retained at the court of **Jagavīrarāma Venkateswara Ettappa Nāyaker**, Rāja of Ettiāpuram, of which place he was a native. Of his compositions the _Sāmudra Vilāsam_ ([TAMIL]), a panegyric in 100 stanzas, is deservedly esteemed for its elegant style. It is inscribed to the Rāja himself, between whom and the ocean many curious similes are drawn with an ingenuity scarcely surpassed. The _Dikvijayam_ ([TAMIL]), another panegyric, consisting of 325 stanzas, has also much merit, and redounds to his credit. The hero of this poem is **Varagunarāma Vanniyanar**, Rāja of Sivāgiri, the pomp and splendour of whose court, and his bravery and successful forays the author describes in the most enthusiastic strains.
+Kadigaimuttu Pulaver was a celebrated poet retained at the court of **Jagavīrarāma Venkateswara Ettappa Nāyaker**, Rāja of Ettiāpuram, of which place he was a native. Of his compositions the _Sāmudra Vilāsam_ (சமுத்திரவிலாசம்), a panegyric in 100 stanzas, is deservedly esteemed for its elegant style. It is inscribed to the Rāja himself, between whom and the ocean many curious similes are drawn with an ingenuity scarcely surpassed. The _Dikvijayam_ (திக்குவிசயம்), another panegyric, consisting of 325 stanzas, has also much merit, and redounds to his credit. The hero of this poem is **Varagunarāma Vanniyanar**, Rāja of Sivāgiri, the pomp and splendour of whose court, and his bravery and successful forays the author describes in the most enthusiastic strains.
 
-## Kallāder. --- [TAMIL].
+## Kallāder. --- கல்லாடர்.
 
-This poet was one of the forty-nine professors of the Madura College, and like many of the learned men of his time, he lived and died an ascetic. He appears to have devoted his attention chiefly to Grammar and Rhetoric, of the principles and rules of which two sciences he wrote a treatise, calling it after his own name _Kallādam_ ([TAMIL]). This work, however, is not now in general use, but it nevertheless deserves the encomium bestowed on it in the following stanza, which one of its admirers has prefixed to it:
+This poet was one of the forty-nine professors of the Madura College, and like many of the learned men of his time, he lived and died an ascetic. He appears to have devoted his attention chiefly to Grammar and Rhetoric, of the principles and rules of which two sciences he wrote a treatise, calling it after his own name _Kallādam_ (கல்லாடம்). This work, however, is not now in general use, but it nevertheless deserves the encomium bestowed on it in the following stanza, which one of its admirers has prefixed to it:
 
 [TAMIL].
 
