@@ -528,11 +528,11 @@ We give a very well authenticated anecdote of Inbakavi, which will prove that he
 
 _To what shall I liken the colour of the hair of the condé of the damsel, who is enamoured of the noble Abraham* of the race of Ganga? Shall I liken it to the black paint, or to the black sand, or to the black beetle, or to the black cloud, or to the black moss?_
 
-Before he quitted Jaffna he wrote a drama, called _Kuravanji_ (குறவஞ்சி), in honour of the Kutcherry Mudeliar, which elicited general admiration for its musical cadence, and its vivid colouring and imagery. This was his only composition of any bulk; but he has left several very singularly beautiful stray pieces, which he addressed to his different benefactors. One day when he was drunk, and attending the feast in the Hindu temple at Nellore as a spectator, he hymned the praises of _Skanda_ in an ode with the chorus ([TAMIL]), "_Skanda of Nellore has mounted his vehicle, the peacock, yea he has mounted his vehicle, the peacock_," but in his sober moments feeling compunction for it, he instantly composed another ode commemorating the crucifixion of our Lord, the chorus of which is as follows:--- ([TAMIL]) "_Lord Jesus has enthroned himself, yea he has enthroned himself on the Cross._"
+Before he quitted Jaffna he wrote a drama, called _Kuravanji_ (குறவஞ்சி), in honour of the Kutcherry Mudeliar, which elicited general admiration for its musical cadence, and its vivid colouring and imagery. This was his only composition of any bulk; but he has left several very singularly beautiful stray pieces, which he addressed to his different benefactors. One day when he was drunk, and attending the feast in the Hindu temple at Nellore as a spectator, he hymned the praises of _Skanda_ in an ode with the chorus (மயில்வாகனங்கொண்டாண்டிநல்லூர்க்கந்தன் மயில்வாகனங்கொண்டாண்டி), "_Skanda of Nellore has mounted his vehicle, the peacock, yea he has mounted his vehicle, the peacock_," but in his sober moments feeling compunction for it, he instantly composed another ode commemorating the crucifixion of our Lord, the chorus of which is as follows:--- (பத்திராசனங்கொண்டாரேயேசுநாயகர் சிலுவைப்பத்திராசனங்கொண்டாரே) "_Lord Jesus has enthroned himself, yea he has enthroned himself on the Cross._"
 
 A supplicatory stanza of Inbakavi, addressed to our Lord in imitation of the one addressed to _Siva_ by **Tāyumānaver**,* is too good to be omitted, and we therefore give it below with an English paraphrase.
 
-[TAMIL].
+நாலாயிரஞ்சேனர்களேழப்பமுண்டுபசிநலிவுதீர்ந்திடவுமிலையோ --- நாரமதுரசபானமாகவிலையோதுஞ்சி நாலுநாளானமனுவுந் --- தாலமிசைமீண்டுமுயிராவிபெறவில்லையோ சட்டையின்விளிம்புதொட்ட --- தையல்பிணிநோய்வாதை தீரவிலையோபிரசண்டமுமடங்கவிலையோ --- வேலைகயல்வாயினிதிதோணவிலையோ மூகர்விண்டுமுரைபேசவிலையோ --- விழியூனர்நேத்திரந்தெளியவிலையோ பங்கர்விரைவாய்‌நடக்கவிலையோ --- சோலியாகியகவலையாலுழழுமேழைகை தூக்குவதுனக்கருமையோ --- துங்கர்பன்னிருவர்குல வம்சமாதீன்றருள்சுபுத்‌திரனாகியயேசுவே.
 
 _Have not four thousand persons satisfied their hunger with seven loaves? Was not water turned into wine, and the man who had been dead four days restored to life? Did not the woman, who touched the hem of thy garment, become cured of her disease, and the storm abate at thy word? Was not silver found in the mouth of the fish of the sea, and did not the dumb speak, the blind see, and the lame walk swiftly? Is it then hard for thee, Oh Jesus, the holy son whom the Virgin of Israel has brought forth! to help thy servant who is embroiled in trouble, and beset with many difficulties._
 
@@ -540,34 +540,43 @@ Inbakavi died at Manapar in the year 1835.
 
 *) The eldest son of the Kutcherry Mudeliar.
 
-*) Vide [TAMIL], p. 7. Madras Edition.
+*) Vide தாயுமான சுவாமி திருப்பாடற்றிரட்டு, p. 7. Madras Edition.
 
-## Ireiyenār --- [TAMIL].
+## Ireiyenār --- இறையனார்.
 
-This poet was one of the forty-nine professors of the Madura College. He appears to have been a prodigy of learning, and the Hindus therefore absurdly believe that he was _Siva_ himself, who in disguise mingling with the professors of the College, contributed to the improvement of the Tamil literature. A treatise on the composition of erotic poems with examples, under the title of _Ireiyenār Agapporul_ ([TAMIL]), is ascribed to his pen; and tradition has preserved the following impromptu which he uttered on the merits of the _Kural_:---
+This poet was one of the forty-nine professors of the Madura College. He appears to have been a prodigy of learning, and the Hindus therefore absurdly believe that he was _Siva_ himself, who in disguise mingling with the professors of the College, contributed to the improvement of the Tamil literature. A treatise on the composition of erotic poems with examples, under the title of _Ireiyenār Agapporul_ (இறையனார் அகப்பொருள்), is ascribed to his pen; and tradition has preserved the following impromptu which he uttered on the merits of the _Kural_:---
 
-[TAMIL].
+என்றும்புலராதியாணர்நாட்‌செல்லுகினு  
+நின்றலர்ந்துதேன்‌பிலிற்று நீர்மையதாய்க் --- குன்றாத  
+செந்தளிர்க்கற்பகத்தின்‌ றெய்வத்திருமலர்போன்‌  
+மன்புலவன்வள்ளுவன்வாய்ச்சொல்‌.
 
 _The Kural which has proceeded from the mouth of Valluver, the king of poets, will never lose its beauty by the lapse of time; it will be always in its bloom, shedding honey (of instruction) like the flower of the tree in Indras paradise._
 
-## Iretteiyer. --- [TAMIL].
+## Iretteiyer. --- இரட்டையர்.
 
 Two poets who were twin brothers, and who acquired great renown by their facility in extempore versification, during the reign of **Prākrama Pāndiyen** in the fourteenth century of the Christian era. From their birth they suffered under great physical disadvantage, the elder being a cripple, and the younger blind. They depended for their subsistence solely on their powers of improvising verses, and when they went out for this purpose, the younger used to carry on his shoulders the elder, who led him in his way. Linked together by birth and misfortune, there was one tie which even bound them still closer. In whatever they improvised, the younger uttered the first two lines of a stanza and the elder the last two. Many of their extemporaneous stanzas are still extant, of which we will select but two as specimens. Going once to the house of a wealthy man, named **Tiruvenkatesen**, who was distinguished for his generous disposition, he was about to give them some presents, but his elder brother dissuaded him from doing it. Upon which the younger Iretteiyer observed.
 
-[TAMIL].
+தேன்பொழியும்வாயான்திருவெங்கடேசனுட  
+னேன்பிறந்தானிந்தவினியான்காண்‌
 
 _Why was this unpleasant man born of the same parents with the honey-mouthed Tiruvenkatesen?_
 
 To which the elder Iretteiyer immediately replied thus:
 
-[TAMIL].
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;யான்சொலக்கேள்‌ ---  
+சீதேவியார்பிறந்த செய்யதிருப்பாற்கடலில்‌  
+மூதேவியேன்‌பிறந்தாள்‌முன்‌.
 
 _Hear me!_  
 _Was not Mūdevi (the Goddess of misfortune) born in the same milky sea before Sidevi (the Goddess of fortune)._
 
 On another occasion having lodged for a night in a _Pilleiyar's_ temple, they had taken the precaution to deposit under the altar the money, which they had earned during the day, wrapt in a cloth, and missing it the next morning, they railed against the god in the following stanza:
 
-[TAMIL].
+தம்பியோபெண்திருடி தாயாருடன்பிறந்த  
+வம்பனோநெய்திருடுமாமாயன்‌ --- அம்புவியில்‌  
+மூத்தபிள்ளையாரே முடிச்சவிழ்த்தீர்போமோ  
+கோத்திரத்திலுள்ளகுணம்‌.
 
 _Thy younger brother (Skanda) is a stealer of maidens, and that vile Māyen (Vishnu), who was born with thy mother, is a stealer of butter, and O Pilleiyār (Ganesa)! thou hast now stolen the money which was wrapt in the cloth. Will the natural disposition of the family be ever changed._
 
