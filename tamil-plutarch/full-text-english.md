@@ -728,35 +728,41 @@ Kapiler was one of the forty-nine professors of the Madura College. He was the b
 
 Kapiler was present in the Madura College when his brother's _Kural_ was recited, and he conveyed his opinion of the merits of that work in the following impromptu:---
 
-[TAMIL].
+தினையளவுபோதாச்சிறுபுன்னீர்நீண்ட  
+பனையளவுகாட்டும்படித்தான் --- மனையளகு  
+வள்ளைக்குறங்கும்‌ வளநாடவள்ளுவனார்  
+வெள்ளைக்குறட்பாவிரி.
 
 _O king of the fertile country where the birds reared in houses are lulled by the women's chants! Valluver's Kural is short in words but extensive in sense, even as in a drop of water on the blade of the Tinei (millet) might be seen reflected the image of the tall Panei (Palmyra tree)._
 
-## Karunaipprakāsa Desiker. --- [TAMIL].
+## Karunaipprakāsa Dēsiker. --- கருணைப்பிறகாசதேசிகர்.
 
-Karunaipprakāsa Desiker was the youngest son of **Kumāraswāmi Pandāram** of Kanjipuram, and was like him a staunch adherent of the _Vira Saiva_ sect. Having studied under **Velliambala Tambirān**, the head ascetic of the _Matam_ at Sindupunturei, in Tinnevelly, and who was distinguished for his extensive erudition, he became a poet of the first order; but before he could fully display his poetical talents, he was hurried away to a premature grave in the eighteenth year of his age. He wrote a panegyric, under the title of _Ishtalinga Agavel_ ([TAMIL]) on the _Phallic_ emblem, which the _Vira Saivas_ wear, and afterwards began to write an epic poem, called _Kālatti Purānam_ ([TAMIL]), treating of the legends of the _Saiva_ shrine on the mountain _Kālahasti_, in the Carnatic; but his death prevented him from finishing it.
+Karunaipprakāsa Desiker was the youngest son of **Kumāraswāmi Pandāram** of Kanjipuram, and was like him a staunch adherent of the _Vira Saiva_ sect. Having studied under **Velliambala Tambirān**, the head ascetic of the _Matam_ at Sindupunturei, in Tinnevelly, and who was distinguished for his extensive erudition, he became a poet of the first order; but before he could fully display his poetical talents, he was hurried away to a premature grave in the eighteenth year of his age. He wrote a panegyric, under the title of _Ishtalinga Agavel_ (இஷடலிங்கவகவல்) on the _Phallic_ emblem, which the _Vira Saivas_ wear, and afterwards began to write an epic poem, called _Kālatti Purānam_ (காளத்திப்புராணம்), treating of the legends of the _Saiva_ shrine on the mountain _Kālahasti_, in the Carnatic; but his death prevented him from finishing it.
 
-## Kavirāja Pandīter. --- [TAMIL].
+## Kavirāja Pandīter. --- கவிராசபண்டிதர்.
 
 Kavirāja Pandīter was a native of _Vīrei_, in the Carnatic, but nothing is known concerning his life, and the time in which he lived. He is chiefly remembered as the author of a poem, entitled _Saundariyalaghiri_ (செளந்தரியலகரி), consisting of 104 stanzas, and which is highly esteemed by the _Saktyas_ on account of its extolling the greatness of _Pārvati_, whom they worship as the mother of the worlds. So far as regards its versification this poem has considerable merits; but the licentious metaphors with which it abounds, do not at all suit its pretensions as a religious work.
 
-## Kavuniyanār. --- [TAMIL].
+## Kavuniyanār. --- கவுணியனார்.
 
 The name of this poet occurs among the forty-nine professors of the Madura College. Excepting the fact that he was the author of the following impromptu in commendation of the _Kural_, we know nothing further about him:---
 
-[TAMIL].
+சிந்தைக்கினிய செவிக்கினிய வாய்க்கினிய  
+வந்தவிருவினைக்கு மாமருந்து --- முந்திய  
+நன்னெறிநாமறிய நாம்புலமைவள்ளுவனார்  
+பன்னியவின்குறள்வெண்பா.
 
 _The short Distichs which the learned poet Valluver has composed in order that we may know the ancient right way are sweet to the mind to meditate on, sweet to the ear to hear, and sweet to the mouth to repeat; and they moreover form a sovereign medicine to promote good and prevent evil actions._
 
-## Kādaver Kon. --- [TAMIL].
+## Kādaver Kōn. --- காடவர்கோன்.
 
 This poet was one of the kings of the _Pallava_ dynasty, who reigned at Kanjipuram in former times, and he also figures among the sixty-three special votaries of _Siva_, whose legends constitute the subject of the _Tirutonder Purānam_. It is said that after a short reign he abdicated the throne in favour of his son, and passed the remainder of his life in devotional exercises. He wrote a panegyrical stanza on each of the _Saiva_ shrines in Southern India, but they are rarely met with at present.
 
-## Kākaipādiniyanār. --- [TAMIL].
+## Kākaipādiniyanār. --- காக்கைப்பாடினியனார்.
 
-This poet was one of the disciples of **Agastiyer**, and he appears to have been as learned as his fellow student **Tolkāppiyanār**. No other particulars concerning his life are known, and it is impossible to ascertain them at this distance of time. He wrote a treatise on grammar, called _Kākeipādiniyam_ ([TAMIL]), after his own name, and this has been cited by subsequent writers on the subject, as a standard authority.
+This poet was one of the disciples of **Agastiyer**, and he appears to have been as learned as his fellow student **Tolkāppiyanār**. No other particulars concerning his life are known, and it is impossible to ascertain them at this distance of time. He wrote a treatise on grammar, called _Kākeipādiniyam_ (காக்கைப்பாடினியம்), after his own name, and this has been cited by subsequent writers on the subject, as a standard authority.
 
-## Kālamegam. --- [TAMIL].
+## Kālamēgam. --- காளமேகம்.
 
 The time when this poet flourished is usually referred to the reign of **Tirumalarāyen** in the fifteenth century of the Christian era. His real name is not known. He obtained the sobriquet of _Kālamegam_, or the hail-pouring cloud, for the sharpness of his invectives against those who failed to reward his poetry. There is no doubt that he was possessed of superior talents, but his character has been tainted by a deplorable egotism, in proof of which we subjoin one of his poetical epistles to **Tirumalarāyen**, wherein he trumpets forth his own attainments, and defies all other poets.
 
