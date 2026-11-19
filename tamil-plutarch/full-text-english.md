@@ -628,37 +628,49 @@ Kadigaimuttu Pulaver was a celebrated poet retained at the court of **Jagavīrar
 
 This poet was one of the forty-nine professors of the Madura College, and like many of the learned men of his time, he lived and died an ascetic. He appears to have devoted his attention chiefly to Grammar and Rhetoric, of the principles and rules of which two sciences he wrote a treatise, calling it after his own name _Kallādam_ (கல்லாடம்). This work, however, is not now in general use, but it nevertheless deserves the encomium bestowed on it in the following stanza, which one of its admirers has prefixed to it:
 
-[TAMIL].
+கல்லாடர்செய்பனுவற்‌ கல்லாட நூறுநூல்‌  
+வல்லார்சங்கத்தில்‌ வதிந்தருளி --- சொல்லாயிம்‌  
+மாமதுரையீசர்‌ மனமுவந்துகேட்டுமுடி  
+தானசைத்தார்நூறுதரம்.
 
 _When Kallader's work the Kallādam, consisting of a hundred stanzas, was recited before the College of the learned, the Lord of Madura having heard it, was so much pleased that he nodded approbation a hundred times._
 
 Kallader was present when **Tiruvalluver** submitted the _Kural_ to the College bench, and we subjoin here the impromptu, which he is said to have uttered on the incomparable merits of that production.
 
-[TAMIL].
+ஒன்றேபொருளென்னின்‌ வேறென்பவேறென்னி  
+னன்றென்பவாறுசமயத்தார்‌ --- நன்றென்ன  
+வெப்பாலவருமியைபவேவள்ளுவனார்‌  
+முப்பான்மொழிந்தமொழி.
 
 _Of the six sects, one will condemn the system of the other, but none of them will condemn the system propounded by Valluver in his Kural; as it has the merit of harmonizing the suffrages of them all, so that each sect would admit it to be its own._
 
-## Kalattūr Kizhār. --- [TAMIL].
+## Kalattūr Kizhār. --- களத்தூர்க்கிழார்.
 
 This poet was a native of _Kalattūr_, a town near Madura, and he is numbered among the forty-nine professors of the Madura College. The only relic of his compositions is the following stanza on the _Kural_.
 
-[TAMIL].
+ஒருவரிருகுறளே முப்பாலினோதுந்  
+தருமமுதநான்குஞ்சாலு --- மருமறைக  
+ளைந்துஞ்சமயநூலாறுநம்வள்‌ளுவனார்‌  
+புந்திமொழிந்தபொருள்‌.
 
 _He who studies the two-lined verses in the three divisions of Valluver's Kural will obtain the four things (virtue, wealth, pleasure and eternal happiness); for they contain the substance of the five Vedas (including the Mahābhārat), and the six systems of the six sects._
 
-## Kamber. --- [TAMIL].
+## Kamber. --- கம்பர்.
 
-Kamber was the most eminent poet of his age. He was the son of a king of _Kambanādu_, a district in the Carnatic. His mother when pregnant of him was forced to flee in disguise in consequence of a rebellion, in which her husband was assassinated, and to take refuge in the house of an _Ochchen_* at _Tiruvalundūr_, where she gave him birth. Under the hospitable roof of the _Ochchen_ he remained until his seventh year, when a wealthy farmer of the name of **Sadeiyen**, who lived at _Vennei Nellūr_, having been informed of the circumstances of his case, invited him, and his mother over to his village, and placing them in a house, which he had prepared for them, supplied them with all necessaries. He also carefully watched over the studies of his protégé, whose superior genius developed itself even in his childhood. The young poet it is said would not compose a stanza for less than the reward of a hundred _pons_.* His fame reaching the ears of **Rājendra Chola**, that king invited him to _Ureiūr_, and appointed him as one of the poets of his court; conferring on him at the same time the title of _Kavi Chakravati_, or the king of poets. The _Ramāyana_ being in Sanscrit, Kamber, **Ottakūter**, and several others of the court poets, separately undertook to imitate it in Tamil. When their imitations were finished, they were recited in the presence of **Kulotunga Chola**, who had succeeded **Rājendra Chola** on the throne. This king preferred Kamber's imitation above the rest, being of opinion that it was not only sublime in style and sense, but that it approached nearest to the original. It was then by the king's order submitted to the judgment of the learned assembly of _Brāhmans_ at _Sirangam_, who, although they fully approved of the work, nevertheless strenuously objected to the praise bestowed by Kamber on his patron **Sadeiyen** in every hundredth stanza of the poem, and which he did upon the request of his mother.* They said that human praise should not be mixed up with the divine; but on his representing to them the necessity of his paying at least some tribute to his patron, they allowed him to confine his praises to every thousandth stanza. Overjoyed at the concession, he rose up in the midst of the assembly and said, "I considered my patron as one in a hundred, but this learned assembly has considered him as one in a thousand." The _Brāhmans_ admiring his wit bestowed on him the title of _Mahā-Kavi_, or the great poet, and he in return complimented them with a centum of verses, expressive of his veneration for _Sadagopa Azhwār_, one of the _Vaishnava_ saints. **Varaguna Pāndiyen**, the king of Madura, having heard of him about this time, invited him to his court. He there composed the _Sarasvati Antādi_ ([TAMIL]), a poem in thirty stanzas in praise of _Sarasvati_, the goddess of poetry, which obtained for him great honours, and munificent presents from that king. Kamber's _Rāmāyānam_ consists of 12,016 stanzas, arranged in five books; and a writer in the Calcutta Review says that it "may be compared to **Pope's** Iliad."* In one of the commendatory stanzas which is prefixed to the work the year of _Saka_ 808 (CE 886) is specified as the date of its publication by Kamber; but the Rev. Mr. **Caldwell**, the author of the Comparative Grammar of the Dravidian Languages, rejects this date as spurious from the evidence of certain inscriptions found at Cape Comorin, and in the old Chalukya country, according to which the Chola kings who patronized Kamber lived only in the eleventh century of the Christian era.
+Kamber was the most eminent poet of his age. He was the son of a king of _Kambanādu_, a district in the Carnatic. His mother when pregnant of him was forced to flee in disguise in consequence of a rebellion, in which her husband was assassinated, and to take refuge in the house of an _Ochchen_* at _Tiruvalundūr_, where she gave him birth. Under the hospitable roof of the _Ochchen_ he remained until his seventh year, when a wealthy farmer of the name of **Sadeiyen**, who lived at _Vennei Nellūr_, having been informed of the circumstances of his case, invited him, and his mother over to his village, and placing them in a house, which he had prepared for them, supplied them with all necessaries. He also carefully watched over the studies of his protégé, whose superior genius developed itself even in his childhood. The young poet it is said would not compose a stanza for less than the reward of a hundred _pons_.* His fame reaching the ears of **Rājendra Chola**, that king invited him to _Ureiūr_, and appointed him as one of the poets of his court; conferring on him at the same time the title of _Kavi Chakravati_, or the king of poets. The _Ramāyana_ being in Sanscrit, Kamber, **Ottakūter**, and several others of the court poets, separately undertook to imitate it in Tamil. When their imitations were finished, they were recited in the presence of **Kulotunga Chola**, who had succeeded **Rājendra Chola** on the throne. This king preferred Kamber's imitation above the rest, being of opinion that it was not only sublime in style and sense, but that it approached nearest to the original. It was then by the king's order submitted to the judgment of the learned assembly of _Brāhmans_ at _Sirangam_, who, although they fully approved of the work, nevertheless strenuously objected to the praise bestowed by Kamber on his patron **Sadeiyen** in every hundredth stanza of the poem, and which he did upon the request of his mother.* They said that human praise should not be mixed up with the divine; but on his representing to them the necessity of his paying at least some tribute to his patron, they allowed him to confine his praises to every thousandth stanza. Overjoyed at the concession, he rose up in the midst of the assembly and said, "I considered my patron as one in a hundred, but this learned assembly has considered him as one in a thousand." The _Brāhmans_ admiring his wit bestowed on him the title of _Mahā-Kavi_, or the great poet, and he in return complimented them with a centum of verses, expressive of his veneration for _Sadagopa Azhwār_, one of the _Vaishnava_ saints. **Varaguna Pāndiyen**, the king of Madura, having heard of him about this time, invited him to his court. He there composed the _Sarasvati Antādi_ (சரஸ்வதியந்தாதி), a poem in thirty stanzas in praise of _Sarasvati_, the goddess of poetry, which obtained for him great honours, and munificent presents from that king. Kamber's _Rāmāyānam_ consists of 12,016 stanzas, arranged in five books; and a writer in the Calcutta Review says that it "may be compared to **Pope's** Iliad."* In one of the commendatory stanzas which is prefixed to the work the year of _Saka_ 808 (CE 886) is specified as the date of its publication by Kamber; but the Rev. Mr. **Caldwell**, the author of the Comparative Grammar of the Dravidian Languages, rejects this date as spurious from the evidence of certain inscriptions found at Cape Comorin, and in the old Chalukya country, according to which the Chola kings who patronized Kamber lived only in the eleventh century of the Christian era.
 
 *) One of the _Kudi-makkels_ or village servants whose particular duty it is to offer sacrifice to the goddess _Pidāri_ for the villagers.
 
 *) A coin, valued at 3 s. 6 d. sterling.
 
-Other works ascribed to Kamber are the _Kānji Purānum_ ([TAMIL]), _Kānji Pilleitamil_ ([TAMIL]), _Chola Kuruvanji_ ([TAMIL]), _Silei Yezhupadu_ ([TAMIL]) and _Er-Yezhupadu_ ([TAMIL]). Of these however only the _Silei-Yezhupadu_, containing seventy stanzas in praise of the bow, and _Er-Yezhupadu_, containing seventy stanzas in praise of the plough, are within our reach, and as far as we can judge, their style and versification are worthy of the noble poet.
+Other works ascribed to Kamber are the _Kānji Purānum_ (காஞ்சிபுராணம்), _Kānji Pilleitamil_ (காஞ்சிப்பிள்ப்பிள்ளைத்தமிழ்), _Chōla Kuruvanji_ (சோழக்குறவஞ்சி), _Silei Yezhupadu_ (சிலையெழுபது) and _Er-Yezhupadu_ (ஏரெழுபது). Of these however only the _Silei-Yezhupadu_, containing seventy stanzas in praise of the bow, and _Er-Yezhupadu_, containing seventy stanzas in praise of the plough, are within our reach, and as far as we can judge, their style and versification are worthy of the noble poet.
 
 Less is known of Kamber's personal history than could be desired. All that we gather from traditions is, that the latter part of his life was a struggle between poverty, and ill-fortune. His son **Ambikāpati**, who was likewise a poet at the court of **Kulotunga Chola**, having been carrying on an amorous intrigue with the king's daughter, and betraying it in one of his poetical effusions, was, by the king's command, impaled alive,* and he died after having lingered on the stake for a couple of days, repeating incessantly the subjoined verse, in the midst of his sufferings. ---
 
-[TAMIL].
+எரியுதெரியுதென்னுள்ளே  
+யெரியுதமருதில்லையென்செய்வேன்‌  
+நஞ்சிலேதோய்ந்த நளினவிழிப்பெண்ணணங்கு  
+நெஞ்சிலேயிட்டநெருப்பு.
 
 _What can I do? The fire which the divine damsel with venomed eyes has kindled in my heart burns within me, it burns, yea it burns without extinguishing._
 
@@ -670,7 +682,10 @@ _What can I do? The fire which the divine damsel with venomed eyes has kindled i
 
 Kamber was so overwhelmed with grief at this sad event, that he discontinued attending on the king, and confined himself entirely to his house. Whilst in this state of mind, the king's son, who was returning from school, having taken refuge in his house from a fierce elephant, which was at large in the street, he snatched the stylus which the prince held in his hand, and with it stabbed and killed him on the spot. The king immediately ordered Kamber to be brought up, and shot at him with an arrow; but the wound not proving mortal, and through some intervention which is not stated, he affected his escape into the _Pāndiyen_ country. He has commemorated this event in the following impromptu:---
 
-[TAMIL].
+வில்லம்பு சொல்லம்பு மேதினியிலிரண்டுண்டு  
+வில்லம்பு சொல்லம்பை வெல்லாது --- வில்லம்பு  
+பட்டுதெடாவென்மார்பிற்‌ பார்வேந்தேயுன்கிளையைச்‌  
+சுட்டுதெடாவென்வாயிற்சொல்‌.
 
 _There are two kinds of arrows on earth, of which one is shot out from the bow, and the other from the mouth. O king! thine arrow from the bow has hit my breast, but mine, the word of my mouth, has burnt up thy race._
 
@@ -680,7 +695,10 @@ After his flight from the Chola Court, he entirely lost his poetical inspiration
 
 When the intelligence of his death reached the ears of **Otteikūtur**, who was always his rival when alive, he is said to have his sorrow and lamentation in the following impromptu:---
 
-[TAMIL].
+இன்றைக்கோகம்பனிறந்தநாளிப்புவியி  
+லின்றைக்கோவென்கவிதையேற்குநாள்‌ --- இன்றைக்கோ  
+பூமடந்தைவாழப்‌ பொறைமடந்தைவீற்றிருக்க  
+நாமடந்தை நூலிழந்தநாள்‌.
 
 _Is it to-day that Kamber has died?_  
 _Is it to-day that he accepts my elegiac lay?_  
@@ -695,11 +713,14 @@ _Whilst Lakshmi* is blooming and Pārvati* is sitting in majesty._
 
 There is a tradition that Kamber once visited a certain king of Ceylon, and that the king was so charmed with his poetry that he was treated with unusual affability, so much so, that the Court poets became jealous of him and formed a plot to keep him at a distance from the Palace, by bribing a barber to claim relationship with him; but he soon found means to expose their artifices and they had the mortification to see him afterwards even honoured with a seat on the throne by the side of the king. We cannot, however, vouch for the truth of this tradition; but the following stanza in praise of _Sarasvati_, which is generally attributed to him is said to refer to it:---
 
-[TAMIL].
+வெள்ளைக்கலையுடுத்து வெள்ளைப்பணிபூண்டு  
+வெள்ளைக்கமலத்தில்‌ வீற்றிருப்பாள்‌ --- வெள்ளை  
+யரியாசனத்திலரசனோடென்னைச்‌  
+சரியாயிருத்திவைத்ததாய்.
 
 _It is my mother who sits in majesty on the white lotus, robed in white garments and adorned with white ornaments, that gave me an equal seat with the king on the white throne, borne by the lion._
 
-## Kapiler. --- [TAMIL].
+## Kapiler. --- கபிலர்.
 
 Kapiler was one of the forty-nine professors of the Madura College. He was the brother of **Tiruvalluver**, and being exposed by his mother soon after his birth at Trivalur, he was found and adopted by a _Brahman_ of that place. When he arrived at his seventh year, his foster-father invited the other _Brahmans_ at Trivalur in order to invest him with the sacred cord, but they all peremptorily refused to accept the invitation on the ground that he not being a _Brahman_ was not entitled to be initiated into the privileges of their order. Upon hearing this, Kapiler repaired to the place where the _Brahmans_ were assembled, and in an _Agavel_,* which he composed and recited before them, refuted their high pretensions by proving that caste was not innate but accidental, and they not being able to rebut his arguments, at once admitted him into their rank by investing him with the sacred cord. A metrical version of the _Agavel_ in English by the Rev. **C. J. Robinson** has been published in Rev. **P. Percival's** Land of the Veda.
 
