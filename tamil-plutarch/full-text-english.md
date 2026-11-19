@@ -766,7 +766,7 @@ This poet was one of the disciples of **Agastiyer**, and he appears to have been
 
 The time when this poet flourished is usually referred to the reign of **Tirumalarāyen** in the fifteenth century of the Christian era. His real name is not known. He obtained the sobriquet of _Kālamegam_, or the hail-pouring cloud, for the sharpness of his invectives against those who failed to reward his poetry. There is no doubt that he was possessed of superior talents, but his character has been tainted by a deplorable egotism, in proof of which we subjoin one of his poetical epistles to **Tirumalarāyen**, wherein he trumpets forth his own attainments, and defies all other poets.
 
-[TAMIL].
+தூதைந்துநாழிகையிலாறுநாழிகைதனிற்‌ சொற்சந்தமாலைசொல்‌லத்‌ --- துகளிலாவந்தாதியேழுநாழிகைதனிற்‌ றோகைபடவிரித்துரைக்கப் --- பாதஞ்செய்மடல்கோவை பத்துநாழிகைதனிற்‌ பரணியொருநாண்முழுதுமே --- பாரகாவியமெலாமோரிருதினத்திலே பகரக்கொடிக்கட்டினேன்‌ --- சீதஞ்செயுந்திங்கண்மரபினா னீடுபுகழ்செய்யதிருமலைராயன்‌முன்‌ --- சீறுமாறென்று மிகுதாறுமாறுகள்‌ சொற்றிருட்டுக்கவிப்புலவரைக்‌ --- காதங்கறுத்துச்‌ சவுக்கிட்டடித்துக்கதுப்பிற்புடைத்துவெற்றிக் --- கல்லணையினொடுகொடிய கடிவாளமிட்டேறுகவிகாளமேகநானே.
 
 "_It is I the poet Kālamegam who have hoisted a flag, proclaiming thereby that I shall compose a Dūtu, in five Naligais*; a Maleī in six Naligais; an Antādi in seven Naligais; a Madal, or Kovai, in ten Naligais; a Parani in a day; and all kinds of epics in a couple of days. I will cut off the ears of the poets, who purloining the compositions of others, parade them as their own, and bluster and puff in the presence of the ever renowned king Tirumalarayen, of the race of the placid moon; I will whip them on their backs, slap them on their cheeks, and saddle and ride on them, bridling them with a hard bridle._"
 
@@ -774,7 +774,15 @@ The time when this poet flourished is usually referred to the reign of **Tirumal
 
 Kālamegam has however left no poems of any magnitude, and of his compositions the most admired is a series of stanzas, under the title of _Yamakandam_, which being composed of words two-fold in meaning, each contains a description of two different things, as will be seen by the subjoined specimens.
 
-[TAMIL].
+நஞ்சிருக்குந் தோலுரிக்கும்‌ நாதன்முடிமேலிருக்கும்‌  
+வெஞ்சினத்தாற்பற்பட்டால்‌ மீழாது --- விஞ்சுபுகழ்‌  
+தேன்பாயுஞ்சோலை திருமலைராயன்பதியிற்‌  
+பாம்பாகும்‌ வாழைப்பழம்‌.
+
+வாரிக்களத்தடிக்கும்‌ வந்துபுகுங்கோட்டையிற்குட்‌  
+போருக்குமாங்கே புரியுமாம்‌ --- நேரே  
+செய்க்கோலஞ்செய்யுந்‌ திருமலைராயன்பதியில்‌  
+வைக்கோலுமால்யானையாம்‌.
 
 1\. _It has poison, it sheds its skin, it sits on the crown of Siva's head, its bite under irritation cannot be cured. O! Such is the case with the Cobra Capella in the city of the renowned Tirumalarayen, where the groves flow with honey._
 
@@ -788,13 +796,19 @@ Of the anecdotes related of Kālamegam, we think the following will interest the
 
 One day as he was attending the temple at Tiruvalūr, his attention having been drawn to a diamond, which was sparkling on the breastplate of the image of _Tiyāgar_ (_Siva_), he cracked a joke at the expense of the god, in this impromptu:
 
-[TAMIL].
+அன்னவயல்சூழுமாரூர்த்தியாகர்நெஞ்சி  
+லின்னம்‌வயிரமிருக்குதோ --- முன்னந்  
+தொண்டன்மகனைத்தின்றுஞ்‌ சோழன்மகனைக்கொன்றுஞ்  
+சண்டனெமனுதைத்‌ததாள்‌.
 
 _Has Tiyāgar of Arūr, which is surrounded by rice-fields, still Vairam (diamond, meaning also wrath) in his breast? Has he not been appeased, even after devouring the son of Sirutonden, killing the son of Chola, and striking Yama with his foot?_
 
 Another day he went to a temple of _Skanda_ to witness the feast, but found it difficult to push his way through the mass of the people that thronged the temple. Vexed at this disappointment, he gave vent to his feelings in an impromptu as follows:---
 
-[TAMIL].
+அப்பனிரந்துண்ணியாத்தாள்பெருநீலி  
+சொற்பெரியமாமன்‌ றொழிற்றிருடன்‌ --- இப்புவியில்‌  
+தமையன்பெருவயிறன்றாரணியெல்லாமறியக்‌  
+குமராவுனக்கேன்வீண்கூத்து.
 
 _O Kumara! Why this vain parade for thee! Thy father (Siva) is a mendicant, thy mother (Pārvati) is an ogress, thy uncle (Kishna) is a professed thief, and thy brother (Ganesa) is a glutton as all the world knows._
 
