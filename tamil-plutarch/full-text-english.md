@@ -863,35 +863,41 @@ Little is known of the personal history of Kāriyār beyond the fact that he was
 
 Kīrandeiyār was one of the forty-nine professors of the Madura College, but there is nothing extant of his compositions besides the subjoined impromptu, which he uttered in admiration of the _Kural_ 
 
-[TAMIL].
+தப்பாமுதற்பாவாற்றாமாண்டபாடலினான்‌  
+முப்பாலினாற்பான்மொழிந்தவரெப்பாலும்‌  
+வைவைத்தகூர்வேல்‌ வழுதிமனமகிழத்‌  
+தெய்வத்திருவள்ளுவர்‌.
 
 _It is the divine Valluver, who by his great skill in poetry, has imparted in a series of verses of the first class, arranged in three parts, the means of obtaining the four things (meaning virtue, wealth, pleasure, and eternal happiness), that the heart of Pāndiyen, who wields the edged javelin may be delighted therewith._
 
-## Kodignāzhanmāni Pūdanār. --- [TAMIL].
+## Kodignāzhanmāni Pūdanār. --- கொடிஞாழன் மானிபூதனார்.
 
 This poet was one of the forty-nine professors of the Madura College; but neither his birthplace, nor his personal history can be ascertained at present. His name, however, has survived the lapse of time by the following impromptu, which he uttered in approbation of the _Kural_:
 
-[TAMIL].
+அறனறிந்தேமான்ற பொருளறிந்தேமின்‌பின்‌  
+றிறனறிந்தேம்வீடு தெளிந்தேமறனெறிந்த  
+வாளார்நெடுமாற வள்ளுவனார்தம்வாயாற்‌  
+கேளாதனவெல்லாங்கேட்டு.
 
 _O Pāndiya, the mighty king, who wields the sword brandished among the enemy! Having heard to-day from the mouth of Valluver what we never heard before, and comprehended their meaning, we have been enlightened with the knowledge of eternal happiness._
 
-## Kongkaner. --- [TAMIL].
+## Kongkaner. --- கொங்கணர்.
 
-Kongkaner was a celebrated philosopher, and physician, probably a native of (as his name would seem to imply) _Konganādu_, the modern Coimbatore country. It is said that he became an ascetic in the prime of his youth, and having associated himself with the sages who then abode on the _Pothiya_ mountain, was instructed by them in all branches of knowledge. Some make him contemporary with **Agastiyer**, and some with **Tiruvalluver**, but nothing certain is known of his epoch. He wrote a treatise against polytheism, under the title of _Kongkanar Gnānam_ ([TAMIL]), and two treatises on medicine, one of which is entitled _Kadeikandam_ ([TAMIL]), and the other _Gunavagadam_ ([TAMIL]).
+Kongkaner was a celebrated philosopher, and physician, probably a native of (as his name would seem to imply) _Konganādu_, the modern Coimbatore country. It is said that he became an ascetic in the prime of his youth, and having associated himself with the sages who then abode on the _Pothiya_ mountain, was instructed by them in all branches of knowledge. Some make him contemporary with **Agastiyer**, and some with **Tiruvalluver**, but nothing certain is known of his epoch. He wrote a treatise against polytheism, under the title of _Kongkanar Gnānam_ (கொங்கணர்ஞானம்), and two treatises on medicine, one of which is entitled _Kadeikandam_ (கடைக்காண்டம்), and the other _Gunavagadam_ (குணவாகடம்).
 
 The following is a stanza taken from his _Gnānam_.
 
-[TAMIL].
+கடவுளோனொருவனுண்டே வேதமொன்றே காரணசற்குருதீட்‌சை தானுமொன்றே --- யடைவுடனே யவனருளும்பதவியொன்றேயம்‌புவியின்‌ மனுப்பிறவியானதொன்றே --- நடைவழியும்பலமனுவோர்க்கொன்றேயல்லால்‌ நால்வேதமறுசமய நடக்கைவேறாய்த் --- திடமுடையதேவர்பலருண்டென்போர்கடீய்நரகுக்குள்ளாவர்‌திண்ணந்தானே.
 
 _There is but one God, there is but one Veda, there is but one way of initiation by the good spiritual guide, there is but one kind of bliss which he grants, and there is but one genus amongst mankind upon the earth. They who hold the contrary by asserting that there are four Vedas, and six sects, and many gods, will surely enter the fiery hell._
 
-## Koraker. --- [TAMIL].
+## Kōraker. --- கோரக்கர்.
 
-Koraker is reckoned among the nine _Siddhas_, who had acquired supernatural qualifications and powers by intense austerities. Be this as it may, there is no doubt that he was well versed in poetry as well as in medicine, and chemistry. He has left a work in 100 verses, under the title of _Kōraker Vyppu_ (கோரக்கர்வைப்பு), treating of the composition and preparation of medicines, and it is said that it was he who first introduced the use of _Ganja_ (_Cannabis indica_) in the Tamil practice; hence that weed is now generally called _Kōraker-mūli_ (கோரக்கர்மூலி), or Koraker's drug.
+Kōraker is reckoned among the nine _Siddhas_, who had acquired supernatural qualifications and powers by intense austerities. Be this as it may, there is no doubt that he was well versed in poetry as well as in medicine, and chemistry. He has left a work in 100 verses, under the title of _Kōraker Vyppu_ (கோரக்கர்வைப்பு), treating of the composition and preparation of medicines, and it is said that it was he who first introduced the use of _Ganja_ (_Cannabis indica_) in the Tamil practice; hence that weed is now generally called _Kōraker-mūli_ (கோரக்கர்மூலி), or Kōraker's drug.
 
-## Kothamanar. --- [TAMIL].
+## Kōthamanar. --- கோதமனார்.
 
-Kothamanar was one of the forty-nine professors of the Madura College. His personal history has been lost, and of his compositions there is nothing remaining, except the following impromptu on the _Kural_:
+Kōthamanar was one of the forty-nine professors of the Madura College. His personal history has been lost, and of his compositions there is nothing remaining, except the following impromptu on the _Kural_:
 
 [TAMIL].
 
