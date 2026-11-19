@@ -814,47 +814,54 @@ _O Kumara! Why this vain parade for thee! Thy father (Siva) is a mendicant, thy 
 
 When he once visited Kannapuram, the _Brāhmans_, who officiated in the _Vaishnava_ temple there, having importuned him to chant the praise of their god, he improvised the following stanza:
 
-[TAMIL].
+கன்னபுரமாலே கடவுளிலுநீயதிக  
+முன்னிலுமோநானதிகமோதக்கேள்‌  
+உன்பிறப்போபத்து வோர்சிவனுக்கொன்றுமில்லை  
+யென்பிறப்போவெண்ணத்தொலையாது.
 
 _O the Lord of Kannapuram! thou art greater than Siva, but I am greater than thee; for hear me, thou hadst ten births, and Siva had none, but my births are too many to be counted._
 
 An anonymous admirer of Kālamegam, has commemorated him in the subjoined verse:
 
-[TAMIL].
+கம்பனென்றுமம்பனென்றுங்‌ காளியொட்டைக்கூத்தனென்றுங்‌  
+கும்பனென்றும்பேர்கொடுப்பதுண்டோ --- அம்புவியில்‌  
+கன்னாவதாரன்‌ காளமேகப்புலவன்‌  
+அன்னாளிலேபிறந்தாக்கால்‌.
 
 _Would Kamben, and Amben, Kālidas and Ottakūten, nay even Kumben (Agastiyer), have acquired poetical fame on earth, if the poet Kālamegam, who is the incarnation of Karna* himself, had been born in their days?_
 
 *) An ancient king of Angadesa famous for his liberality.
 
-## Kāngayer. --- [TAMIL].
+## Kāngayer. --- காங்கேயர்.
 
-Kāngayer was a _Siva_ ascetic, and poet, who appears to have lived prior to **Mandalapuruder**; but the exact date of his existence cannot be ascertained. He composed a Tamil lexicon in verse, under the title of _Urichol Nigandu_ ([TAMIL]), which unlike others of the kind, being written in the _Venba_ metre, and well adapted for beginners, is now generally used in schools. An edition of this work published at Pondicherry in 1840, comprises only 220 stanzas: but the one which issued from the Press at Jaffna in 1858, has 330 stanzas, and whether the addition is genuine, or not, it appears to us to be a great improvement.
+Kāngayer was a _Siva_ ascetic, and poet, who appears to have lived prior to **Mandalapuruder**; but the exact date of his existence cannot be ascertained. He composed a Tamil lexicon in verse, under the title of _Urichol Nigandu_ (உரிச்சொல் நிகண்டு), which unlike others of the kind, being written in the _Venba_ metre, and well adapted for beginners, is now generally used in schools. An edition of this work published at Pondicherry in 1840, comprises only 220 stanzas: but the one which issued from the Press at Jaffna in 1858, has 330 stanzas, and whether the addition is genuine, or not, it appears to us to be a great improvement.
 
-## Kāreikal Ammeiyār. --- [TAMIL].
+## Kāreikal Ammeiyār. --- காரைக்காலம்மையார்.
 
-The real name of this celebrated poetess was _Punithavati_. She was the only daughter of **Tanatattan**, a _Chetty_ who resided at Karikal. Her father married her early in life to the son of another _Chetty_ at Negapatam, but her husband sometime afterwards deserted her, and going over to the _Pāndi_ country, took another wife, and established himself there. After having failed to effect a reconciliation with him she assumed the habit of an ascetic, and repaired to the _Imaus_, where she died. Of her several poems, the most admired are the _Atputhatiruvantādi_ ([TAMIL]) _Tiruviretteimanimālei_ ([TAMIL]) and _Mūttatiruppathikam_ ([TAMIL]), which are in high esteem amongst the _Saivas_.
+The real name of this celebrated poetess was _Punithavati_. She was the only daughter of **Tanatattan**, a _Chetty_ who resided at Karikal. Her father married her early in life to the son of another _Chetty_ at Negapatam, but her husband sometime afterwards deserted her, and going over to the _Pāndi_ country, took another wife, and established himself there. After having failed to effect a reconciliation with him she assumed the habit of an ascetic, and repaired to the _Imaus_, where she died. Of her several poems, the most admired are the _Atputhatiruvantādi_ (அற்புதத்திருவந்தாதி) _Tiruviretteimanimālei_ (திருவிரட்டைமணிமாலை) and _Mūttatiruppathikam_ (மூத்ததிருப்பதிகம்), which are in high esteem amongst the _Saivas_.
 
-## Kārikannanār. --- [TAMIL].
+## Kārikannanār. --- காரிக்கண்ணனார்.
 
 This poet was a native of _Kāverīpatnam_, in the Carnatic. He ranks as one among the forty-nine professors of the Madura College, but we are ignorant of the particulars of his life. His compositions have all perished, save the following impromptu on the _Kural_:
 
-[TAMIL].
+ஐயாறுநூறு மதிகாரமூன்றுமா  
+மெய்யாயவேதப்‌ பொருள்விளங்கப்‌ --- பொய்யாது  
+தந்தானுலகிற்குத்‌ தான்வள்ளுவராகி  
+யந்தாமரைமேலயன்‌.
 
 _It is no other than Ayen (Brāhma) himself, who is seated on the beautiful lotus-flower, assuming the form of Valluver, has given to the world the truths of the Vedas in three hundred and thirty chapters, that they may shine without being mixed up with falsehood._
 
-## Kāriyār. --- [TAMIL].
+## Kāriyār. --- காரியார்.
 
-Nothing is known of this poet but what is contained in the preface to his _Kanakkadikāram_ ([TAMIL]), according to which he was a native of _Kurkai_, the ancient residence of the _Pāndiyans_, situated on the northern bank of the river _Tambraparni_, and that he claimed descent from one of those kings. The _Kanakkadikāram_ is a treatise in verse on Arithmetic, compiled from materials derived from the _Ganitasāstra_, _Bhuvanadipa_, and other Sanskrit works on the same subject. After the usual invocation to _Ganesa_ it first describes the system of weights and measures, and then the different operations of Arithmetic, and concludes with a series of arithmetical problems with their solution. It is on the whole a valuable work.
+Nothing is known of this poet but what is contained in the preface to his _Kanakkadikāram_ (கணக்கதிகாரம்), according to which he was a native of _Kurkai_, the ancient residence of the _Pāndiyans_, situated on the northern bank of the river _Tambraparni_, and that he claimed descent from one of those kings. The _Kanakkadikāram_ is a treatise in verse on Arithmetic, compiled from materials derived from the _Ganitasāstra_, _Bhuvanadipa_, and other Sanskrit works on the same subject. After the usual invocation to _Ganesa_ it first describes the system of weights and measures, and then the different operations of Arithmetic, and concludes with a series of arithmetical problems with their solution. It is on the whole a valuable work.
 
-## Kāriyār. --- [TAMIL].
+## Kāriyār. --- காரியார்.
 
-Little is known of the personal history of Kāriyār beyond the fact that he was a _Brāhman_ of _Tirukkadavūr_, in the Carnatic, who distinguished himself by composing amatory poems called _Kovei_ ([TAMIL]), which being recited before the **Chera**, **Chola**, and **Pandiya** kings of his time, obtained for him their patronage. The date of his existence is uncertain; but it was no doubt anterior to the reign of **Anabhāya Chola**, as he figures as one of the sixty-three special votaries of _Siva_ in the _Tirutonder Purānam_, which was written by **Sekilar** under the auspices of that king. He is said to have lavished all his fortune in building, and endowing temples for the worship of _Siva_, and in maintaining the _Brahmans_.
+Little is known of the personal history of Kāriyār beyond the fact that he was a _Brāhman_ of _Tirukkadavūr_, in the Carnatic, who distinguished himself by composing amatory poems called _Kōvei_ (கோவை), which being recited before the **Chera**, **Chola**, and **Pandiya** kings of his time, obtained for him their patronage. The date of his existence is uncertain; but it was no doubt anterior to the reign of **Anabhāya Chola**, as he figures as one of the sixty-three special votaries of _Siva_ in the _Tirutonder Purānam_, which was written by **Sekilar** under the auspices of that king. He is said to have lavished all his fortune in building, and endowing temples for the worship of _Siva_, and in maintaining the _Brahmans_.
 
-## Kīrandeiyār. --- [TAMIL].
+## Kīrandeiyār. --- கீரந்தையார்.
 
-Kīrandeiyār was one of the forty-nine professors of the Madura 
-College, but there is nothing extant of his compositions besides the 
-subjoined impromptu, which he uttered in admiration of the _Kural_ 
+Kīrandeiyār was one of the forty-nine professors of the Madura College, but there is nothing extant of his compositions besides the subjoined impromptu, which he uttered in admiration of the _Kural_ 
 
 [TAMIL].
 
