@@ -947,29 +947,61 @@ Kulasekhara Perumal being considered as one of the twelve _Āzhvārs_, or specia
 
 Kumaragurupara Dēsiker was a _Saiva_ ascetic and poet of considerable eminence, born of _Velāla_ parents at _Strivyguntam_, in the Tinnevelly district, about two hundred years ago. He established his fame as a poet while yet a child; for it is reported of him that when only five years old, he composed a poem, called _Kalivenbā_ (கலிவெண்பா), in praise of the shrine of _Skanda_ at Tiruchendur, and a few years later another poem, called _Pilleitamil_ (பிள்ளைத்தமிழ்), in praise of the shrine of _Menākshi_ at Madura, which he recited before the king **Tirumalanāyaker**. He soon afterwards entered the _Matam_ at Dharmapuram, and after studying there the _Saiva_ system of philosophy, and improving his knowledge of the Tamil and Sanskrit languages and poetry, assumed the habit of an ascetic; and the heads of the _Matam_ being convinced of his deep learning, invested him with the title of _Tambiran_. He then repaired to Benares, and presided over a _Matam_ in that city until his death, which occurred in the prime of his manhood. Besides his two juvenile productions, he was also the author of twelve others, of which the last one entitled _Nīdineri-vilakkam_ (நீதிநெறிவிளக்கம்), consisting of 102 stanzas on moral subjects, is considered the best, and has been translated into English in prose by Mr. **Stokes** of the Madras Civil service. The following selections from the _Nīdineri-vilakkam_, with Mr. **Stokes'** translation, may not be found uninteresting:---
 
-[TAMIL].
+தொடங்குங்காற்றுன்பமாயின்பம்பயக்கு  
+மடங்கொன்றறிவகற்றுங்கல்‌வி --- நெடுங்காம  
+முற்பயக்குஞ்சின்னீரவின்பத்தைமுற்றிழாய்‌  
+பிற்பயக்கும்பீழைபெரிது.
 
 _Learning at first painful, will afterwards afford pleasure. It will destroy ignorance and extend knowledge. But the pain which succeeds to the short-lived pleasure of immoderate lust, is great, O thou adorned with perfect jewels!_
 
-[TAMIL].
+எத்துணையவாயினுங்‌ கல்வியிடமறிந்  
+துய்த்துணர்வில்லெனினில்லாகு --- முய்த்துணர்த்துஞ்  
+சொல்வன்மையின்றெனினென்னாமஃதுண்டேற்‌  
+பொன்மலர்நாற்றமுடைத்து.
 
 _Learning, however extensive, will be useless, unless there be discretion to display it in the proper place; and even then, without the power of language, of what avail is it? With that, it is a flower of gold that possesses fragrance._
 
-[TAMIL].
+கற்றார்க்குக்கல்விநலனேகலனல்லான்‌  
+மற்றோரணிகலம்வேண்டாவா --- முற்ற  
+முழுமணிப்பூணுக்குப்‌ பூண்வேண்டாயாரே  
+யழகுக்கழகுசெய்வார்‌.
 
 _The learned need no other ornament than the excellence of learning. Nothing is wanting to adorn an ornament perfectly set with every precious stone. Who would beautify beauty itself!_
 
-## Kumārasinga Mudeliar. --- [TAMIL].
+## Kumārasinga Mudeliar. --- குமாரசிங்கமுதலியார்.
 
 Kumārasinga Mudeliar was descended from a respectable _Velāla_ family at _Nāvetkuli_, in Mantotte, and enjoyed some reputation both as a clever poet, and an experienced physician. Having unfortunately taken an active part in the tumult which occurred in the district of Manaar, in consequence of the imposition of a tax upon ornaments by Governor **North** in CE 1800, he was tried for sedition, and being convicted, was sentenced to be whipped. There is a very pathetic address to the **Blessed Virgin**, in a series of stanzas, which he repeated impromptu while being whipped, craving her intercession that he may be endowed with fortitude to bear the affliction. He was also the author of several hymns now sung in the Catholic churches in Mantotte, at Novenas, and which exhibit his strong devotional feeling.
 
-## Kūlangkaiyer. --- [TAMIL].
+## Kūlangkaiyer. --- கூழங்கையர்.
 
-Kūlangkaiyer was a highly celebrated poet and philosopher, well skilled both in the Sanskrit and Tamil languages. No less a place of sanctity amongst the Hindus than _Kanjipuram_ claims him as its native, and his parents it would appear traced their lineage to the _Velalers_, who colonized _Tondamandalam_ under the auspices of **Adonda Chakravarti**, before the commencement of the Christian era. He was educated at first in a country school, where he gave early indications of his superior genius, and afterwards in the _Saiva Matam_ at Tiruvatur, in the Tanjore country, under the tuition of the learned _Tambirans_ or ascetics, who resided in it, and whose profession it was to assist the youth in the prosecution of the study of the Hindu system of Metaphysics and Theology. Having distinguished himself while a student by his various attainments, and earned for himself the title of _Tambiran_, he was selected in the first instance for the office of Junior teacher in the _Matam_; the duties of which he performed in an admirable manner, evincing a great solicitude to promote the interests of his pupils. The superior of the _Matam_ soon becoming jealous of the young _Tambiran_, who from his zeal and learning seemed to bear away the palm of praise, falsely accused him of some crime, in consequence of which he was required to take up a piece of red-hot iron, to prove his innocence. He submitted to the ordeal; but in its performance he was unfortunately deprived of the use of his right hand, and henceforth he passed under the sobriquet of _Kūlangkaiyer_, (one with a crippled hand), and his real name became forgotten by disuse. Subsequently, he came to Jaffna, and settled there under the kindness and hospitality of **Vytilinga Chettiar**, the principal merchant in the place, and it appears that teaching was the sole occupation in which he engaged himself for the remainder of his life. He not only taught the children of his benefactor, but likewise of many others who had sought his assistance, in order to secure for them a classical education. The fame of his deep erudition soon spread over to Colombo, from which place he received several invitations from various individuals to come and help them in their studies. With his characteristic desire to diffuse knowledge, he accepted their invitations, and paid several visits to Colombo, where he always met with a warm reception from all parties. To his guidance was the Reverend Father **Gabriel Pacheco** chiefly indebted for that thorough knowledge of Tamil, which afterwards enabled him to produce in that language those valuable religious works, especially the History of the People of God ([TAMIL]), in two ponderous volumes, whereby his name has been eminently distinguished.
+Kūlangkaiyer was a highly celebrated poet and philosopher, well skilled both in the Sanskrit and Tamil languages. No less a place of sanctity amongst the Hindus than _Kanjipuram_ claims him as its native, and his parents it would appear traced their lineage to the _Velalers_, who colonized _Tondamandalam_ under the auspices of **Adonda Chakravarti**, before the commencement of the Christian era. He was educated at first in a country school, where he gave early indications of his superior genius, and afterwards in the _Saiva Matam_ at Tiruvatur, in the Tanjore country, under the tuition of the learned _Tambirans_ or ascetics, who resided in it, and whose profession it was to assist the youth in the prosecution of the study of the Hindu system of Metaphysics and Theology. Having distinguished himself while a student by his various attainments, and earned for himself the title of _Tambiran_, he was selected in the first instance for the office of Junior teacher in the _Matam_; the duties of which he performed in an admirable manner, evincing a great solicitude to promote the interests of his pupils. The superior of the _Matam_ soon becoming jealous of the young _Tambiran_, who from his zeal and learning seemed to bear away the palm of praise, falsely accused him of some crime, in consequence of which he was required to take up a piece of red-hot iron, to prove his innocence. He submitted to the ordeal; but in its performance he was unfortunately deprived of the use of his right hand, and henceforth he passed under the sobriquet of _Kūlangkaiyer_, (one with a crippled hand), and his real name became forgotten by disuse. Subsequently, he came to Jaffna, and settled there under the kindness and hospitality of **Vytilinga Chettiar**, the principal merchant in the place, and it appears that teaching was the sole occupation in which he engaged himself for the remainder of his life. He not only taught the children of his benefactor, but likewise of many others who had sought his assistance, in order to secure for them a classical education. The fame of his deep erudition soon spread over to Colombo, from which place he received several invitations from various individuals to come and help them in their studies. With his characteristic desire to diffuse knowledge, he accepted their invitations, and paid several visits to Colombo, where he always met with a warm reception from all parties. To his guidance was the Reverend Father **Gabriel Pacheco** chiefly indebted for that thorough knowledge of Tamil, which afterwards enabled him to produce in that language those valuable religious works, especially the History of the People of God (தேவப்பிரசையின்திருக்கதை), in two ponderous volumes, whereby his name has been eminently distinguished.
 
-Kūlangkaiyer was the author of an exposition of the _Nannūl_, and he also composed some epic poems, and several minor pieces of poetry, remarkable for their elegant and harmonious versification. Amongst his epics may be mentioned _Yosep Purānam_ ([TAMIL]), which treats of the history of the patriarch **Joseph**, in 1023 stanzas, arranged in twenty-one cantos. He inscribed it to the learned **De Melho**, who was his friend and literary associate, as a tribute of respect to his eminent worth and abilities; but unfortunately only a fragment of it is now extant. As a specimen of its poetry, we subjoin the five following stanzas, extracted from the second canto entitled _Āttupadalam_:
+Kūlangkaiyer was the author of an exposition of the _Nannūl_, and he also composed some epic poems, and several minor pieces of poetry, remarkable for their elegant and harmonious versification. Amongst his epics may be mentioned _Yosep Purānam_ (யோசேப்புராணம்), which treats of the history of the patriarch **Joseph**, in 1023 stanzas, arranged in twenty-one cantos. He inscribed it to the learned **De Melho**, who was his friend and literary associate, as a tribute of respect to his eminent worth and abilities; but unfortunately only a fragment of it is now extant. As a specimen of its poetry, we subjoin the five following stanzas, extracted from the second canto entitled _Āttupadalam_:
 
-[TAMIL].
+பயம்புவிக்கருள்‌ பயோதரமியாவுமெந்திரையாற்‌  
+பயங்கொள்வேலையிற்‌ பரந்துவாரிதியிடைபடிந்து  
+பயங்களானவை பருகியப்பரவையின்வடிவாய்ப்‌  
+பயங்கள்கோரகை கொண்டிடப்பரந்ததம்பரமேல்‌.
+
+பரவுமால்ககுபங்களோடெட்டொடுவானைப்‌  
+புரவுவேந்தராள்‌ புவியினைப்போர்த்தெனவிருண்டு  
+விரவுகின்றது விண்ணெனும்பந்தரின்கண்ணே  
+யிரவுநேர்கரும்‌ படாத்தினால்‌ விதானஞ்செய்தென்ன.
+
+திருவுலாங்கலைப்‌ பிலிப்புமேலோன்குருச்சிந்தை  
+மருவுஞானநல்லொளியென மின்னிமற்றொன்வாய்ச்‌  
+சுருதியாமெனத் தொனித்தின்னோனுயிர்க்கருடொலைமாக்‌  
+கருணையாமெனப்பொழிந்தது காரிருட்புயலே.
+
+தேவதேவநம்பராபரன்‌ சீரணிசிறந்த  
+தாவிலாத்திருநாமமே தயங்குறுஞ்சுத்த  
+மேவிடுஞ்சியோன்வரைக்குமஞ்சனம்புரிவிதம்போ  
+லோவிலாமழை பெய்தனவுலகுளோருவப்ப.
+
+இறும்பினுச்சியிற்‌ பெய்திடும்புனலெல்லாமிழிந்தே  
+யெறும்புசீயம்புல்லிருங்குடாவடியெலாமீர்த்து  
+நறும்பணைத்தரளங்களைக்கொழித்துடனடந்து  
+வறும்புனத்திடையுலாயதுகடல்புரைவாவி.
 
 _The clouds which supply the earth with water, having overspread, and settled upon the sea abounding with silvery waves, imbibed the water of the sea, and assuming the form of the sea itself spread over the sky._
 
@@ -989,23 +1021,26 @@ It should be mentioned that Kūlangkaiyer, after his arrival and settlement in J
 
 *) We are indebted for the particulars of the life of Kūlangkaiyer and those of De Melho to the kindness of M. P. Jurgen Ondatji, Esquire of the Colonial Office, Colombo.
 
-## Lorenzo Pulaver. --- [TAMIL].
+## Lorenzo Pulaver. --- லோரெஞ்சுப்புலவர்.
 
-Lorenzo Pulaver was born of _Velāla_ parents at _Pāsikulam_, in Mantotte, and brought up in the Catholic religion which his family professed from the time of its introduction into Manaar by St. **Francis Xavier**, the Apostle of India. He lived in the middle of the last century, and though he did not write any large poems, yet his abilities are manifest from the many excellent hymns which he composed in honour of our **Saviour**, and the **Blessed Virgin**. It is said that while he was on a visit to Putlam, **Allah Pitchei Annaviyār**, a Moorish poet of some repute, who lived there, endeavoured to bewilder him in a contest respecting the _Kanam_ ([TAMIL]), or foot of an invocation in a poem, by producing a forged rule in support of his false proposition; but he soon exposed the forgery, and carried away the palm in the contest. He was remarkably quick at making repartees. One day a poet from Colombo, meeting him for the first time near the church at Mantotte, and wishing to be facetious at his expense, asked him, "_Is the Mantotte buffalo very big?_" ([TAMIL]) and the ready reply was, "_Yes it is little bigger than the Colombo ass_" ([TAMIL]). _Notandum est_, in Tamil both the words "_buffalo_" and "_ass_" are metaphorically applied for a blockhead.
+Lorenzo Pulaver was born of _Velāla_ parents at _Pāsikulam_, in Mantotte, and brought up in the Catholic religion which his family professed from the time of its introduction into Manaar by St. **Francis Xavier**, the Apostle of India. He lived in the middle of the last century, and though he did not write any large poems, yet his abilities are manifest from the many excellent hymns which he composed in honour of our **Saviour**, and the **Blessed Virgin**. It is said that while he was on a visit to Putlam, **Allah Pitchei Annaviyār**, a Moorish poet of some repute, who lived there, endeavoured to bewilder him in a contest respecting the _Kanam_ (கணம்), or foot of an invocation in a poem, by producing a forged rule in support of his false proposition; but he soon exposed the forgery, and carried away the palm in the contest. He was remarkably quick at making repartees. One day a poet from Colombo, meeting him for the first time near the church at Mantotte, and wishing to be facetious at his expense, asked him, "_Is the Mantotte buffalo very big?_" (மாதோட்டத்தான் கடா மெத்தப்பெரிதோ) and the ready reply was, "_Yes it is little bigger than the Colombo ass_" (கொழம்பான் கோவேறுகழதையிற் கொஞ்சம்பெரிது). _Notandum est_, in Tamil both the words "_buffalo_" and "_ass_" are metaphorically applied for a blockhead.
 
-## Machamuni. --- [TAMIL].
+## Machamuni. --- மச்சமுனி.
 
-Machamuni, who was both a distinguished poet and philosopher, lived at the same time with **Agastiyer**; but nothing further is known of him. None of his compositions had escaped the ravages of time, save the _Vāda Negandu_ ([TAMIL]), a treatise on the nostrums and mysteries of alchemy, which science now justly held in contempt, appears to have been once much cultivated among the Tamils and an anecdote is still current of a merchant in the Carnatic, who after having spent all his wealth in trying to make gold, was reduced to beggary, and used to exclaim as he went about begging ([TAMIL]) "_the lead would not be hardened and the cinnabar would not melt_."
+Machamuni, who was both a distinguished poet and philosopher, lived at the same time with **Agastiyer**; but nothing further is known of him. None of his compositions had escaped the ravages of time, save the _Vāda Negandu_ (வாதநிகண்டு), a treatise on the nostrums and mysteries of alchemy, which science now justly held in contempt, appears to have been once much cultivated among the Tamils and an anecdote is still current of a merchant in the Carnatic, who after having spent all his wealth in trying to make gold, was reduced to beggary, and used to exclaim as he went about begging (வங்கமிறுகுதில்லை லிங்கமுருகுதில்லை) "_the lead would not be hardened and the cinnabar would not melt_."
 
-## Madura Pālāsiriyanār. --- [TAMIL].
+## Madura Pālāsiriyanār. --- மதுரைப்பாலாசிரியனார்.
 
 This poet must have been a man of great erudition, as may be inferred from the fact of his having had the title of _Āsiriyan_ or Doctor conferred on him, by his contemporaries. His name occurs among the forty-nine professors of the Madura College but none of his compositions has been preserved, save the following impromptu on the _Kural_.
 
-[TAMIL].
+வெள்ளிவியாழம்‌ விளங்கிரவிவெண்டிங்கள்‌  
+பொள்ளெனநீக்கும்‌ புறவிருளைத் --- தெள்ளிய  
+வள்ளுவரின்குறள்வெண்பாவகிலத்தோ  
+ருள்ளிருணீக்குமொளி.
 
 _The planets Venus, Jupiter, Sun and Moon would swiftly dispel the darkness from the face of the earth; but the Kural of the learned Valluver would more swiftly dispel the darkness from the hearts of men._
 
-## Madura Perumaruthanār. --- [TAMIL].
+## Madura Perumaruthanār. --- மதுரைப்பெருமருதனார்.
 
 This poet was one of the forty-nine professors of the Madura College. Nothing further is known of him beyond that he uttered the following impromptu on the _Kural_, which contains merely an enumeration of the chapters of that work, with an eulogy on **Tiruvalluver**, for having imparted through them the sublime truths of the _Vedas_, and redeemed the world from its errors:---
 
