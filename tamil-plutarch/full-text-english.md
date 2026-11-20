@@ -899,41 +899,53 @@ Kōraker is reckoned among the nine _Siddhas_, who had acquired supernatural qua
 
 Kōthamanar was one of the forty-nine professors of the Madura College. His personal history has been lost, and of his compositions there is nothing remaining, except the following impromptu on the _Kural_:
 
-[TAMIL].
+ஆற்றலழியுமென்றந்தணர்கணான்மறையைப்‌  
+போற்றியுரைத்தேட்டின்‌ புறத்தெழுதா --- ரேட்டெழுதி  
+வல்லுநரும்‌ வல்லாரும்‌ வள்ளுவனார்முப்பாலைச்‌  
+சொல்லிடினுமாற்றல்சோர்வின்று.
 
 _The Brāhmans preserve the four Vedas orally, and never commit them to writing for reason that if they were read by all, they would be less valued; but the Kural of Valluver though committed to writing, and read by all, would nevertheless not lose its value._
 
-## Kovūrkizhlar. --- [TAMIL].
+## Kōvūrkizhlar. --- கோவூர்க்கிழார்.
 
-Little more is known of Kovūrkizhlar than that he was one of the forty-nine professors of the Madura College. The subjoined impromptu on the _Kural_, is the only relic of his compositions which has been preserved:
+Little more is known of Kōvūrkizhlar than that he was one of the forty-nine professors of the Madura College. The subjoined impromptu on the _Kural_, is the only relic of his compositions which has been preserved:
 
-[TAMIL].
+அறமுதனான்குமகலிடத்தோரெல்லாந்  
+திறமுறத்தேர்ந்து தெளியக் --- குறள்வெண்பாப்‌  
+பன்னியவள்ளுவனார்‌ பான்முறைநேரோவ்வாதே  
+முன்னைமுதுவோர்மொழி.
 
 _None of the works even of the sages of antiquity will bear comparison with the Kural, whereby Valluver has enlightened the world with the knowledge of virtue, wealth, pleasure, and eternal happiness._
 
-## Kuhei Namasivāyer. --- [TAMIL].
+## Kuhei Namasivāyer. --- குகை நமச்சிவாயர்.
 
-This _Saiva_ ascetic was alike distinguished as a _Vedantist_ and a poet, and his memory is still held in high estimation by his co-religionists. He first established himself at Tirunamali, but afterwards went over to Chillambaram, and spent the remainder of his life there. His principal poem, the _Shonaghirimālei_ ([TAMIL]), is a soliloquy addressed to his own soul. In the following stanza, which we have selected from it as a specimen, the reader will find that the author in exhorting his soul to remember _Siva_, before the calamities of old age and death shall have overtaken him, expresses himself in the same strain as **Solomon** in the Ecclesiastes, Ch. 12. 1. et seq.
+This _Saiva_ ascetic was alike distinguished as a _Vedantist_ and a poet, and his memory is still held in high estimation by his co-religionists. He first established himself at Tirunamali, but afterwards went over to Chillambaram, and spent the remainder of his life there. His principal poem, the _Shōnaghirimālei_ (சோணகிரிமாலை), is a soliloquy addressed to his own soul. In the following stanza, which we have selected from it as a specimen, the reader will find that the author in exhorting his soul to remember _Siva_, before the calamities of old age and death shall have overtaken him, expresses himself in the same strain as **Solomon** in the Ecclesiastes, Ch. 12. 1. et seq.
 
-[TAMIL].
+காயநெகிழாமுன்‌ கண்களிருளாமுன்‌  
+வாயிலுள்ளபல்லு வழுவாமுன்‌ --- தாயம்பார்த்‌  
+தோடிநமன்வாராமுனுள்ளமேசோணகிரி  
+நாடிநமவென்றேநட.
 
 _Before the body decays, before the eyes grow dim, before the teeth drop, and before Yama (the god of death), watching the opportunity, swiftly approaches; O my soul! turn thy thoughts to the mountain Shona (Tirunamali) and walk on towards it, saying I adore thee._
 
-## Kulapatiyār. --- [TAMIL].
+## Kulapatiyār. --- குலபதியார்.
 
 Kulapatiyār, called also _Kulachireiyār_, was minister of **Kūna Pāndiyen**, as well as one of the forty-nine professors of the Madura College. When the king embraced the _Jaina_ religion he did not follow his example, but continued a _Saiva_, and carried his zeal for his own religion to such extremes that no sooner had he, in concert with **Sampanter**, succeeded in persuading the king to recant, than he raised a cruel persecution against the _Jainas_, and caused eight thousand of them to be impaled alive, and the rest driven from the country. Of his poetical compositions there is nothing now forthcoming except the subjoined impromptu in praise of the _Kural_.
 
-[TAMIL].
+உள்ளக்கமலமலர்த்தியுளத்துள்ள  
+தள்ளற்கரியவிருடள்ளுதலால்‌ --- வள்ளுவனார்  
+வெள்ளைக்குறட்பாவும்‌ வெண்கதிருமொக்குமெனக்  
+கொள்ளத்தகுங்குணத்தைக்கொண்டு.
 
 _As the Kural of Valluver causes the lotus-flower of the heart to expand, and dispels from it the darkness which cannot otherwise be dispelled, it may well be compared to the hot-rayed sun, which causes the lotus flower of the tank to expand, and dispels the darkness from the face of the earth._
 
-## Kulasekhara Perumal. --- [TAMIL].
+## Kulasekhara Perumal. --- குலசேகரப்பெருமாள்.
 
-Kulasekhara Perumal being considered as one of the twelve _Āzhvārs_, or special votaries of _Vishnu_, who have been deified by the Hindus, his history is consequently very much intermixed with fable; but we may nevertheless glean from it some facts which are worthy of credence. He was the son of the king **Dridharrata**, who ruled over Malayālam, holding his court at _Tiruvanji_. On succeeding his father he reigned but a few years, when abdicating the throne, he became a devotee, and set out on a course of pilgrimages to the different _Vaishnava_ fanes in the Carnatic. Whilst staying at Mannanārkovil, after a visit to Sirangam, Kānjipuram and Tirupati, he was suddenly overtaken by death. He appears to have been well skilled both in Sanskrit and Tamil poetry as he wrote the _Mukunda Malei_ ([TAMIL]) in the former, and one hundred and five stanzas in the latter, which form a part of the _Nālayira prabhandam_ ([TAMIL]) now extant amongst the _Vaishnavas_. The period of his existence cannot now be determined, but the fable would have that he was born in the twenty-eighth year of the _Kali_ age.
+Kulasekhara Perumal being considered as one of the twelve _Āzhvārs_, or special votaries of _Vishnu_, who have been deified by the Hindus, his history is consequently very much intermixed with fable; but we may nevertheless glean from it some facts which are worthy of credence. He was the son of the king **Dridharrata**, who ruled over Malayālam, holding his court at _Tiruvanji_. On succeeding his father he reigned but a few years, when abdicating the throne, he became a devotee, and set out on a course of pilgrimages to the different _Vaishnava_ fanes in the Carnatic. Whilst staying at Mannanārkovil, after a visit to Sirangam, Kānjipuram and Tirupati, he was suddenly overtaken by death. He appears to have been well skilled both in Sanskrit and Tamil poetry as he wrote the _Mukunda Malei_ (முகுந்தமாலை) in the former, and one hundred and five stanzas in the latter, which form a part of the _Nālāyira prabhandam_ (நாலாயிரபிரபந்தம்) now extant amongst the _Vaishnavas_. The period of his existence cannot now be determined, but the fable would have that he was born in the twenty-eighth year of the _Kali_ age.
 
-## Kumaragurupara Desiker. --- [TAMIL].
+## Kumaragurupara Dēsiker. --- குமரகுருபரதேசிகர்.
 
-Kumaragurupara Desiker was a _Saiva_ ascetic and poet of considerable eminence, born of _Velāla_ parents at _Strivyguntam_, in the Tinnevelly district, about two hundred years ago. He established his fame as a poet while yet a child; for it is reported of him that when only five years old, he composed a poem, called _Kalivenba_ ([TAMIL]), in praise of the shrine of _Skanda_ at Tiruchendur, and a few years later another poem, called _Pilleitamil_ ([TAMIL]), in praise of the shrine of _Menākshi_ at Madura, which he recited before the king **Tirumalanāyaker**. He soon afterwards entered the _Matam_ at Dharmapuram, and after studying there the _Saiva_ system of philosophy, and improving his knowledge of the Tamil and Sanskrit languages and poetry, assumed the habit of an ascetic; and the heads of the _Matam_ being convinced of his deep learning, invested him with the title of _Tambiran_. He then repaired to Benares, and presided over a _Matam_ in that city until his death, which occurred in the prime of his manhood. Besides his two juvenile productions, he was also the author of twelve others, of which the last one entitled _Nīdineri-vilakkam_ ([TAMIL]), consisting of 102 stanzas on moral subjects, is considered the best, and has been translated into English in prose by Mr. **Stokes** of the Madras Civil service. The following selections from the _Nīdineri-vilakkam_, with Mr. **Stokes'** translation, may not be found uninteresting:---
+Kumaragurupara Dēsiker was a _Saiva_ ascetic and poet of considerable eminence, born of _Velāla_ parents at _Strivyguntam_, in the Tinnevelly district, about two hundred years ago. He established his fame as a poet while yet a child; for it is reported of him that when only five years old, he composed a poem, called _Kalivenbā_ (கலிவெண்பா), in praise of the shrine of _Skanda_ at Tiruchendur, and a few years later another poem, called _Pilleitamil_ (பிள்ளைத்தமிழ்), in praise of the shrine of _Menākshi_ at Madura, which he recited before the king **Tirumalanāyaker**. He soon afterwards entered the _Matam_ at Dharmapuram, and after studying there the _Saiva_ system of philosophy, and improving his knowledge of the Tamil and Sanskrit languages and poetry, assumed the habit of an ascetic; and the heads of the _Matam_ being convinced of his deep learning, invested him with the title of _Tambiran_. He then repaired to Benares, and presided over a _Matam_ in that city until his death, which occurred in the prime of his manhood. Besides his two juvenile productions, he was also the author of twelve others, of which the last one entitled _Nīdineri-vilakkam_ (நீதிநெறிவிளக்கம்), consisting of 102 stanzas on moral subjects, is considered the best, and has been translated into English in prose by Mr. **Stokes** of the Madras Civil service. The following selections from the _Nīdineri-vilakkam_, with Mr. **Stokes'** translation, may not be found uninteresting:---
 
 [TAMIL].
 
