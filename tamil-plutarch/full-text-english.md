@@ -1044,25 +1044,31 @@ _The planets Venus, Jupiter, Sun and Moon would swiftly dispel the darkness from
 
 This poet was one of the forty-nine professors of the Madura College. Nothing further is known of him beyond that he uttered the following impromptu on the _Kural_, which contains merely an enumeration of the chapters of that work, with an eulogy on **Tiruvalluver**, for having imparted through them the sublime truths of the _Vedas_, and redeemed the world from its errors:---
 
-[TAMIL].
+அறமுப்பத்தெட்டுப்பொருளெழுபதின்பத்‌  
+திறமிருபத்தைந்தாற்றெளிய --- முறைமையால்‌  
+வேதவிழுப்பொருளை வெண்குறளால்‌ வள்ளுவனா  
+ரோதவழுக்கற்றதுலகு.
 
-## Madura Tamil-nāyaganār. --- [TAMIL].
+## Madura Tamil-nāyaganār. --- மதுரைத்தமிழ்நாயகனார்.
 
 This poet was one of the forty-nine professors of the Madura College. His real name is not known, and the one under which he is noticed is merely titular, referring to his high attainments in Tamil literature. When the _Kural_ was submitted to the judgment of the College Bench, he expressed his approbation of that work in the following impromptu:---
 
-[TAMIL].
+எல்லாப்பொருளுமிதன்பாலுளவிதன்பா  
+லில்லாதவெப்பொருளுமில்லையாற்‌ --- சொல்லாற்  
+பரந்தபாவாலென்பயன்வள்ளுவனார்‌  
+சுரந்தபாவையத்துணை.
 
 _What is the use of works of great length, when the short work of Valluver alone is enough to edify the world? It contains all things and there is nothing which it does not contain._
 
-## Manavāladāser. --- [TAMIL].
+## Manavāladāser. --- மனவாளதாசர்.
 
-Manavāladāser was a _Brāhman_ poet of the _Vaishnava_ sect. His real name is said to have been _Pilleiperumāl Aiyankar_. He wrote a poem under the title of _Tiruvenkata Mālei_ ([TAMIL]), consisting of a centum of verses in praise of the shrine of _Vishnu_ at Tirupati. The first fifty verses of this poem is plain enough to be understood, but the last fifty have been purposely rendered obscure by the use of words which are susceptible of different interpretations.
+Manavāladāser was a _Brāhman_ poet of the _Vaishnava_ sect. His real name is said to have been _Pilleiperumāl Aiyankar_. He wrote a poem under the title of _Tiruvēnkata Mālei_ (திருவேங்கடமாலை), consisting of a centum of verses in praise of the shrine of _Vishnu_ at Tirupati. The first fifty verses of this poem is plain enough to be understood, but the last fifty have been purposely rendered obscure by the use of words which are susceptible of different interpretations.
 
-## Mandalapuruder. --- [TAMIL].
+## Mandalapuruder. --- மண்டலபுருடர்.
 
-Mandalapuruder was a _Jaina_ ascetic, equally eminent as a poet and lexicographer. He is commonly called _Vira Mandalaver_, but why so is not known. His poetic lexicon, entitled _Sūdāmani Nigandu_ ([TAMIL]), outshines all similar productions in Tamil, and its execution certainly redounds to his credit. This work, according to his own averment, was composed by him at the suggestion of **Gunapattiren**, his spiritual preceptor, and it consists of 989 stanzas, arranged in twelve chapters, and treats of the synonyms of the Hindu Deities, and of the objects of the Animal, Vegetable and Mineral kingdoms as well as of the homonymous and generic terms in nearly the same order with the _Amera Kosha_. He was also the author of an epic poem in honour of _Arha_, the God of the _Jaina_ sect. He appears to have lived in the time of the king **Krishna Rāyer**, who reigned at Vijayanagaram from CE 1508 to CE 1530, and whom he celebrates in the 10th stanza of the ninth chapter of his _Nigandu_.
+Mandalapuruder was a _Jaina_ ascetic, equally eminent as a poet and lexicographer. He is commonly called _Vira Mandalaver_, but why so is not known. His poetic lexicon, entitled _Sūdāmani Nigandu_ (சூடாமணிநிகண்டு), outshines all similar productions in Tamil, and its execution certainly redounds to his credit. This work, according to his own averment, was composed by him at the suggestion of **Gunapattiren**, his spiritual preceptor, and it consists of 989 stanzas, arranged in twelve chapters, and treats of the synonyms of the Hindu Deities, and of the objects of the Animal, Vegetable and Mineral kingdoms as well as of the homonymous and generic terms in nearly the same order with the _Amera Kosha_. He was also the author of an epic poem in honour of _Arha_, the God of the _Jaina_ sect. He appears to have lived in the time of the king **Krishna Rāyer**, who reigned at Vijayanagaram from CE 1508 to CE 1530, and whom he celebrates in the 10th stanza of the ninth chapter of his _Nigandu_.
 
-## Maruttuven Tamotharanar. --- [TAMIL].
+## Maruttuven Tamotharanar. --- மருத்துவன்தாமோதரனார்.
 
 This poet was one of the forty-nine professors of the Madura College, but nothing further is known of him than that he was also well skilled in the medical art. His encomiastic impromptu on the _Kural_, which we subjoin, is very curious, in as much as it contains at the same time a recipe for head-ache.
 
