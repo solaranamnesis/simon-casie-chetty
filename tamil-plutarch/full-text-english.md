@@ -1072,7 +1072,10 @@ Mandalapuruder was a _Jaina_ ascetic, equally eminent as a poet and lexicographe
 
 This poet was one of the forty-nine professors of the Madura College, but nothing further is known of him than that he was also well skilled in the medical art. His encomiastic impromptu on the _Kural_, which we subjoin, is very curious, in as much as it contains at the same time a recipe for head-ache.
 
-[TAMIL].
+சீந்திநீர்க்கண்டந் தெறிசுக்குத்தேனளாய்‌  
+மோந்தபின்யார்க்குந் தலைக்குத்தில்‌ --- காந்தி  
+மலைக்குத்துமால்யானை வள்ளுவர்முப்பாலாற்‌  
+தலைக்குத்துத்தீர்வுசாத்தற்கு.
 
 _O king, who resembles the huge elephant which thrusts its tusk at the mountain (taking it for an enemy)! All are relieved of their head-ache by smelling the Sindil salt,* and sliced dry-ginger mixed with honey; but Sātanar was relieved of his own head-ache by hearing the three parts of the Kural recited._*
 
@@ -1080,35 +1083,41 @@ _O king, who resembles the huge elephant which thrusts its tusk at the mountain 
 
 *) See the Life of Sitaleichatanar [Chithalai Chathanar].
 
-## Māmūlanār. --- [TAMIL].
+## Māmūlanār. --- மாமூலனார்.
 
 This poet was one of the professors of the Madura College, and his memory has been preserved only by the following impromptu which he uttered on the _Kural_ and its author:---
 
-[TAMIL].
+அறம்பொருளின்பம்‌ வீடென்னுமந்நான்கின்‌  
+றிறந்தெரிந்துசெப்பியதேவை --- மறந்தேயும்‌  
+வள்ளுவனென்பானோர்‌ பேதையவன்வாய்ச்சொற்‌  
+கொள்ளாரறிவுடையார்‌.
 
 _Valluver who after studying the four topics (of the moral philosophy, viz: Virtue, Wealth, Pleasure and Eternal happiness) has imparted their substance (through the medium of the Kural), is in reality a god, and if any shall so far forget his divine character, and say that he is a mere mortal, not only will the learned reject his saying but likewise take him for an ignorant man._
 
-## Māngkudi Marudanār. --- [TAMIL].
+## Māngkudi Marudanār. --- மாங்குடிமருதனார்.
 
 Nothing more is known of this poet than that he was one of the forty-nine professors of the Madura College. When the _Kural_ passed the College bench he commended it in the following impromptu:---
 
-[TAMIL].
+ஒதற்கெளிதாயுணர்தற்கரிதாகி  
+வேதப்பொருளாய்‌ மிகவிளங்கித் --- தீதற்றோ  
+ருள்ளுதோறுள்ளுதோறுள்ளமுாருக்குமே  
+வள்ளுவர்வாய்மொழிமாண்பு.
 
 _The beauty of Valluver's Kural is that it not only illustrates the abstruse doctrines of the Vedas; but is itself a Veda, easy to be studied, and having the effect of melting the hearts of the righteous who study it._
 
-## Mānikavāsagar. --- [TAMIL].
+## Mānikavāsagar. --- மாணிக்கவாசகர்.
 
-Mānikavāsagar was a _Saiva_ devotee and poet of considerable eminence, who flourished during the reign of the king **Arimārta Pāndiyen**, which some place between the fifth and eighth century after the Christian era. He belonged to a _Brāhman_ family of the race of **Amātiyer** at _Vādavūr_, a town on the banks of the _Vaigai_; and when we strip off the marvellous with which the particulars of his life have been blended in the _Tiruvādavūrer Purānam_, it would appear that early in life his superior learning, and qualifications having attracted the notice of the king he was summoned to the Court, and appointed Minister of state, under the title of _Tenneven Piramarāyen_, but sometime afterwards when sent on a commission to buy horses for the king, yielding to a delusion, he expended the money with which he was entrusted in founding and endowing a _Saiva_ temple at Tiruperunturei, and consequently incurred the royal displeasure and was put in irons and cast into prison. At this juncture the _Vaigai_ river happened to overflow its banks, threatening destruction to the capital, and the king considering it as a retributive punishment sent by _Siva_ for ill-treating Mānikavasagar, set him at liberty. He thereupon assumed the ascetic life and after making pilgrimages to other _Saiva_ shrines, established himself at Chillambaram, where he died in the thirty-second year of his age. While he was residing at Chillambaram, he distinguished himself by defeating the _Buddhist_ priests, who went over there from Ceylon, and challenged the _Brāhmans_ to a disputation, as related in the sixth Chapter of the _Tiruvādavūrer Purānam_, of which we have published an English translation in the second number of the Journal of the Ceylon Branch of the Royal Asiatic Society. He is known as the author of a Tamil Grammar, under the title of _Kuvaleiyānandam_ ([TAMIL]), besides two other works respectively called _Sittambala-kovei_ ([TAMIL]), and _Tiruvāsagam_ ([TAMIL]). The _Sittambala-kovei_, consisting of 400 stanzas, is an epithalamium in which the mutual passion and love of _Siva_ and his consort _Pārvati_ are described with glowing imagery, and the Hindus consider it an allegorical poem capable of a spiritual interpretation. The _Tiruvasagam_ contains a series of hymns addressed to _Siva_, which the Hindus esteem highly as being most affecting; hence the proverb, ([TAMIL]). Those who will not be moved by the _Tiruvāsagam_ (the holy word) will not be moved by any other _Vāsagam_ (word). The hymns are certainly very impressive, as may be judged by the specimen which Mr. **Ellis** has quoted in his Commentary on the _Kural_.
+Mānikavāsagar was a _Saiva_ devotee and poet of considerable eminence, who flourished during the reign of the king **Arimārta Pāndiyen**, which some place between the fifth and eighth century after the Christian era. He belonged to a _Brāhman_ family of the race of **Amātiyer** at _Vādavūr_, a town on the banks of the _Vaigai_; and when we strip off the marvellous with which the particulars of his life have been blended in the _Tiruvādavūrer Purānam_, it would appear that early in life his superior learning, and qualifications having attracted the notice of the king he was summoned to the Court, and appointed Minister of state, under the title of _Tenneven Piramarāyen_, but sometime afterwards when sent on a commission to buy horses for the king, yielding to a delusion, he expended the money with which he was entrusted in founding and endowing a _Saiva_ temple at Tiruperunturei, and consequently incurred the royal displeasure and was put in irons and cast into prison. At this juncture the _Vaigai_ river happened to overflow its banks, threatening destruction to the capital, and the king considering it as a retributive punishment sent by _Siva_ for ill-treating Mānikavasagar, set him at liberty. He thereupon assumed the ascetic life and after making pilgrimages to other _Saiva_ shrines, established himself at Chillambaram, where he died in the thirty-second year of his age. While he was residing at Chillambaram, he distinguished himself by defeating the _Buddhist_ priests, who went over there from Ceylon, and challenged the _Brāhmans_ to a disputation, as related in the sixth Chapter of the _Tiruvādavūrer Purānam_, of which we have published an English translation in the second number of the Journal of the Ceylon Branch of the Royal Asiatic Society. He is known as the author of a Tamil Grammar, under the title of _Kuvaleiyānandam_ (குவலையானந்தம்), besides two other works respectively called _Sittambala-kōvei_ (சிற்றம்பலக்கோவை), and _Tiruvāsagam_ (திருவாசகம்). The _Sittambala-kovei_, consisting of 400 stanzas, is an epithalamium in which the mutual passion and love of _Siva_ and his consort _Pārvati_ are described with glowing imagery, and the Hindus consider it an allegorical poem capable of a spiritual interpretation. The _Tiruvasagam_ contains a series of hymns addressed to _Siva_, which the Hindus esteem highly as being most affecting; hence the proverb, (திருவாசகத்திலுருகார் ஒருவாசகத்திலுமுருகார்). Those who will not be moved by the _Tiruvāsagam_ (the holy word) will not be moved by any other _Vāsagam_ (word). The hymns are certainly very impressive, as may be judged by the specimen which Mr. **Ellis** has quoted in his Commentary on the _Kural_.
 
-## Mārgasahāya. --- [TAMIL].
+## Mārgasahāya Dēver. --- மார்க்கசகாயதேவர்.
 
-Mārgasahāya Dever is said to have been born a poet, and hence he had the title of _Vara Kavi_; but we are ignorant both of the place of his birth, and the time of his existence. Of his compositions we have met with only a poem of the class called _Pillei tamil_ ([TAMIL]), describing the gestures and amusements of the childhood of _Skanda_ in the character of _Muruga_, as worshipped at Tiruvirinchei, and which has acquired some repute amongst the _Saivas_.
+Mārgasahāya Dēver is said to have been born a poet, and hence he had the title of _Vara Kavi_; but we are ignorant both of the place of his birth, and the time of his existence. Of his compositions we have met with only a poem of the class called _Pillei tamil_ (பிள்ளைத்தமிழ்), describing the gestures and amusements of the childhood of _Skanda_ in the character of _Muruga_, as worshipped at Tiruvirinchei, and which has acquired some repute amongst the _Saivas_.
 
-## Meikanda Dever. --- [TAMIL].
+## Meikanda Dēver. --- மெய்கண்டதேவர்.
 
-Meikanda Dever, whose proper name was _Svetavanaperumal_, claimed his descent from a _Velāla_ family at _Vennei-nellūr_, a town situated on the river _Pennei_, in the Carnatic. He is reputed to have been a pupil of **Paranjoti Tambiran**, who flourished during the eleventh century of the Christian era. He was an able poet, well studied in the Hindu metaphysics and theology. Of his various works the most admired is the _Sīvagnana Potham_ ([TAMIL]), a metaphysical and theological treatise, which has recently been translated into English by the Rev. **H. R. Hoisington**, and published in the fourth volume of the Journal of the American Oriental Society, "as worthy of notice and of preservation" covering as it does nearly the whole field of Hindu philosophy.
+Meikanda Dēver, whose proper name was _Svetavanaperumal_, claimed his descent from a _Velāla_ family at _Vennei-nellūr_, a town situated on the river _Pennei_, in the Carnatic. He is reputed to have been a pupil of **Paranjoti Tambiran**, who flourished during the eleventh century of the Christian era. He was an able poet, well studied in the Hindu metaphysics and theology. Of his various works the most admired is the _Sivagnana Pōtham_ (சிவஞானபோதம்), a metaphysical and theological treatise, which has recently been translated into English by the Rev. **H. R. Hoisington**, and published in the fourth volume of the Journal of the American Oriental Society, "as worthy of notice and of preservation" covering as it does nearly the whole field of Hindu philosophy.
 
-## Mosikiranar. --- [TAMIL].
+## Mōsikiranar. --- மோசிகீரனார்.
 
 This poet was one of the forty-nine professors of the Madura College; but there is nothing remaining of his compositions save the following impromptu on the _Kural_ merely describing the divisions of that work.
 
