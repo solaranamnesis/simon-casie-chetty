@@ -1274,53 +1274,75 @@ Of the biography of this poet very few particulars have been preserved. All that
 
 Ottakūter was one of the poets who flourished at the court of **Rājendra Chola**, and that of his son **Kulotunga Chola**. He excelled all his colleagues in the composition of war chants, called _Parani_. His _Kalingattu Parani_ (கலிங்கத்துபபரணி), in which he celebrated the conquest of the _Kalinga_ country by **Kulotunga Chola** is a matchless production of the kind, and it is related that the hero of the poem was so much pleased with it, that he rewarded him by rolling a golden coconut at the end of every stanza, as it was recited; but this is manifestly an oriental exaggeration. The _Uttarakānda_ which forms the seventh book of the _Ramayanam_ was composed by Ottakūter, and was with the approval of **Kamber** himself incorporated with his own work. This though written in the same metre and style as the other six books, yet on a close inspection an inferiority is perceptible, as much as can be discovered between the first part of **Dryden's** _Absolom_ and _Achitophel_, and the second part of it by **Tate**. A good deal of rivalry appears to have existed between Ottakūter and **Kamber**. On one occasion the king going out on a visit to one of his mistresses, found on his return that the door of the palace was closed against him by the Queen, and that no entreaty or persuasion would make her relent. The king at length sent for Ottakūter, and desired him to soothe her by his song, and cause her to open the door; and he thereupon addressed her in the following impromptu:
 
-[TAMIL].
+நானேயினியுன்னை வேண்டுவதில்லை நளினமொழித்  
+தேனேகபாடந்‌ திறந்தருள்வாய்‌ திறவாதிடிலோ  
+வானேழ்புரக்குமிரவிகுலாதிபனின்‌ வாயில்வந்தாற்‌  
+றானேதிறக்குமுன்கையிதழாகியதாமரையே.
 
 _O thou whose speech is as sweet as honey! No more shall I entreat thee. Deign to open the door, if not, the arrival at thy door of the king of the solar race who commands the seven clouds, will make thy lotus-like hand open it spontaneously._
 
-But this instead of soothing her had only the contrary effect. She bolted the door with an additional bolt, saying, ([TAMIL]), i. e. "_Ottakūter's song is worth two bolts._" The king next sent for **Kamber** who knowing full well the weak point in women flattered her self-conceit in the following impromptu, and obtained his request:---
+But this instead of soothing her had only the contrary effect. She bolted the door with an additional bolt, saying, (ஒட்டக்கூத்தன்பாட்டுக்கு இரட்டைத்தாப்பாள்), i. e. "_Ottakūter's song is worth two bolts._" The king next sent for **Kamber** who knowing full well the weak point in women flattered her self-conceit in the following impromptu, and obtained his request:---
 
-[TAMIL].
+இழையொன்றிரண்டு வகிர்செய்தநுண்ணிடையேந்துசெம்பொற்‌  
+குழையொன்றிரண்டு விழிமடவீர்‌ கொண்டகோபந்தணி  
+மழையொன்றிரண்டுபெய்மாணாபரணனின்‌ வாயில்வந்தாற்‌  
+பிழையொன்றிரண்டு பொறுப்பதல்லோகடன்‌ பூவையற்கே.
 
 _O thou with the slender waist, and dark blue eyes and ears adorned with golden jewels! Calm thine anger; for when the illustrious sovereign whose country is blessed with rain twice a month, waits at thy door, it is thy duty to forgive him once, nay even twice._
 
-## Padikāsu. --- [TAMIL].
+## Padikāsu. --- படிக்காசு.
 
-Padikāsu was a native of _Kalandei_, in the Carnatic. He flourished as a poet at the Court of **Kilaven Setupati**, otherwise called **Regunatha Setupati**, who reigned at Ramnad from CE 1686 to 1723. His principal work was a poem, entitled _Tondamandala Sadagam_ ([TAMIL]), consisting of a hundred stanzas in praise of the _Tonda_ country. He appears to have been very expert in the composition of poetical epistles, some of which are still extant. It should, however, be remarked that he was excessively conceited of his own accomplishments, and moreover a severe satirist of his time, calling himself in that respect the representative of **Kālamegam**.
+Padikāsu was a native of _Kalandei_, in the Carnatic. He flourished as a poet at the Court of **Kilaven Setupati**, otherwise called **Regunatha Setupati**, who reigned at Ramnad from CE 1686 to 1723. His principal work was a poem, entitled _Tondamandala Sadagam_ (தொண்டமண்டலசதகம்), consisting of a hundred stanzas in praise of the _Tonda_ country. He appears to have been very expert in the composition of poetical epistles, some of which are still extant. It should, however, be remarked that he was excessively conceited of his own accomplishments, and moreover a severe satirist of his time, calling himself in that respect the representative of **Kālamegam**.
 
-## Padumanār. --- [TAMIL].
+## Padumanār. --- பதுமனார்.
 
 This poet appears to have flourished at an early period; but no particulars of his life have reached us. He is however well known as the author of a learned commentary on the _Nāladyār_, a poem containing 400 stanzas on moral subjects, and supposed to have been the joint composition of four hundred poets who visited the court of a certain _Pāndiya_ king, each of them being the author of a stanza.
 
-## Panambāranār. --- [TAMIL].
+## Panambāranār. --- பனம்பாரனார்.
 
-Panambāranār, so called from the town _Panambāram_, where he lived, was one of the twelve disciples of **Agastiyer**. Having devoted himself with great assiduity to study, he acquired a high reputation as a grammarian and poet, and wrote an able treatise on Grammar under the title of _Panambāranār Sūtram_ ([TAMIL]). He also wrote the preface to the _Tolkāppiyam_, a Grammar which his fellow student **Tolkāppiyanār** had composed.
+Panambāranār, so called from the town _Panambāram_, where he lived, was one of the twelve disciples of **Agastiyer**. Having devoted himself with great assiduity to study, he acquired a high reputation as a grammarian and poet, and wrote an able treatise on Grammar under the title of _Panambāranār Sūtram_ (பனம்பாரனார்சூத்திரம்). He also wrote the preface to the _Tolkāppiyam_, a Grammar which his fellow student **Tolkāppiyanār** had composed.
 
-## Paraner. --- [TAMIL].
+## Paraner. --- பரணர்.
 
 Paraner was one of the forty-nine professors of the Madura College and primus inter pares; but scarcely anything is known of his biography. He was present on the College bench when the _Kural_ was submitted to its judgement, and is stated to have expressed his opinion of that work in the following impromptu:---
 
-[TAMIL].
+மாலுங்குறளாய்‌ வளர்ந்திரண்டுமாணடியான்‌  
+ஞாலமுழுதுநயந்தளந்தான்‌ --- வாலறிவின்‌  
+வள்ளுவருந்தங்குறள்‌வெண்பாவடியால்வையத்தா  
+ருள்ளுவவெல்லாமளந்தாரோந்து.
 
 _Māl (Vishnu) in his Kural or dwarfish incarnation measured the whole earth, with his two expanded feet; but Valluver has measured the thoughts of all mankind, with his (stanza of) two short feet._
 
-## Paranjoti Tambirān. --- [TAMIL].
+## Paranjōti Tambirān. --- பரஞ்சோதித்தம்பிரான்.
 
-Paranjoti Tambirān, who was a _Saiva_ ascetic and superior of the _Saiva Matam_ at Madura during the reign of **Athivira Pāndiyen**, signalized himself by his profound skill in the Sanskrit and Tamil languages and poetry, as well as in the Hindu metaphysical philosophy. At the request of the king, by whom he was patronized, he wrote for him a poem, under the title of _Tiruvilliyādel Purānam_ ([TAMIL]) comprising 3363 stanzas, in 72 cantos. It treats of the sixty-four sports of _Siva_ at Madura, as originally related in the Sanskrit legend called _Hāla-sya Mahatmya_; and Professor **Wilson**, in his Historical Sketch of the Kingdom of _Pāndiya_, states that it is reputed to have been written in the _Saka_ year 973, corresponding with CE 1051.* Paranjoti Tambirān also wrote for himself another poem, entitled _Potikali venba_, ([TAMIL]) on the same subject as the above, but on a contracted scale, and in the form of hymns addressed to _Siva_.
+Paranjōti Tambirān, who was a _Saiva_ ascetic and superior of the _Saiva Matam_ at Madura during the reign of **Athivira Pāndiyen**, signalized himself by his profound skill in the Sanskrit and Tamil languages and poetry, as well as in the Hindu metaphysical philosophy. At the request of the king, by whom he was patronized, he wrote for him a poem, under the title of _Tiruvilliyādel Purānam_ (திருவிளையாடற்புராணம்) comprising 3363 stanzas, in 72 cantos. It treats of the sixty-four sports of _Siva_ at Madura, as originally related in the Sanskrit legend called _Hāla-sya Mahatmya_; and Professor **Wilson**, in his Historical Sketch of the Kingdom of _Pāndiya_, states that it is reputed to have been written in the _Saka_ year 973, corresponding with CE 1051.* Paranjoti Tambirān also wrote for himself another poem, entitled _Pōtikali venbā_, (போற்றிக்கலிவெண்பா) on the same subject as the above, but on a contracted scale, and in the form of hymns addressed to _Siva_.
 
 *) See Journal of the Royal Asiatic Society, Vol. 3. p. 203.
 
 An analysis of the _Tiruvilliyādel Purānam_ has been published by the Rev. **W. Taylor**, in his Oriental Historical Manuscripts, Vol. 1.
 
-## Parimel-azhagar. --- [TAMIL].
+## Parimel-azhagar. --- பரிமேலழகர்.
 
 Parimel-azhagar was a _Brahman_ poet who owes his celebrity to a Commentary which he wrote on the _Kural_; but nothing is known of his personal history, or the era of his existence. There are nine other Commentaries on the _Kural_ written by different poets at different times, but his work has thrown them all in the shade, and fixed itself in popular esteem as the most classical production. Mr. **Ellis** has availed himself of the aid of this work in framing the valuable notes and illustrations which accompany his metrical version of the first twelve chapters of the _Kural_; and the Rev. Mr. **Drew** has published a great portion of it with his prose translation of the sixty-three chapters of the _Kural_.
 
-## Patirakiriyār. --- [TAMIL].
+## Patirakiriyār. --- பத்திரகிரியார்.
 
 Patirakiriyār is generally believed to have been a king, but of what country is not known. He was a contemporary with **Pattanattupilleiyār**, and like him abandoning all his worldly possessions became a naked _Sanniyāsi_, and begged his bread from door to door, enduring the privation of everything that could in any way have served to gratify his senses. He left a series of 235 couplets, collectively known as his _Pulambel_ or laments, and of which we subjoin a few as being illustrative of his religious opinions.
 
-[TAMIL].
+என்னையறியாதிருந்தாட்டுஞ்சூத்திரிநின்‌  
+றன்னையறிந்து தவம்பெறுவதெக்காலம்‌.
+
+ஆதிமுதலாகிநின்ற வரியென்றவட்சரத்தை  
+யோதியறிந்துள்ளே யுணர்வதினியெக்காலம்‌.
+
+சாத்திரத்தைச்சுட்டுச்‌ சதுமறையைப்பொய்யாக்கிச்‌  
+சூத்திரத்தைக்கண்டு சுகம்பெறுவதெக்காலம்‌.
+
+உளியிட்டகல்லுமுருப்பிடித்தசெஞ்சாந்தும்‌  
+புளியிட்டசெம்பும்‌ பொருளாவதெக்காலம்‌.
+
+ஆதிகபிலர்சொன்ன வாகமத்தின்சொற்படியே  
+சாதிவரையில்லாமற்‌ சஞ்சரிப்பதெக்காலம்‌.
 
 _Oh! When will the time come that I shall know the secret mover of the machinery within me, and obtain the reward of my penance?_
 
@@ -1330,16 +1352,25 @@ _Oh! When will the time come that I shall burn the Sastras, and prove the four V
 
 _Oh! When will the time come that the chiselled stone, the moulded red clay, and the burnished copper shall be rendered profitable?_
 
-_Oh! When will the time come that men shall live together without any distinction of caste, according to the doctrine promulgated in the 
-beginning by Kapiler?_
+_Oh! When will the time come that men shall live together without any distinction of caste, according to the doctrine promulgated in the beginning by Kapiler?_
 
-## Pattanattu-pilleiyār. --- [TAMIL].
+## Pattanattu-pilleiyār. --- பட்டணத்துப்பிள்ளையார்.
 
-Pattanattu-pilleiyār was a celebrated philosopher, who lived at _Kāveripatnam_, in the Carnatic, some time about the 10th century of the Christian era. He belonged to the _Chetty_ caste, and his real name is said to have been **Venkata Chetty**. He was possessed of great wealth, which he acquired by trading with Ceylon and the neighbouring islands. One day hearing that some of his ships which had been missing for a time returned to the port laden with gold dust, he went to see them, and during his absence, a _Saiva_ mendicant called at his house, and asked alms of his wife; but she refused, saying that she could not give any when her husband was not at home. The _Saiva_ mendicant thereupon went away, leaving with her a slip of _olah_ wrapt in a rag, and requesting her to deliver it to her husband on his return. When Pattanattu-pilleiyār returned to his house, he looked into the slip of _olah_ and finding the words ([TAMIL]) "_Mind that even a needle with a broken eye will not follow thee in thy last day_," he at once imbibed an aversion to the worldly life, gave away all his wealth to the people around, and, abandoning his house, became a naked ascetic, and passed the remainder of his days, subsisting wholly on alms, and esteeming a potsherd and pure gold alike. He had a sister, who, ashamed of his conduct, attempted to poison him, but without success. He latterly took up his abode in a wood at Trivatur, where he caused the cowherds, who resorted to the wood to pasture their cattle, to bury him by day up to the shoulders, leaving only his neck and head above the ground, and take him up at night-fall; but one day having been inadvertently allowed to remain buried during the night, he was found dead the next morning. He appears to have been likewise a poet, as we have a collection of poems which he composed in praise of the different _Saiva_ shrines he had visited, besides a number of elegiac verses which he ejaculated extempore at the cremation of his mother's corpse.
+Pattanattu-pilleiyār was a celebrated philosopher, who lived at _Kāveripatnam_, in the Carnatic, some time about the 10th century of the Christian era. He belonged to the _Chetty_ caste, and his real name is said to have been **Venkata Chetty**. He was possessed of great wealth, which he acquired by trading with Ceylon and the neighbouring islands. One day hearing that some of his ships which had been missing for a time returned to the port laden with gold dust, he went to see them, and during his absence, a _Saiva_ mendicant called at his house, and asked alms of his wife; but she refused, saying that she could not give any when her husband was not at home. The _Saiva_ mendicant thereupon went away, leaving with her a slip of _olah_ wrapt in a rag, and requesting her to deliver it to her husband on his return. When Pattanattu-pilleiyār returned to his house, he looked into the slip of _olah_ and finding the words (காதற்றவூசியும் வாராதுகாணுங் கடைவழிக்கே) "_Mind that even a needle with a broken eye will not follow thee in thy last day_," he at once imbibed an aversion to the worldly life, gave away all his wealth to the people around, and, abandoning his house, became a naked ascetic, and passed the remainder of his days, subsisting wholly on alms, and esteeming a potsherd and pure gold alike. He had a sister, who, ashamed of his conduct, attempted to poison him, but without success. He latterly took up his abode in a wood at Trivatur, where he caused the cowherds, who resorted to the wood to pasture their cattle, to bury him by day up to the shoulders, leaving only his neck and head above the ground, and take him up at night-fall; but one day having been inadvertently allowed to remain buried during the night, he was found dead the next morning. He appears to have been likewise a poet, as we have a collection of poems which he composed in praise of the different _Saiva_ shrines he had visited, besides a number of elegiac verses which he ejaculated extempore at the cremation of his mother's corpse.
 
 Pattanattu-pilleiyār was a monotheist; but he identified the only one God with _Siva_, and also maintained the doctrine of metempsychosis, teaching that emancipation from future birth, and absorption into the Divine essence was the supreme bliss. He at the same time denied that man was a free-agent, and held that he was incapable of doing either good or evil by himself, as may be seen by the following stanzas which we quote from one of his works:---
 
-[TAMIL].
+தவியாதிருநெஞ்சமே தில்லைமேவியசங்கரனைப்‌  
+புவியார்ந்திருக்கின்ற ஞானகரனைப்‌ புராந்தகனை  
+யவியாவிளக்கையென்னம்பலத்தாடியையைந்தெழுத்தாற்‌  
+செவியாமனீசெவித்தாற்‌ பிறவாமுத்திசித்திக்குமே.
+
+அன்னையெத்தனையெத்தனையன்னையோவப்பனெத்தனையெத்தனையப்பனோ --- பின்னையெத்தனையெத்தனைபெண்டிரோ பிள்ளையெத்தனையெத்தனைபிள்ளையோ --- முன்னையெத்தனை யெத்தனைசென்மமோமூடனாயடியேனுமறிந்திலே --- னின்னமெத்தனை யெத்தனை சென்மமோயென்செய்வேன்‌கச்சியேகம்பநாதனே.
+
+நன்னாரிற்பூட்டிய சூத்திரப்பாவை நன்னார்தப்‌பினாற்  
+றன்னாலுமாடிச்‌ சலித்திடுமோவந்தத்தன்மையைப்போ  
+லுன்னாலியானுந் திரிவதல்லான்‌ மற்றுனைப்பிரிந்தா  
+லென்னாலிங்காவதுண்டோவிறைவாகச்‌சியேகம்பனே.
 
 _O my heart! do not be desponding. If thou wilt meditate on the five letters* and devoutly worship Sankara (Siva), who dwells at Tillei, who fills the earth with his wisdom; who destroyed the (rebellious) cities; who is the lamp which is never extinguished; and who dances at the Sacred Court, surely thou shalt obtain liberation from future birth and be absorbed into his divine essence._
 
@@ -1347,21 +1378,21 @@ _Oh Ekamba, (Siva) of Kachchi! Can I, an ignorant dog, know how many fathers or 
 
 _Oh Ekamba, of Kachchi! Will the puppet which is moved by a string, move by itself after the string shall have been broken? Am I not moved by thee in like manner! Therefore can I do anything by myself, if I am separated from thee?_
 
-*) The five letters of the Hindu Cabala, [TAMIL].
+*) The five letters of the Hindu Cabala, க, ம, சி, வா, ய.
 
-## Pavananti. --- [TAMIL].
+## Pavananti. --- பவணந்தி.
 
-The name of Pavananti has been handed down as the author of the _Nannūl_ ([TAMIL]), a treatise on Grammar which as Mr. **Stokely** has justly remarked, "stands conspicuous among the grammatical treatises of all nations, for logical arrangement and comprehensive brevity;" but nothing more is known of him than that he was the son of **Sanmathi Muni**, a _Jaina_ sage, who lived at Sanakāpuram, and that he wrote his work under the auspices of a king named **Kangkan**. He had in the _Nannūl_ proposed to treat his subject under five heads, viz: ([TAMIL]) letters, ([TAMIL]) words, ([TAMIL]) matter, ([TAMIL]) versification, and ([TAMIL]) embellishment; but having died before he completed his design, the work therefore comprises only the first two heads.
+The name of Pavananti has been handed down as the author of the _Nannūl_ (நன்னூல்), a treatise on Grammar which as Mr. **Stokely** has justly remarked, "stands conspicuous among the grammatical treatises of all nations, for logical arrangement and comprehensive brevity;" but nothing more is known of him than that he was the son of **Sanmathi Muni**, a _Jaina_ sage, who lived at Sanakāpuram, and that he wrote his work under the auspices of a king named **Kangkan**. He had in the _Nannūl_ proposed to treat his subject under five heads, viz: (எழத்து) letters, (சொல்) words, (பொருள்) matter, (யாப்பு) versification, and (அணி) embellishment; but having died before he completed his design, the work therefore comprises only the first two heads.
 
-## Pānapattiran. --- [TAMIL].
+## Pānapattiran. --- பாணபத்திரன்.
 
 Pānapattiran was a minstrel, who lived at the court of **Varaguna Pandiyen** at Madura. Another minstrel named **Yemanāthen**, who came from the north having exhibited his art before the king, and received rewards, became elated with success and challenged a contest in playing on the lute. Pānapattiren accepted the challenge, and by defeating the rival in the contest pleased the king so much that the king honoured him with a triumphant entry of the city on an elephant, and loaded him with presents. Shortly afterwards he incurred the displeasure of the king by purloining some valuables from the palace, and was consequently deprived of all his emoluments and forbidden the royal presence. Finding himself in great straits, he contrived a device to obtain his livelihood for the future. Having been informed that **Perumākkothei**, who then reigned over the _Chera_ country, was extremely devoted to _Saiva_ worship, he forged a poetical letter in the name and character of _Siva_, and took it to the king, saying that it was given to him by _Siva_ to be delivered to the king. The purport of the letter was, "I _Siva_, who dwell in the city of _Alavei_ (Madura), which is surrounded by a wall, and adorned with palaces, say to the king _Chera_ that Pānapattiren, a minstrel and one as dearly beloved by me as thou art, is coming over to wait on thee. As thou hast acquired renown by lavishing thy wealth upon poets, give him what he wants and dismiss him." The king in his blind zeal to _Siva_ believing the letter to have been actually indited by the god himself, received it with great solemnity, and placing the bearer on the throne, presented him with considerable wealth. He then returned to Madura, and lived there during the remainder of his life, attending the temple thrice a day, and singing the praises of the god to the lute. It is stated that his wife also was well accomplished in singing, and that she acquired great fame by having carried away the palm in a contest in singing with a songstress whom the king **Rājarāja Pāndiyen** had sent for from Ceylon.
 
-## Periya Āzhvār. --- [TAMIL].
+## Periya Āzhvār. --- பெரியாழ்வார்.
 
-This poet was a native of _Villiputtūr_, and has had the distinction of carrying a prize in a poetical contest in the court of **Vallabadeva Pāndiyen**, king of Madura. He is considered as one of the _Āzhvārs_ or special votaries of _Vishnu_, and that four-hundred stanzas of the _Nālāyiraprabhandam_ ([TAMIL]) are said to have been contributed by him.
+This poet was a native of _Villiputtūr_, and has had the distinction of carrying a prize in a poetical contest in the court of **Vallabadeva Pāndiyen**, king of Madura. He is considered as one of the _Āzhvārs_ or special votaries of _Vishnu_, and that four-hundred stanzas of the _Nālāyiraprabhandam_ (நாலாயிரபிரபந்தம்) are said to have been contributed by him.
 
-## Perunchītanār. --- [TAMIL].
+## Perunchītanār. --- பெருஞ்சீத்தனார்.
 
 No particulars of the life of this poet are known, except that he was one of the forty-nine professors of the Madura College. His impromptu on the merits of the _Kural_, however, has been preserved, and we give it below.
 
