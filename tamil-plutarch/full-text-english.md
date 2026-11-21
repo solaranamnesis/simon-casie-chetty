@@ -1575,51 +1575,64 @@ This poet was a native of _Māvalipuram_, near Sadras; but being deified by the 
 
 Nothing further is known of the personal history of Pūdenchendanār than that he was the son of **Sengundūr kizhār**, one of the forty-nine professors of the Madura College. He wrote a didactic poem in forty stanzas, under the title of _Inyānālpadu_ (இனியாநாற்பது), containing an enumeration of everything which is pleasant. It is ranked amongst the works which had received the approbation of the College, and we subjoin a stanza from it as specimen.
 
-[TAMIL].
+தங்கண்மரபுடையார்‌ தாம்வாழ்தன்‌முன்னினிதே  
+யங்கண்விசும்பினகனிலாக்காண்பினிதே  
+பங்கமில்செய்கையராகிப்பரிந்தியார்க்கு  
+மன்புடையராதலினிது.
 
 _Pleasant it is for men to live happily together with their kindred, and pleasant it is to behold the full-moon among the beautiful clouds; but more pleasant is the love kindly bestowed on all by those whose actions are free from guilt._
 
-## Rāmachandra Kavirāyer. --- [TAMIL].
+## Rāmachandra Kavirāyer. --- இராமசந்திரகவிராயர்.
 
-The merits of Rāmachandra Kavirāyer as an able poet and elegant writer of Dramas in modern times cannot be denied. He was a native of _Rajanellūr_, in the Carnatic, but resided chiefly at Madras, where his high attainments had procured for him the friendship and countenance of Mr. **Ellis**, the accomplished Orientalist. He wrote the following five dramas: 1. _Sakuntala Vīlāsam_ ([TAMIL]), 2. _Pārada Vīlāsam_ ([TAMIL]), 3. _Tārukā Vīlāsam_ ([TAMIL]), 4. _Iraniya Vāsagappā_ ([TAMIL]), and 5. _Rangoon-chandei Nādagam_ ([TAMIL]) besides an ode in honour of Mr. **Ellis**, eulogizing his wise administration of the Collectorate of Madras. The following stanza is reported to have been addressed to the poet by Mr. **Ellis**:
+The merits of Rāmachandra Kavirāyer as an able poet and elegant writer of Dramas in modern times cannot be denied. He was a native of _Rajanellūr_, in the Carnatic, but resided chiefly at Madras, where his high attainments had procured for him the friendship and countenance of Mr. **Ellis**, the accomplished Orientalist. He wrote the following five dramas: 1. _Sakuntala Vīlāsam_ (சகுந்தலைவிலாசம்), 2. _Pārada Vīlāsam_ (பாரதவிலாசம்), 3. _Tārukā Vīlāsam_ (தாருகாவிலாசம்), 4. _Iraniya Vāsagappā_ (இரணியவாசகப்பர்), and 5. _Rangoon-chandei Nādagam_ (இரங்கூன்சண்டைநாடகம்) besides an ode in honour of Mr. **Ellis**, eulogizing his wise administration of the Collectorate of Madras. The following stanza is reported to have been addressed to the poet by Mr. **Ellis**:
 
-[TAMIL].
+செந்தமிழ்ச்செல்வனு மோராயிரந்தலைச்‌ சேடனும்யாழ்‌  
+சுந்தரத்தோடிசைவல்லோனும்யாவருந் தோத்திரஞ்செய்‌  
+கந்தனைச்சொல்லுங்‌ கவிராமசந்திரனைக்‌ கண்டுவெட்கி  
+யந்தரம்வெற்புழி பாதாளலோகமடைந்தனரே.
 
 _He who skilfully plays on the lute (meaning Nārada), and he who is enriched with the knowledge of the elegant Tamil (meaning Agastiyer), and the thousand headed Sesha, seeing the poet Rāmachandra, who chants the praise of Skanda, the object of the praise of all, were ashamed (by a consciousness of inferiority), and quitting the earth, one betook himself to the sky, another to the mountain (Pothiya), and the other to the nether world._
 
-## Rāmānuja Kavirāyer. --- [TAMIL].
+## Rāmānuja Kavirāyer. --- இராமானுசக்கவிராயர்.
 
 Of the poets who flourished at Madras in the first half of the present century Rāmānuja Kavirāyer claims a prominent place, on account of his superior talents. He was Moonshee to the Rev. **W. H. Drew** of the London Missionary Society, and proved himself a valuable helper to that gentleman in his Tamil studies and pursuits. When Mr. **Drew** published the first volume of his English version of the _Kural_ in 1840, Rāmānuja Kavirāyer was alive, but died before the second volume came out in 1852, and Mr. **Drew** in the notice affixed to the second volume mourns his death "as a loss not only to himself, but also to the interests of the Tamil literature generally," and adds that "his thorough knowledge of the language; the native vigour of his mind; his power of long continued, patient labour; his delight in work; together with his manliness and integrity of character so remarkable in a Hindu, made him to me a helper in my Tamil studies and pursuits, whose value I could not over-estimate. But he is gone; and I shall enjoy his aid no more." He was the author of an "Amplification of **Parimelazhagar's** comments on the _Kural_," which Mr. **Drew** has published with his English version of that work.
 
-## Rāsappa Kavirāyer. --- [TAMIL].
+## Rāsappa Kavirāyer. --- இராசப்பக் கவிராயர்.
 
-This poet was a native of _Kuttālam_ in the Carnatic, and is well known as the author of a popular Drama, under the title of _Kuttāla-kuravanji_ ([TAMIL]), in honour of _Siva_ in his character of _Kuttāla Nāther_, as he is worshipped at Kuttālam. Neither the date of his existence, nor his personal history is forthcoming; but that he was an able dramatist may be inferred from the style of his Drama, which now generally serves as a model.
+This poet was a native of _Kuttālam_ in the Carnatic, and is well known as the author of a popular Drama, under the title of _Kuttāla-kuravanji_ (குற்றாலக்குறவஞ்சி), in honour of _Siva_ in his character of _Kuttāla Nāther_, as he is worshipped at Kuttālam. Neither the date of his existence, nor his personal history is forthcoming; but that he was an able dramatist may be inferred from the style of his Drama, which now generally serves as a model.
 
-## Revanātiyār. --- [TAMIL].
+## Rēvanātiyār. --- இரேவனாத்தியர்.
 
-Revanātiyār was connected with the learned circle of _Saiva_ ascetics at Chillambaram, where he lived and died. He claims notice as the author of a metrical lexicon of Tamil synonyms, which though much briefer than **Mandalapuruder's** is yet better adapted for memory.
+Rēvanātiyār was connected with the learned circle of _Saiva_ ascetics at Chillambaram, where he lived and died. He claims notice as the author of a metrical lexicon of Tamil synonyms, which though much briefer than **Mandalapuruder's** is yet better adapted for memory.
 
-## Sampanter. --- [TAMIL].
+## Sampanter. --- சம்பந்தர்.
 
 Sampanter is celebrated as one of the three champions of the _Saiva_ faith against the _Jainas_ in the reign of the king **Kūna Pāndiyen**. The particulars of his life are related at great length in the _Tirutonder Purānam_; but with the exception of what we have here extracted, the rest is too much blended with the marvellous to deserve any notice. It appears that he was born of _Brāhman_ parents of the tribe of **Kauniyer**, at _Shiyāli_, in the Carnatic. Such was the precocity of his genius, that while yet a child he acquired marked distinction as a poet, and visiting the different _Saiva_ shrines chanted a _Pathigam_ (a poem of ten stanzas) in praise of each. About this time **Kūna Pāndiyen** embraced the _Jaina_ religion, and exerted his utmost to establish it throughout his kingdom, but Sampanter having succeeded in curing the king of a fever, which according to the legend had baffled the drugs and spells of the _Jaina_ priests, he not only reconverted him to the _Saiva_ religion, but at the same time instigated him to impale alive on the banks of the _Vygai_ river at Madura no fewer than eight thousand _Jainas_ who had disputed with him and been vanquished. Though he had always a strong predilection for the ascetic life, yet in his sixteenth year upon the urgent entreaty of his father, he married the daughter of **Nambīyandār Nambi**, a _Brahman_ of Tirunellūr; but both he and his wife died on their wedding day, whilst worshipping in the temple at Tirunellūr. The number of _Pathigams_ he composed was 16,000, of which only 384 are now extant. Amongst the lost _Pathigams_ are reckoned one in honour of the _Saiva_ shrine of Tirukkonāmalei (_Trincomalie_), and another in honour of the _Saiva_ shrine at Tirukethichuram (_Mantotte_).
 
 ## Sanbagavadivi. --- சண்பகவடிவி.
 
-Sanbagavadivi, styled by way of eminence _Tamil Arival_ or one versed in the Tamil language and literature, was a poetess of superior wit and accomplishments. Her history divested of its fabulous additions is as follows: she was the daughter of one of the maidservants ([TAMIL]) at the court of the king **Karikāl Chola**, who reigned at Ureiyūr. While yet a child she having recommended herself to the notice of the king by her uncommon genius for belles-lettres, was adopted into the royal family and had a splendid mansion with a retinue of attendants assigned to her. When she reached the age of puberty, her fascinating beauty gained her many admirers; but she resolved not to marry anyone that could not overcome her in poetical contest, which every one who attempted failed, and she retained her solitary dignity until her twenty-fifth year, exulting in her invincibility. At length having excited the indignation of the professors of the Madura College by characterizing them as a set of dunces, in one of her verses, **Narkira**, the president of that College, encountered her, in the disguise of a wood-seller, and overcame her after a severe and prolonged contest, in which the parties alternately proposed and solved in their verses a series of enigmas as dark as those of a **Sphinx**. All the verses in which the enigmas were proposed and solved have been preserved, and we subjoin one in which the names of the twelve signs of the Zodiac are concealed.
+Sanbagavadivi, styled by way of eminence _Tamil Arival_ or one versed in the Tamil language and literature, was a poetess of superior wit and accomplishments. Her history divested of its fabulous additions is as follows: she was the daughter of one of the maidservants (ஆலாத்திப்பெண்கள்) at the court of the king **Karikāl Chola**, who reigned at Ureiyūr. While yet a child she having recommended herself to the notice of the king by her uncommon genius for belles-lettres, was adopted into the royal family and had a splendid mansion with a retinue of attendants assigned to her. When she reached the age of puberty, her fascinating beauty gained her many admirers; but she resolved not to marry anyone that could not overcome her in poetical contest, which every one who attempted failed, and she retained her solitary dignity until her twenty-fifth year, exulting in her invincibility. At length having excited the indignation of the professors of the Madura College by characterizing them as a set of dunces, in one of her verses, **Narkira**, the president of that College, encountered her, in the disguise of a wood-seller, and overcame her after a severe and prolonged contest, in which the parties alternately proposed and solved in their verses a series of enigmas as dark as those of a **Sphinx**. All the verses in which the enigmas were proposed and solved have been preserved, and we subjoin one in which the names of the twelve signs of the Zodiac are concealed.
 
-[TAMIL].
+நீரிலானவைதானதுமூன்றுள  
+நெடியகானில்‌ விளற்கொருமூன்றுள  
+ஊரிலாடவும்‌ பாடவுங்கொட்டவு  
+மொன்றிலொன்றொரு பேதையராமெனச்‌  
+சேரவாங்கு தனுசுடன்கூடவே  
+தெற்குமாமுனி தன்னையுமாகவே  
+பாரின்மீது வியலவல்லார்க்கிது  
+பன்னிரண்டும்‌ வருஷம்பகருமே.
 
 _Three are found in the water (Pisces, Capricorn and Cancer), three in the forest (Aries, Taurus and Leo) and three in the country (Libra, Gemini and Scorpio), and these including the maiden (Virgo), the bow (Sagittarius), and the southern sage* (Aquarius), in all twelve, make up the year, if any one is able to understand them._
 
 *) Agastiyer, one of whose names is _Kumbamuni_, referring to the fable of his having been born of a water-pot.
 
-## Sankaranamasivāyer. --- [TAMIL].
+## Sankaranamasivāyer. --- சங்கரநமச்சிவாயர்.
 
 Neither the date of the birth, nor the death of this poet is known; but we are certain he was alive in CE 1770. He was a native of _Tinnevelly_, and prosecuted his studies under the tuition of **Sāminada Tambirān**, the author of the _Illakkanakottu_. Upon the request of **Maruthappa Deven**, the _Poligar_ of Utamalei, by whom he was patronized, he wrote a commentary on **Pavananti's** _Nannul_, which is admitted on all hands to be the best work of the kind.
 
-## Saravanaperumāl Aiyer. --- [TAMIL].
+## Saravanaperumāl Aiyer. --- சரவணப்பெருமாள் ஐயர்.
 
-Saravanaperumāl Aiyer was born of a _Jangama_ family long settled at _Tirutanigei_, near Madras. He prosecuted his studies under the eye of his father **Kandappa Aiyer**, who was a man of extensive learning, and being endowed with great talents, he was soon able to assert his superiority over the poets of his day, and to preside over the _Viveha-kalvichchālei_, a Literary Institution established at Madras by certain Native gentlemen for the promotion of Tamil literature. The first and most prominent of his works was a commentary on the _Kural_, which he published with the text in 1830; and the next, a treatise on grammar, under the title of _Iyattamil-churukkam_ ([TAMIL]); and another on Rhetoric, under the title of _Aniyiyel-vilakkam_ ([TAMIL]). He also wrote a treatise on Geography, entitled _Gōladīpikei_ (கோளதீபிகை), in which he exploded the Puranic, and adopted the Copernican system, establishing it by quotations from the ancient Hindu authors, especially with regard to the rotundity of the earth. The latter part of his life was chiefly employed in revising and editing many of the Tamil classical works, which having hitherto been circulated in manuscript, had been rendered erroneous by the carelessness of copyists. Amongst these may be mentioned the _Naidatham_ ([TAMIL]), _Nāladiyār_ ([TAMIL]), _Tiruvāsagam_ ([TAMIL]), _Tiruvilleiyādel Purānam_ ([TAMIL]), and the moral apophthegms of the poetess **Auveiyar**.
+Saravanaperumāl Aiyer was born of a _Jangama_ family long settled at _Tirutanigei_, near Madras. He prosecuted his studies under the eye of his father **Kandappa Aiyer**, who was a man of extensive learning, and being endowed with great talents, he was soon able to assert his superiority over the poets of his day, and to preside over the _Viveha-kalvichchālei_, a Literary Institution established at Madras by certain Native gentlemen for the promotion of Tamil literature. The first and most prominent of his works was a commentary on the _Kural_, which he published with the text in 1830; and the next, a treatise on grammar, under the title of _Iyattamil-churukkam_ (இயற்றமிழ்ச்சுருக்கம்); and another on Rhetoric, under the title of _Aniyiyel-vilakkam_ (அணியியல்விளக்கம்). He also wrote a treatise on Geography, entitled _Gōladīpikei_ (கோளதீபிகை), in which he exploded the Puranic, and adopted the Copernican system, establishing it by quotations from the ancient Hindu authors, especially with regard to the rotundity of the earth. The latter part of his life was chiefly employed in revising and editing many of the Tamil classical works, which having hitherto been circulated in manuscript, had been rendered erroneous by the carelessness of copyists. Amongst these may be mentioned the _Naidatham_ ([TAMIL]), _Nāladiyār_ ([TAMIL]), _Tiruvāsagam_ ([TAMIL]), _Tiruvilleiyādel Purānam_ ([TAMIL]), and the moral apophthegms of the poetess **Auveiyar**.
 
 ## Saravanamuttu. --- [TAMIL].
 
