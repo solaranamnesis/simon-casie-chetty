@@ -1396,27 +1396,36 @@ This poet was a native of _Villiputtūr_, and has had the distinction of carryin
 
 No particulars of the life of this poet are known, except that he was one of the forty-nine professors of the Madura College. His impromptu on the merits of the _Kural_, however, has been preserved, and we give it below.
 
-[TAMIL].
+ஏதமில்வள்ளுவரின்குறள்வெண்பாவினா  
+லோதியவொண்பொருளெல்லாமுரைத்ததனாற்  
+றாதவிழ்தார்மாறதாமேதமைப்பயந்த  
+வேதமே மேதக்கன.
 
 _O king Pāndiya, who wears the garland of full-blown flowers! Say, what are more excellent, the Vedas, or the short sweet distichs, through the medium of which the faultless Valluver has divulged the whole contents of the Vedas._
 
-## Perundevanār. --- [TAMIL].
+## Perundēvanār. --- பெருந்தேவனார்.
 
-There were two poets of this name, contemporaries, and both professors of the Madura College. One of them distinguished himself by writing an imitation of the _Mahābhārat_ in _Venba_ metre, and which is now known by the appellation of _Sangattu Bāradam_ ([TAMIL]), and the other by writing a treatise on versification, entitled _Kavisāgaram_ ([TAMIL]).
+There were two poets of this name, contemporaries, and both professors of the Madura College. One of them distinguished himself by writing an imitation of the _Mahābhārat_ in _Venba_ metre, and which is now known by the appellation of _Sangattu Bāradam_ (சங்கத்துப்பாரதம்), and the other by writing a treatise on versification, entitled _Kavisāgaram_ (கவிசாகரம்).
 
 The following is the impromptu which the author of the _Sangattu Bāradam_ uttered on the merits of the _Kural_:---
 
-[TAMIL].
+எப்பொருளும்யாருமியல்பினறிவுறச்‌  
+செப்பியவள்ளுவர்தாஞ்செப்பவரு --- முப்பாற்குப்‌  
+பாரதஞ்சீராமகதைமனுப்பண்டைமறை  
+நேர்‌வனமற்றில்லைநிகர்‌.
 
 _As the Kural which Valluver has composed contains in itself everything, clothed in language easy to be understood by all, so it may bear comparison with the Mahābhārat, Rāmāyana, and Menu's Institutes, nay even with the Vedas of old._
 
 The author of the _Kavisāgaram_ carried his admiration of the _Kural_ to the highest pitch, as will be seen by the subjoined impromptu which he uttered.
 
-[TAMIL].
+பூவிற்குத்தாமரையே பொன்னுக்குச்சாம்புனத  
+மாவிற்கருமுனியாயானைக்கமரரும்ப  
+றேவிற்றிருமாலெனச்சிறந்ததென்பவே  
+பாவிற்குவள்ளுவர்‌ வெண்பா.
 
 _The best among flowers is the lotus; the best among metals is gold; the best among kine is Kamadhenu (the celestial cow); the best among elephants is Irāvata (the white elephant of Indra); the best among gods is Vishnu; and the best among books is Valluver's Kural._
 
-## Philip De Melho. --- [TAMIL].
+## Philip De Melho. --- பிலீப்பு தெ மெல்லோ.
 
 The name of Philip [Philippus] De Melho, the first native who was admitted to the office of Minister of the Dutch Reformed Church in Ceylon, and who occupied a prominent place in the literary world, stands foremost among the divines and linguists, whether of European or Ceylonese birth, who flourished in the island during the eighteenth century. As an oriental poet also, he ranks high, and his qualifications as a Biblical translator were unsurpassed. Such was in fact his great learning that Governor **Falk** [Falck], a wise politician and an elegant scholar, complimented him with the title of "Rabbi De Melho."
 
@@ -1430,7 +1439,7 @@ De Melho having served with great efficiency as a Native Proponent and Assistant
 
 *) Under the Dutch Government, Ceylon, was for ecclesiastical and educational purposes, divided into three Districts, viz. the Northern, Western and Southern districts, the principal stations of which were respectively Jaffna, Colombo and Galle.
 
-In the same year in which De Melho was ordained, he completed the revision of the Tamil version of the New Testament up to the Epistle to the Ephesians. This was a work which devolved on him exclusively from the want of zeal and co-operation on the part of his colleagues. In the preparation of the version, he was guided by the original Greek and aided by various standard versions of the New Testament. He also consulted many approved theological and philological works, with all of which he appears to have been familiar at an early age. In consequence, however, of a discussion which took place respecting the version, the Government deferred its publication and referred the matter for the decision of the Supreme authorities at Batavia. They felt it their duty to thank the reviser for the zeal and attention he had hitherto devoted to this highly important and difficult undertaking, and to direct the examination of the version by a Committee of Clergymen and Laymen skilled in the languages, and on the receipt of their report, the Ceylon Government ordered it to be printed and circulated amongst the natives. But although the revision of the Tamil version of the New Testament was a work of itself more than sufficient for one individual, how gifted soever he may be, yet it was not the only work in which he was engaged at the time. He also wrote an elaborate work in Dutch under the title of "The Triumph of Truth, or a Refutation of the Principal Dogmas of the Church of Rome," with a view of arresting, as he thought it would, the rapid progress which Catholicity was making in Ceylon about the time through the persevering labours of the Goanese Fathers.* This work being approved by the Consistory was afterwards rendered by himself into Tamil, under the title of _Sattiyattin-jeyam_ ([TAMIL]), and published at the expense of Government in 1753, with a dedication in Latin, Dutch and Tamil to the Governor General **Vander Paar** and the members of the Council of Netherland's India, couched in the most elegant language. At the conclusion of the preface to this work, De Melho announced that he was preparing for publication in Tamil a translation of the Liturgy of the Dutch Reformed Church and that of a selection of the Psalms of David, the Decalogue, the Lord's Prayer, the Creed and the Songs of the Blessed Virgin, Zacharias and Simeon in metre besides a work to be called a Refutation of Hinduism. The two former were published respectively in 1755 and 1760; the latter appears to have remained in manuscript and is not now forthcoming.
+In the same year in which De Melho was ordained, he completed the revision of the Tamil version of the New Testament up to the Epistle to the Ephesians. This was a work which devolved on him exclusively from the want of zeal and co-operation on the part of his colleagues. In the preparation of the version, he was guided by the original Greek and aided by various standard versions of the New Testament. He also consulted many approved theological and philological works, with all of which he appears to have been familiar at an early age. In consequence, however, of a discussion which took place respecting the version, the Government deferred its publication and referred the matter for the decision of the Supreme authorities at Batavia. They felt it their duty to thank the reviser for the zeal and attention he had hitherto devoted to this highly important and difficult undertaking, and to direct the examination of the version by a Committee of Clergymen and Laymen skilled in the languages, and on the receipt of their report, the Ceylon Government ordered it to be printed and circulated amongst the natives. But although the revision of the Tamil version of the New Testament was a work of itself more than sufficient for one individual, how gifted soever he may be, yet it was not the only work in which he was engaged at the time. He also wrote an elaborate work in Dutch under the title of "The Triumph of Truth, or a Refutation of the Principal Dogmas of the Church of Rome," with a view of arresting, as he thought it would, the rapid progress which Catholicity was making in Ceylon about the time through the persevering labours of the Goanese Fathers.* This work being approved by the Consistory was afterwards rendered by himself into Tamil, under the title of _Sattiyattin-jeyam_ (சத்தியத்தின்செயம்), and published at the expense of Government in 1753, with a dedication in Latin, Dutch and Tamil to the Governor General **Vander Paar** and the members of the Council of Netherland's India, couched in the most elegant language. At the conclusion of the preface to this work, De Melho announced that he was preparing for publication in Tamil a translation of the Liturgy of the Dutch Reformed Church and that of a selection of the Psalms of David, the Decalogue, the Lord's Prayer, the Creed and the Songs of the Blessed Virgin, Zacharias and Simeon in metre besides a work to be called a Refutation of Hinduism. The two former were published respectively in 1755 and 1760; the latter appears to have remained in manuscript and is not now forthcoming.
 
 *) See Governor Imhoff's Report, in Lee's Rebeyro, p. 176.
 
@@ -1440,7 +1449,7 @@ In October 1756, the death of his father compelled him to visit Colombo, where h
 
 "To hear of the regular performance of Divine Service at Colombo by the Rev. Messrs. **Bronsveld**, **Zybrands** and **Meyer** and at Wolvendhal, by the Rev. Messrs. **Ondaatje** and **Philipsz**, as also at Jaffna by the Rev. Messrs. **De Melho** and **Janz** at Galle by the Rev. Messrs. **Schoults** and **Smith** and at Trincomalie by the Rev. Mr. **De Zelun**, and that the Rev. **Peter Cornelius** who has recently arrived there, is about to be employed by you to the no small benefit of the Church of God, has not been less agreeable to us than that the translation of the New Testament into the Tamil language has at length by the praiseworthy labours of the Rev. Mr. **De Melho** fully attained its object, as appears from the copies thereof which reached us; and this being now completed, we hope and wish that the blind heathen may be more and more enlightened and conducted to the true knowledge of our Rational Religion. As the only object we have in view in this respect is the promotion of true sanctifying faith, so is it likewise to manifest to that Great Labourer our particular satisfaction, that we have at the day of our sitting granted his Reverence our unsolicited extraordinary augmentation from 80 to 100 florins a month, as an evident token, how readily on our part we reward faithful services, as we in like manner on the same day and for the same reasons granted 100 florins to the Rector of the Seminary **Dr. Meyer**, in the expectation that they would henceforward redouble their zeal."
 
-Whilst De Melho was residing at Jaffna, which was and still is the seat of Tamil literature in Ceylon, he met many renowned scholars, poets, and philosophers whose acquaintance he cultivated with a desire to improve his knowledge of philology as well as to gain opportunities which that acquaintance might afford him for bringing under their consideration, with all the force in his power, the arguments in favour of Christianity, and for exposing the absurdities and superstitions of their own system of faith. Among them, we may mention the name of **Kūlangkai Tambirān**, with whom he had frequent religious controversies.* While at Jaffna, De Melho enlarged the _Sūdāmani Nigandu_, which is the standard Lexicon of the Tamil language, by adding 20 stanzas to the 2d part, and about 100 to the 12th, besides various words and stanzas to others. These additions not only attest his abilities as a philologist, but also his skill as a poet from their splendid versification. They were all unanimously approved by the literati of his day and incorporated with the original; and a portion of them appears in the edition of the ten parts of the work published at the Manipy Press in 1856. The rest may be found in the manuscript copies current in Jaffna. It is not to be supposed that De Melho confined the display of his poetical talents to the above mentioned work; he also composed an elegant panegyric, called _Marudappa Kuravanji_ ([TAMIL]), on _Mardappa Pillei_, Mudeliar of the Gate, under the administration of Governor **Schreuder**. There are no means of ascertaining the names of the other works of which De Melho was the author. At his death he left behind him besides a highly valuable and extensive library, a large number of manuscripts, including his learned sermons in Dutch, Portuguese and Tamil; but they have all been unfortunately lost, with the exception of his Correspondence on the version of the Scriptures and a corrected draft translation of the Books of Joshua, Judges and Ruth.
+Whilst De Melho was residing at Jaffna, which was and still is the seat of Tamil literature in Ceylon, he met many renowned scholars, poets, and philosophers whose acquaintance he cultivated with a desire to improve his knowledge of philology as well as to gain opportunities which that acquaintance might afford him for bringing under their consideration, with all the force in his power, the arguments in favour of Christianity, and for exposing the absurdities and superstitions of their own system of faith. Among them, we may mention the name of **Kūlangkai Tambirān**, with whom he had frequent religious controversies.* While at Jaffna, De Melho enlarged the _Sūdāmani Nigandu_, which is the standard Lexicon of the Tamil language, by adding 20 stanzas to the 2d part, and about 100 to the 12th, besides various words and stanzas to others. These additions not only attest his abilities as a philologist, but also his skill as a poet from their splendid versification. They were all unanimously approved by the literati of his day and incorporated with the original; and a portion of them appears in the edition of the ten parts of the work published at the Manipy Press in 1856. The rest may be found in the manuscript copies current in Jaffna. It is not to be supposed that De Melho confined the display of his poetical talents to the above mentioned work; he also composed an elegant panegyric, called _Marudappa Kuravanji_ (மருதப்பக்குறவஞ்சி), on _Mardappa Pillei_, Mudeliar of the Gate, under the administration of Governor **Schreuder**. There are no means of ascertaining the names of the other works of which De Melho was the author. At his death he left behind him besides a highly valuable and extensive library, a large number of manuscripts, including his learned sermons in Dutch, Portuguese and Tamil; but they have all been unfortunately lost, with the exception of his Correspondence on the version of the Scriptures and a corrected draft translation of the Books of Joshua, Judges and Ruth.
 
 *) Vide, p. 47.
 
@@ -1456,17 +1465,17 @@ De Melho's version and his criticisms on the Tranquebar version were sent to the
 
 *) That unparalleled Tamil scholar of modern times, the learned Beschi, writes in the following strain of the Tranquebar version:--- "Can those books be fairly called the Word of God, which the Tranquebarians, who do not at all write correctly in Tamil the name of their country, have handed down to us pretending that they have translated the Holy Scriptures in Tamil, whilst ignorant of that language, they have to the bitter paining of our ears, written them in barbarous words. By this means, the truth of God's word has been darkened, and by depriving it of its excellence, been tarnished, even as if a costly bright gem were buried in mire, or poison mixed with ambrosial sweet or a beautiful picture stained with ink." _Veder Vilakkam_, Chap. 16.
 
-## Pei Āzhvār. --- [TAMIL].
+## Pēi Āzhvār. --- மேயாழ்வார்.
 
-Pei Āzhvār, who was one of the twelve _Āzhvār_, or special votaries of _Vishnu_, enjoyed likewise the reputation of a poet. He was born at _Mailapūr_, in the Carnatic, and having finished his studies, spent all his life in making pilgrimages to the different _Vaishnava_ shrines, and in diffusing the _Vaishnava_ doctrines in the country. The _Nālāyiraprabhandam_ ([TAMIL]) contains a hundred stanzas which he composed at Tirukovalūr, as he was visiting that place in company with **Poigai Āzhvār** and **Pūdat Āzhvār**.
+Pēi Āzhvār, who was one of the twelve _Āzhvār_, or special votaries of _Vishnu_, enjoyed likewise the reputation of a poet. He was born at _Mailapūr_, in the Carnatic, and having finished his studies, spent all his life in making pilgrimages to the different _Vaishnava_ shrines, and in diffusing the _Vaishnava_ doctrines in the country. The _Nālāyiraprabhandam_ (நாலாயிரபிரபந்தம்) contains a hundred stanzas which he composed at Tirukovalūr, as he was visiting that place in company with **Poigai Āzhvār** and **Pūdat Āzhvār**.
 
-## Poigai Āzhvār. --- [TAMIL].
+## Poigai Āzhvār. --- பொய்கையாழ்வார்.
 
-The history of Poigai Āzhvār like that of his compeers has been disguised in myths, and it is difficult to extricate it from them. One thing, however, is certain, that he was a native of _Kānjipuram_, and ranked high as a poet. He employed his muse solely in hymning the praises of _Vishnu_, and contributed one hundred stanzas to the _Nālāyiraprabhandam_ ([TAMIL]).
+The history of Poigai Āzhvār like that of his compeers has been disguised in myths, and it is difficult to extricate it from them. One thing, however, is certain, that he was a native of _Kānjipuram_, and ranked high as a poet. He employed his muse solely in hymning the praises of _Vishnu_, and contributed one hundred stanzas to the _Nālāyiraprabhandam_ (நாலாயிரபிரபந்தம்).
 
-## Poiyāmozhi Pulaver. --- [TAMIL].
+## Poiyāmozhi Pulaver. --- பொய்யாமொழிப்புலவர்.
 
-Poiyāmozhi Pulaver was a celebrated poet who flourished in the reign of the king **Vanangāmudi Pāndiyen**. Of his compositions, we have met with only an erotic poem in 425 stanzas, under the title of _Tanjeivānan-kovei_ ([TAMIL]), which is much valued not only on account of its beautiful versification, but also because it is written in illustration of the rules of **Natkavirāja Nambis'** _Agapporul_.
+Poiyāmozhi Pulaver was a celebrated poet who flourished in the reign of the king **Vanangāmudi Pāndiyen**. Of his compositions, we have met with only an erotic poem in 425 stanzas, under the title of _Tanjeivānan-kōvei_ (தஞ்சைவாணன்கோவை), which is much valued not only on account of its beautiful versification, but also because it is written in illustration of the rules of **Natkavirāja Nambis'** _Agapporul_.
 
 The following anecdote of Poiyāmozhi Pulaver, which we have extracted from the _Dinavartamāni_,* though tinged with the marvellous may be found interesting.
 
@@ -1474,73 +1483,97 @@ The following anecdote of Poiyāmozhi Pulaver, which we have extracted from the 
 
 Poiyāmozhi Pulaver being desirous of having the Madura College re-established, went to the king to speak to him on the subject, but finding the king in the temple lying prostrate at the feet of the image of _Siva_ and worshipping it, he addressed to him the following impromptu:---
 
-[TAMIL].
+குழற்காலரவிந்தங்‌ கூம்பக்குமுதமுகையவிழ  
+ஙீழற்கான்மதியமன்றோ நின்றிருக்குலநீயவன்றன்‌  
+அழற்காலவிர்சடை மீதேயிருந்துமவ்வந்திவண்ணன்‌  
+கழற்கால்வணங்குதியோ வணங்காமுடிக்கைதவனே.
 
 _O Pāndiya, who never bows thy head to anyone! Dost thou lie prostrate at the feet of Andivannan (Siva), while the progenitor of thy holy race the cool-beamed moon, to whose rays the lotus-flower closes, and the nymphæ-flower expands, is sitting on his radiant lock of hair._
 
 The king upon this rose up and questioned him on the object of his visit, to which he replied that he had come to beg permission for the re-establishment of the Madura College. The king wishing to put to the test his ability for such an undertaking, desired him to improvise a verse which would cause the statues of the professors of the College, which were in the temple to nod. He obeyed and improvised the following verse:---
 
-[TAMIL].
+உங்களிலேநானொருவனொவ்வேனோவொப்பேனோ  
+திங்கட்குலனறியச்‌ செப்புங்கள்‌ --- சங்கத்து  
+பாடுகின்றமுத்தமிழ்க்கென்‌ பைந்தமிழுமொக்குமோ  
+ஏடவிழ்தாரேழெழுவீரே.
 
 _Declare, that the king of the lunar race may know, whether I will be like one of you or not, and whether my lays will equal the three kinds of lays which ye sang in the College or not, O ye the forty-nine (professors) adorned with garlands of full-blown flowers!_
 
 The statues thereupon nodded by way of affirmation. The king afterwards conducting him to the bank of the _Pottāmarei_ tank in which the board on which the professors sat was lying plunged, bade him make it float by improvising a verse; and he then improvised the following:---
 
-[TAMIL].
+பூவேந்தர்முன்போற்‌ புரப்பாரிலையென்றும்‌  
+பாவேந்தருண்டென்றும்‌ பான்மையால்‌ --- மாவேந்தன்‌  
+மாறனறிய மதுராபுரித்தமிழோர்‌  
+வீறனையே சற்றேமித.
 
 _Floatest thou awhile, O the board of the Tamil poets of Madura! that the great Pāndiyen may know, that though there are no kings to patronize poetry as in times past, yet there are poets even at the present time._
 
 The board came up to the surface of the water immediately as he had uttered the verse, and then sank down again. The king after having such ample proofs of his abilities, nevertheless took very little notice of him; and stung with the neglect he set out to go back to his country. The Queen having heard of it trembled for fear that his malison would ruin the king. She therefore, disguised as a palanquin-bearer, bore his palanquin for some distance, and when he came to know of it, he at once stopped her and wished to know the cause why she had thus condescended to him. She told him that her object was to pacify his wrath, and obtain from him a blessing for the king. He thereupon ejaculated the following verse in her praise:---
 
-[TAMIL].
+உமையாளுநீயுமொருங்கொப்பேயொப்‌பே  
+யுமையாளுக்கங்குண்டோரூனம்‌ --- உமையாடன்‌  
+பாகந்தோய்ந்தாண்டான்‌ பலிக்குழந்தான்பாண்டியனின்‌  
+னாகந்தோய்ந்தாண்டானரசு.
 
 _Uma (Parvati) and thou stand in equal rank; but Uma has a stain; for he who shared with her part of his body, betook himself to begging, while Pāndiyen who pressed thee to his bosom, reigns._
 
-## Ponmudiyār. --- [TAMIL].
+## Ponmudiyār. --- பொன்முடியார்.
 
 Ponmudiyār figured in the Madura College as one of the forty-nine professors; but nothing further is known concerning him. Of his poetical compositions the only relic is the subjoined impromptu on the _Kural_:---
 
-[TAMIL].
+கானின்றதொங்கலாய்‌ காசிபனார்தந்ததுமுன்‌  
+கூநின்றளந்த குறளென்ப --- நூன்‌முறையான்‌  
+வானின்றுமண்ணின்றளந்ததேவள்ளுவனார்‌  
+தாநின்றளந்தகுறள்‌.
 
 _O thou adorned with the garland of fragrant flowers! It is said that the Kural (meaning Vishnu in his incarnation as a dwarf) produced by Kasypa in times of yore measured the earth*; but the Kural now produced by Valluver has measured both the earth and the heaven (by its treating of everything which they contain)._
 
-## Pogar. --- [TAMIL].
+## Pōgar. --- போகர்.
 
-Pogar was one of the sages of antiquity whose biography has merged into fable. He however appears to have been well versed in the art of poetry, as well as that of medicine. Of his works all written in verse, Dr. Ainslie has in his Materia Indica noticed four; viz. 1. _Pogar Yogamārgam_ ([TAMIL]), 2. _Pogar Ezhunūru_ ([TAMIL]), 3. _Pogar Tirumandiram_ ([TAMIL]), and 4. _Pogar Nigandu_ ([TAMIL]), all which treat of the preparations of the several kinds of medicines. Some think that he was the same with **Fo** or **Fohi**, who introduced Buddhism into China in the latter part of the first century of the Christian era, but this is rather doubtful.
+Pōgar was one of the sages of antiquity whose biography has merged into fable. He however appears to have been well versed in the art of poetry, as well as that of medicine. Of his works all written in verse, Dr. Ainslie has in his Materia Indica noticed four; viz. 1. _Pōgar Yōgamārgam_ (போகர் யோகமார்க்கம்), 2. _Pōgar Ezhunūru_ (போகர் எழநூறு), 3. _Pōgar Tirumandiram_ (போகர் திருமந்திரம்), and 4. _Pōgar Nigandu_ (போகர் நிகண்டு), all which treat of the preparations of the several kinds of medicines. Some think that he was the same with **Fo** or **Fohi**, who introduced Buddhism into China in the latter part of the first century of the Christian era, but this is rather doubtful.
 
 *) For the particulars of this myth see Moor's Hindu Pantheon, p. 186.
 
-## Pokiyār. --- [TAMIL].
+## Pōkiyār. --- போக்கியார்.
 
-Pokiyār was one of the forty-nine professors of the Madura College; but nothing further is known of him, except that he was the author of a stanza merely enumerating the divisions of the _Kural_.
+Pōkiyār was one of the forty-nine professors of the Madura College; but nothing further is known of him, except that he was the author of a stanza merely enumerating the divisions of the _Kural_.
 
 ## Pugazhendi. --- புகழந்தி.
 
-Pugazhendi was a contemporary poet with **Kamber** and **Ottakūter**, but he was retained at the Court of the king **Varaguna Pāndiyen** at Madura. He possessed a masterly talent for composing _Venba_, a kind of versification which is so difficult that it has been styled "the tiger of poets." He wrote a poem, entitled _Nalavenba_ ([TAMIL]), in which he has in 417 stanzas of the _Venba_ metre narrated the adventures of **Nala** and **Damayanti**, and this work has obtained for him a lasting fame, as it is confessedly the most beautiful composition of the kind in the Tamil language. He also wrote a treatise in 71 stanzas, under the title of _Retna-churukam_ ([TAMIL]), containing a specification of the metaphors to be used in poetry when describing the perfections of the fair sex. Another poem styled _Alliarasani Mālei_ ([TAMIL]), treating of the history of the Queen **Alliarasāni**, is likewise attributed to him; but it bears internal evidence of its spuriousness and is altogether unworthy of his transcendent genius. Many anecdotes are related of Pugazhendi in proof of his extraordinary wit and skill as an improvisator, and we subjoin one of them. Once when he was visiting the court of **Kulotunga Chola** at Ureiur, he happened to go out for a walk with the king and his poet **Ottakūter**. **Auveiyar**, who was then sitting in the street with her feet stretched out straight before, withdrew one of them as the king passed by her, and the other as Pugazhendi passed by her; but when she saw **Ottakūter**, who followed, she stretched them both again. **Ottakūter** offended at the slight offered to him, asked for an explanation, upon which she said, "I withdrew one foot for the king, because he wears the crown, and both feet for Pugazhendi, because he is a great poet; but as you are nothing but a dunce, I have not withdrawn either of my feet for you, and if you are as able as Pugazhendi, prove it by improvising a verse in which while praising the _Chola_ country and its king, the word "_mathi_" ([TAMIL])* shall occur three times. He thereupon uttered the following stanza:---
+Pugazhendi was a contemporary poet with **Kamber** and **Ottakūter**, but he was retained at the Court of the king **Varaguna Pāndiyen** at Madura. He possessed a masterly talent for composing _Venba_, a kind of versification which is so difficult that it has been styled "the tiger of poets." He wrote a poem, entitled _Nalavenba_ (நளவெண்பா), in which he has in 417 stanzas of the _Venba_ metre narrated the adventures of **Nala** and **Damayanti**, and this work has obtained for him a lasting fame, as it is confessedly the most beautiful composition of the kind in the Tamil language. He also wrote a treatise in 71 stanzas, under the title of _Retna-churukam_ (இரத்திநச்சுருக்கம்), containing a specification of the metaphors to be used in poetry when describing the perfections of the fair sex. Another poem styled _Alliarasāni Mālei_ (அல்லிஅரசாணிமாலை), treating of the history of the Queen **Alliarasāni**, is likewise attributed to him; but it bears internal evidence of its spuriousness and is altogether unworthy of his transcendent genius. Many anecdotes are related of Pugazhendi in proof of his extraordinary wit and skill as an improvisator, and we subjoin one of them. Once when he was visiting the court of **Kulotunga Chola** at Ureiur, he happened to go out for a walk with the king and his poet **Ottakūter**. **Auveiyar**, who was then sitting in the street with her feet stretched out straight before, withdrew one of them as the king passed by her, and the other as Pugazhendi passed by her; but when she saw **Ottakūter**, who followed, she stretched them both again. **Ottakūter** offended at the slight offered to him, asked for an explanation, upon which she said, "I withdrew one foot for the king, because he wears the crown, and both feet for Pugazhendi, because he is a great poet; but as you are nothing but a dunce, I have not withdrawn either of my feet for you, and if you are as able as Pugazhendi, prove it by improvising a verse in which while praising the _Chola_ country and its king, the word "_mathi_" (மதி)* shall occur three times. He thereupon uttered the following stanza:---
 
-[TAMIL].
+வெள்ளத்தடங்காச்‌ சினவாளை வேலிக்கமுகின்மிடறொடித்துத்  
+தள்ளிமுகிலைக்கிழித்துமழைத்துளியோடிறங்குஞ்சோணாடா  
+கள்ளர்மறவர்குறும்படக்குங் கண்டாகண்டர்பெருமானே  
+பிள்ளைமதியாலென்மாது பேதைமதியுமிழந்தனளே.
 
 As the word "_mathi_" (wit) occurred only but twice in the stanza, **Auveiyar** asked **Ottakūter**, pray where is thy other wit? but he was so ashamed that he could not reply. She then addressed herself to Pugazhendi and asked him to try his skill in improvising a verse in praise of the _Pāndiya_ country and its king, with the word "_mathi_" introduced into the body of the verse three times, and he instantly improvised the subjoined.
 
-*) The word ([TAMIL]) means "_the moon_," as well as "_wit_."
+*) The word (மதி) means "_the moon_," as well as "_wit_."
 
-[TAMIL].
+பங்கப்பழனத்துழுமுழவர்‌ பலவின்கனியைப்பறித்ததென்று  
+சங்கிட்டெறியக் குரங்கிளநீர்‌ தனைவிட்டெறியுந்தமிழ்நாடா  
+கொங்கற்கமராபதியளித்த கோவே யமரர்குலதீபா  
+வெங்கட்பிறைக்குங்‌ கருப்பிறைக்கு மெலிந்தபிறைக்கும்‌ விழிமகவே.
 
-Applauding him for his successful performance, she again addressed herself to him to improvise another verse, the first line of which should begin with the word "_kari_" ([TAMIL])* and the last end with the word "_Umi_" ([TAMIL])* and he thereupon uttered the following:---
+Applauding him for his successful performance, she again addressed herself to him to improvise another verse, the first line of which should begin with the word "_kari_" (கரி)* and the last end with the word "_Umi_" (உமி)* and he thereupon uttered the following:---
 
-[TAMIL].
+கரியையுரித்தணிந்தாய்‌ காமன்றனையெரித்தாய்  
+நரியைப்பரியாக்குநாதனே --- விரிசடையில்‌  
+துண்டுமதியைச்‌ சூடுஞ்சுத்தனேயாழிகட  
+லுண்டநஞ்சைச்சற்றேயுமி.
 
-*) The word ([TAMIL]) means both "_Charcoal_" and "_an Elephant._"
+*) The word (கரி) means both "_Charcoal_" and "_an Elephant._"
 
-*) ([TAMIL]) as a noun signifies "husk;" but as a verb "_to spit._"
+*) (உமி) as a noun signifies "husk;" but as a verb "_to spit._"
 
-## Pudattazhvār. --- [TAMIL].
+## Pūdattazhvār. --- பூதத்தாழ்வார்.
 
-This poet was a native of _Māvalipuram_, near Sadras; but being deified by the _Vaishnavas_ to whose sect he belonged, the real particulars of his life have been completely enveloped in fable. Of his compositions, however, there is a series of one hundred stanzas which now form a part of the _Nālāyiraprabhandam_ ([TAMIL]).
+This poet was a native of _Māvalipuram_, near Sadras; but being deified by the _Vaishnavas_ to whose sect he belonged, the real particulars of his life have been completely enveloped in fable. Of his compositions, however, there is a series of one hundred stanzas which now form a part of the _Nālāyiraprabhandam_ (நாலாயிரபிரபந்தம்).
 
-## Pūdenchendanār. --- [TAMIL].
+## Pūdenchendanār. --- பூதஞ்சேந்தனார்.
 
-Nothing further is known of the personal history of Pūdenchendanār than that he was the son of **Sengundūr kizhār**, one of the forty-nine professors of the Madura College. He wrote a didactic poem in forty stanzas, under the title of _Inyanalpadu_ ([TAMIL]), containing an enumeration of everything which is pleasant. It is ranked amongst the works which had received the approbation of the College, and we subjoin a stanza from it as specimen.
+Nothing further is known of the personal history of Pūdenchendanār than that he was the son of **Sengundūr kizhār**, one of the forty-nine professors of the Madura College. He wrote a didactic poem in forty stanzas, under the title of _Inyānālpadu_ (இனியாநாற்பது), containing an enumeration of everything which is pleasant. It is ranked amongst the works which had received the approbation of the College, and we subjoin a stanza from it as specimen.
 
 [TAMIL].
 
