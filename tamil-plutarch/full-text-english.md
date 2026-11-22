@@ -1812,7 +1812,20 @@ Sivaprakāsa Desiker was a prolific writer, and the following works all of which
 
 Of these the Nos. 1 and 2 are epic poems, one treating of the history of _Allama Prabhu_, the founder of the _Jangama_ sect and the other of the legends of the _Saiva_ fane at _Tirukkūvai_. The Nos 3, 4, 5, 6 and 7 treat of the Hindu system of Metaphysical philosophy, and the Nos. 8, 9, 10, 11, 12, 13, 14, 15, 16, 17, 18, 19 and 20 of the praise of certain _Saiva_ shrines, while the No. 21 contains a series of moral apothegms, from which we quote below a few as specimen:
 
-[TAMIL].
+பெரியவர்தந்நோய்போற்‌ பிறர்நோய்கண்டுள்ள  
+மெரியினிழுதாவரென்க --- தெரியிழாய்‌  
+மண்டுபிணியால்‌ வருந்துபிறவுறுப்பைக்  
+கண்டுகலுழுமேகண்‌.
+
+பேரறிஞர்தாக்கும்‌ பிறர்துயரந்தாங்கியே  
+வீரமொடுகாக்க விரைகுவார்‌ --- நேரிழாய்‌  
+மெய்சென்றுதாக்கும்‌ வியன்கோலடிதன்மேற்‌  
+கைசென்று தாங்குங்கடிது.
+
+தங்குறைவுதீர்வுள்ளார்‌ தளர்ந்துபிறர்க்குறூஉம்  
+வெங்குகைதீர்க்கிற்பார்‌ விழுமியோர் --- திங்கள்‌  
+கறையிருளைநீக்கக்‌ கருதாதுலகி  
+னிறையிருளைநீக்குமேனின்று.
 
 _The worthy feel the griefs of others as their own griefs as butter melteth in the fire; thus, O thou who art ornamented with choice jewels! the pain caused to a limb by a local disorder the eye beholds and weeps._
 
@@ -1820,15 +1833,40 @@ _The truly wise hasten to sustain the griefs sustained by others and to protect 
 
 _The worthy think not of supplying their own wants, but endeavour to supply the pressing wants of others; thus the moon, heeding not the removal of the darkness of its own spots, chaseth away the darkness which filleth the world._ **Ellis.**
 
-Sivaprakāsa Desiker was also the author of three different panegyrics on **Bālayānanda Swāmi**, who was his _Guru_ or spiritual instructor, besides a hymn on each of the _Saiva_ shrines in southern India, which were commemorated in the chants of **Apper**, **Sundarer** and **Sampanter** in ancient times. He undertook to perfect the _Kālatti Purānam_ ([TAMIL]), which his brother **Karunaiprakāsa Deziker** had left unfinished; but he died before he could execute his task.
+Sivaprakāsa Desiker was also the author of three different panegyrics on **Bālayānanda Swāmi**, who was his _Guru_ or spiritual instructor, besides a hymn on each of the _Saiva_ shrines in southern India, which were commemorated in the chants of **Apper**, **Sundarer** and **Sampanter** in ancient times. He undertook to perfect the _Kālatti Purānam_ (காளத்திபுராணம்), which his brother **Karunaiprakāsa Deziker** had left unfinished; but he died before he could execute his task.
 
-## Sivavākiyar. --- [TAMIL].
+## Sivavākiyar. --- சிவவாக்கியர்.
 
 This eminent philosopher is known as the author of a monotheistical treatise bearing his own name, and in which he has attacked and exposed the Hindu religion, and its concomitant superstitions. The era of his existence is variously stated; but it cannot be fixed anterior to the incursion of the Muhammedans into the Dekkan, as he alludes to their creed in his treatise.
 
 As a specimen of the style and tenets of Sivavākiyar, we subjoin the five following stanzas, and their English translation by the late Mr. **Ellis.**
 
-[TAMIL].
+பண்டுநான்பறித்தெறிந்த பன்மலர்களெத்தனை  
+பாழிலேசெபித்துவிட்ட மந்திரங்களெத்தனை  
+மிண்டனாய்த்திரிந்தபோதிறைத்தநீர்களெத்தனை  
+மீளவுஞ்சிவாலயங்கள்‌ சூழவந்ததெத்தனை  
+அண்டர்கோனிருப்பிடமறிந்துணர்ந்தஞானிகள்‌  
+கண்டகோயிற்றெய்வமென்று கையெடுப்பதில்லையே.
+
+நீரையள்ளி நீரில்விட்டு நீர்நினைந்தகாரிய  
+மாரையுன்னிநீரெல்லாமவத்திலேயிறைக்கிறீர்‌  
+வேரையுன்னிவித்தையுன்னி வித்திலேமுளைத்தெழுந்த  
+சீரையுன்னவல்லிராய்‌ சிவபதங்கள்சேரலாம்‌.
+
+அரியுமல்லவரனுமல்லவயனுமல்லவப்புறங்  
+கருமைவெண்மைசெம்மையுங் கடந்துநின்றகாரணம்‌  
+பெரியதல்லசிறியதல்ல பெண்ணுமாணுமல்லவே  
+துரியமுங்கடந்துநின்ற தூரதூரதூரமே.
+
+சாதியாவதேதடா சலந்திரண்டநீரல்லோ  
+பூதமைந்துமொன்றல்லோ புலன்களைந்துமொன்றல்லோ  
+காதுவாழிகாறைகம்பி சூடகம்பொன்னொன்றல்லோ  
+சாதிபேதமோதுகின்ற தன்மையென்னதன்மையே.
+
+கறந்தபால்முலைபுகா கடைந்தவெண்ணெய்மோர்புகா  
+வுடைந்தசங்கினோசையு முயிர்களுமுடல்புகா  
+வடிந்தவோரடையினியுதிர்ந்தபூமரம்புகா  
+விறந்துபோனமானிடரினிப்பிறப்பதில்லையே.
 
 _Formerly how many flowers have I gathered and scattered._  
 _How many prayers have I repeated in a vain worship?_  
@@ -1857,37 +1895,40 @@ _As sound cannot be produced from a broken conch, nor the life be restored to it
 _As a decayed leaf and a fallen flower cannot he reunited to the parent tree;_  
 _So a man once dead is subject to no future birth._
 
-## Sīnivāsakar. --- [TAMIL].
+## Sīnivāsakar. --- சீனிவாசகர்.
 
 Sīnivāsakar was a Brahman poet, who flourished in the Ramnad country. He is celebrated as the composer of a collection of _Nautch_ songs, much admired for their melody. Neither the time of his birth nor death is known; but he appears to have been alive in the beginning of the present century, enjoying the patronage of **Vellei Marudu Poligar** of Sherewele, who was hanged for rebellion against the English Government in CE 1801.
 
-## Sīttaleichāttanār. --- [TAMIL].
+## Sīttaleichāttanār. --- சீத்தலைச்சாத்தனார்.
 
 This poet was one of the forty-nine professors of the Madura College. It is related that having been in the habit of striking his head with his stylus, whenever he found any fault in the works submitted by their authors to the judgment of the College bench, he brought on a headache which tormented him all his life: hence his fellow professor **Marutuven Tāmotharanār** while applauding the _Kural_, jocosely observed, that other people got rid of their headache by smelling the salt produced from the stalk of the _Sīndil_,* and the sliced dry ginger mixed with honey; but Sīttaleichāttanār got rid of his headache, by hearing the _Kural_ recited, because it contained no faults. The following is the impromptu which he uttered in praise of the _Kural_:---
 
-[TAMIL].
+மும்மலையுமுன்னாடு முந்நதியுமுப்பதியு  
+மும்முரசுமுத்தமிழு முக்கொடியு --- மும்மாவுந்  
+தாமுடையமன்னர்‌ தடமுடிமேற்றாரன்‌றோ  
+பாமுறைதேர்வள்ளுவர்முப்பால்‌.
 
 *) Menispermum cordifolium.
 
 _The three parts (of the Kural) composed by Valluver, are each a garland on the crowns of the three kings (Chera, Chola and Pāndiya), who are respectively possessed of the three mountains (Kolli, Neri and Pothiya), the three countries (Chera, Chola and Pāndiya), the three rivers, (Porunai, Caveri and Vygai), the three cities (Karūr, Ureiyūr and Madura), the three kinds of drums (Mangala-murasu, Vettimurasu and Kodei-murasu) the three dialects of Tamil (colloquial, poetical and dramatic), the three banners (Vitkodi, Pulikodi and Minakodi), and the three horses (Kanavattam, Pādalam and Koram)._
 
-## Subrahmanya Vediyer. --- [TAMIL].
+## Subrahmanya Vēdiyer. --- சுப்பிரமணியவேதியர்.
 
-This poet was a member of a _Brahman_ family at _Alvar Tinnevelly_, in the Carnatic. The time of his birth, as well as that of his death is not known; but he was contemporary with **Samināda Tambiran**, who makes honourable mention of him in his Introduction to the _Illakkanakottu_. He wrote the _Prayoga-Vivegam_ ([TAMIL]), a treatise highly esteemed on account of its being a great help in the composition of poems.
+This poet was a member of a _Brahman_ family at _Alvar Tinnevelly_, in the Carnatic. The time of his birth, as well as that of his death is not known; but he was contemporary with **Samināda Tambiran**, who makes honourable mention of him in his Introduction to the _Illakkanakottu_. He wrote the _Prayōga-Vivēgam_ (பிரயோக விவேகம்), a treatise highly esteemed on account of its being a great help in the composition of poems.
 
-## Sundarer. --- [TAMIL].
+## Sundarer. --- சுந்தரர்.
 
 Sundarer was a contemporary of **Apper** and **Sampanter** and like them a poet, as well as a zealous champion for the _Saiva_ faith against the _Jainas_. His real name was _Nambiyārurer_, which he afterwards changed for that of Sundarer. He was born of a _Brāhman_ family of the _Adi Saiva_ sect at _Tirunavalur_; in the Carnatic. Whilst yet a child, the king **Narasinghamuneiyer** with the consent of his parents, took him into his family and adopted him, giving him a good education in all branches of learning. When he came of age, his father by the kings command negotiated a marriage for him with the daughter of a _Brahman_ at Puttūr; but just on the day fixed for its celebration he broke off the match, and assuming the ascetic life visited the different _Siva_ fanes in Southern India, and hymned their praises in a series of 37,000 _Pathigams_, each consisting of ten stanzas. It is however certain that he did not preserve continence which is manifest from his amorous intrigues with the two courtezans **Paravei** and **Sangkili** as related in the _Tirutonder Purānam_. He died at _Tiruvanji_, in the Chera country, in the eighteenth year of his age, whilst he was visiting a temple there in company with the king **Cheraman Peruman**, whose friendship he enjoyed. In our opinion as the date given in the _Cholapūrva Patayam_ for the accession of **Cherama Peruman** seems to admit of no doubt, we may therefore place the period of the existence of Sundarer and his two fellow Champions in the fifth century of the Christian era for a certainty and thereby clear it from the monstrous chronology of the Puranas.
 
-## Sūdikodutta Nāchiyār. --- [TAMIL].
+## Sūdikodutta Nāchiyār. --- சூடிக்கொடுத்தநாய்ச்சியார்.
 
-Sūdikodutta Nāchiyār, otherwise called _Āndāl_, was the poetess who composed the poems called _Tirupāvei_ ([TAMIL]), and _Tirumozhi_ ([TAMIL]), consisting of 173 stanzas in praise of _Vishnu_, and which now form a part of the _Nālāyiraprabhandam_ ([TAMIL]). Her parentage is not known; but if we may accept as facts that which appears not improbable in her legend, she was a foundling brought up by a _Vaishnava_ devotee at _Villiputtūr_, and having even from her childhood become an enthusiast in the faith of her foster-father, after she had passed her teens she proceeded to Tirupati, and consecrated herself to _Vishnu_, who is worshipped there.
+Sūdikodutta Nāchiyār, otherwise called _Āndāl_, was the poetess who composed the poems called _Tirupāvei_ (திருப்பாவை), and _Tirumozhi_ (திருமொழி), consisting of 173 stanzas in praise of _Vishnu_, and which now form a part of the _Nālāyiraprabhandam_ (நாலாயிரபிரபந்தம்). Her parentage is not known; but if we may accept as facts that which appears not improbable in her legend, she was a foundling brought up by a _Vaishnava_ devotee at _Villiputtūr_, and having even from her childhood become an enthusiast in the faith of her foster-father, after she had passed her teens she proceeded to Tirupati, and consecrated herself to _Vishnu_, who is worshipped there.
 
-## Tandi Āsiriyer. --- [TAMIL].
+## Tandi Āsiriyer. --- தண்டியாசிரியர்.
 
-Tandi Āsiriyer was one of the poets who flourished at the Court of **Bhoja**, king of _Dhārapuram_, in the twelfth century of the Christian era. As he was skilled both in the Sanskrit and Tamil poetry, he obtained the title of _Ubaya Kavi_ or a poet in two languages; and it is said that he ranked foremost of all the poets of his day, except **Kālidāsa**. Of his works, we have two treatises, one in Sanskrit, entitled _Kāvyadersana_ ([TAMIL]), and the other in Tamil, under the name of _Alangkāram_ ([TAMIL]), both of which treat of poetical tropes and figures.
+Tandi Āsiriyer was one of the poets who flourished at the Court of **Bhoja**, king of _Dhārapuram_, in the twelfth century of the Christian era. As he was skilled both in the Sanskrit and Tamil poetry, he obtained the title of _Ubaya Kavi_ or a poet in two languages; and it is said that he ranked foremost of all the poets of his day, except **Kālidāsa**. Of his works, we have two treatises, one in Sanskrit, entitled _Kāvyadersana_ (காவியதரிசனம்), and the other in Tamil, under the name of _Alangkāram_ (அலங்காரம்), both of which treat of poetical tropes and figures.
 
-## Tatvarāyer. --- [TAMIL].
+## Tatvarāyer. --- தத்வராயர்.
 
 Tatvarāyer was an eminent poet and metaphysician, born of a _Brāhman_ family of the _Mādhavachārya_ sect at _Vira_, in the Carnatic, sometime in the sixteenth century of the Christian era. Having very early completed his course of studies in Sanskrit and Tamil in his own village, he assumed the ascetic life at the same time with **Svārupānander**, who was his kinsman as well as fellow-student. The young men then desirous of having themselves initiated into the mysteries of _Saivaism_ proposed to go in search of a _Guru_ or teacher; but they agreed before starting, that he who succeeded in his undertaking, should become the _Guru_ of the one who failed. Tatvarāyer went towards the north, and **Svārupānander** towards the south. Tatvārayer failed in finding a _Guru_; but **Svārupānander** was fortunate enough to find one in the person of **Sivaprakāser**, a _Saiva_ recluse who lived in a thicket at Kovattam, and according to the agreement Tatvarāyer became the disciple of **Svārupānander**. As a poet Tatvarāyer excelled his master, and hence the latter employed him in versifying the substance of the _Vedanta_ and _Saiva_ Sāstras. The following is a list of the works which he composed, viz.
 
