@@ -1658,85 +1658,109 @@ Sāntalinga Dēsiker was an ascetic of the _Vira Saiva_ sect, who lived at _Ture
 
 This poet was a native of _Tandaleicheri_, in the Carnatic, and is chiefly known as the author of an ethical poem in a series of 100 stanzas, under the title of _Tandaleiyār-sadagam_ (தண்டலையார்சதகம்), of which we here give the following specimen:---
 
-[TAMIL].
+திருவிருக்குந்தண்டலையார்‌ வளநாட்டிலில்வாழ்க்கைச்செலுத்துநல்‌லோர் --- ஒருவிருந்தாகிலுமின்றியுண்டபகற்பகலாமோவுறவாய்வந்த --- பெருவிருந்துக்குபசாரஞ்செய்தனுப்‌பியின்னுமெங்கே பெரியோரென்று --- வருவிருந்தோடுண்பதல்லால்‌ விருந்திலாதுணுஞ்சோறு மருந்துதானே.
 
 _The worthy householders, who dwell in the country blessed by the sacred Tandaleiyar (a title of Siva), consider the day in which they have no guest as no day: after having treated honourably and dismissed the respectable guest, who has visited them as a friend, they inquire anxiously for virtuous men to partake of their hospitality, for the food taken when there is no guest present, is poison._ **Ellis.**
 
-## Sāttanār. --- [TAMIL].
+## Sāttanār. --- சாத்தனார்.
 
 Sāttanār was one of the forty-nine professors of the Madura College. His father's name **Seyirkaviriyar** is always prefixed to his own; but the incidents of his history cannot be ascertained. The following is the impromptu which he uttered when the _Kural_ passed the College bench:---
 
-[TAMIL].
+ஆவனவுமாகாதனவுமறிவுடையார்‌  
+யாவரும்வல்லாரெடுத்தியம்பத்‌ --- தேவர்  
+திருவள்ளுவர்தாமுஞ்செப்‌பியவேசெய்வார்‌  
+பொருவிலொழுக்கம்பூண்டார்‌.
 
 _The learned will now be able to teach out of the book of the divine Tiruvalluver, that which ought to be done, and that which ought not, and men of good conduct will follow it._
 
-## Sengkundūrkizhār. --- [TAMIL].
+## Sengkundūrkizhār. --- செங்குன்றூர்க்கிழார்.
 
 Sengkundūrkizhār was one of the forty-nine professors of the Madura College, distinguished by the honorary title of _Tamil-asiriyer_, or Master of Tamil poetry. Nothing more is known of his life, except that he was the author of the encomiastic impromptu on the _Kural_, which we quote below.
 
-[TAMIL].
+புலவர்திருவள்ளுவரன்றிப்‌பூமேற்‌  
+சிலவர்புலவரெனச்செப்ப --- நிலவு  
+பிறங்கொளிமாலைக்கும்‌ பெயர்மாலைமற்றுங்‌  
+கறங்கிருண்மாலைக்கும்பெயர்‌.
 
 _To call any one a poet upon this earth besides the divine Valluver, would be like calling both the evening illumined by the moon, and the evening shrouded in darkness, a fine evening._
 
-## Seyalūrkodunchengkannanār. --- [TAMIL].
+## Seyalūrkodunchengkannanār. --- செயலூர்க்கொடுஞ் செங்கண்ணனார்.
 
 This poet was one of the forty-nine professors of the Madura College; but neither his parentage, nor the history of his life is known, and moreover of his compositions only the following stanza, which he uttered on the _Kural_, has been preserved.
 
-[TAMIL].
+வேதப்பொருளை விரகால்விரித்துலகோ  
+ரோதத்தமிழாலுரைசெய்தாராதலா  
+லுள்ளுநருள்ளும்‌ பொருளெல்லாமுண்டென்ப  
+வள்ளுவர்வாய்மொழிமாட்டு.
 
 _Valluver has in Tamil ingeniously explained within the narrow compass of his Kural the substance of the Vedas, that the world may learn it; hence they say that the work contains whatever matter it is possible to think of._
 
-## Sekizhār. --- [TAMIL].
+## Sekizhār. --- சேக்கிழார்.
 
-Sekizhār, called also _Arunmozhitever_ ([TAMIL]), was born of a _Velāla_ family at _Kundatūr_, a village in one of the subdivisions of the _Tonda_ country, denominated _Puliyūr-kottam_, and was equally eminent as a poet and politician. The king **Anabhāya Chola** having heard of his abilities, made him his Prime Minister, conferring on him at the same time the title of _Uttama-chola Pallaver_ ([TAMIL]). While he was employed at Court, he observed that the king though professedly a _Saiva_, yet admiring the _Jīvaka Chintāmani_ ([TAMIL]), an epic poem belonging to the _Jainas_, made it the sole object of his study. This grieved him very much, and one day having found an opportunity of talking to the king on the subject, he expostulated with him on the impropriety of his conduct in reading an heretical work. The king took his expostulation in good part; but asked him whether he could name any _Saiva_ poem which possessed superior merits. He thereupon recited before the king **Nambi's** _Antādi_ (a poem in 100 stanzas treating of the lives and action of the sixty-three _Tirutonders_, or special votaries of _Siva_). The king was quite pleased with it but thinking it to be too concise, he desired him to enlarge it into an epic poem of as great a length as the _Chintāmani_, under the title of _Tirutonder Puranam_ ([TAMIL]). With the king's permission he immediately left the Court and proceeding to Chillambaram took up his abode in the _Mandapam_ or open building opposite to the temple there, and began writing the poem and finished it in the course of some time. It must have no doubt been a laborious task, for it consists of 3363 stanzas, arranged in 72 cantos. When the king heard of the completion of the poem, he proceeded in person to Chillambaram, and having had it submitted to the judgment of a learned assembly, which sanctioned it readily, he placed both the author, and the work on a well caparisoned elephant, went forth in royal procession through the town, and afterwards caused a copy of the poem to be engraved on copper plates and deposited in the sanctuary of the temple. It appears that Sekizhar subsequently resigned his office of Prime Minister, and assuming the ascetic life remained at Chillambaram and died there.
+Sekizhār, called also _Arunmozhitever_ (அருண்மொழித்தேவர்), was born of a _Velāla_ family at _Kundatūr_, a village in one of the subdivisions of the _Tonda_ country, denominated _Puliyūr-kottam_, and was equally eminent as a poet and politician. The king **Anabhāya Chola** having heard of his abilities, made him his Prime Minister, conferring on him at the same time the title of _Uttama-chōla Pallaver_ (உத்தமசோழப்பல்லவர்). While he was employed at Court, he observed that the king though professedly a _Saiva_, yet admiring the _Jīvaka Chintāmani_ (சீவகசிந்தாமணி), an epic poem belonging to the _Jainas_, made it the sole object of his study. This grieved him very much, and one day having found an opportunity of talking to the king on the subject, he expostulated with him on the impropriety of his conduct in reading an heretical work. The king took his expostulation in good part; but asked him whether he could name any _Saiva_ poem which possessed superior merits. He thereupon recited before the king **Nambi's** _Antādi_ (a poem in 100 stanzas treating of the lives and action of the sixty-three _Tirutonders_, or special votaries of _Siva_). The king was quite pleased with it but thinking it to be too concise, he desired him to enlarge it into an epic poem of as great a length as the _Chintāmani_, under the title of _Tirutonder Puranam_ (திருத்தொண்டர்புராணம்). With the king's permission he immediately left the Court and proceeding to Chillambaram took up his abode in the _Mandapam_ or open building opposite to the temple there, and began writing the poem and finished it in the course of some time. It must have no doubt been a laborious task, for it consists of 3363 stanzas, arranged in 72 cantos. When the king heard of the completion of the poem, he proceeded in person to Chillambaram, and having had it submitted to the judgment of a learned assembly, which sanctioned it readily, he placed both the author, and the work on a well caparisoned elephant, went forth in royal procession through the town, and afterwards caused a copy of the poem to be engraved on copper plates and deposited in the sanctuary of the temple. It appears that Sekizhar subsequently resigned his office of Prime Minister, and assuming the ascetic life remained at Chillambaram and died there.
 
-## Senāthirāyer. --- [TAMIL].
+## Sēnāthirāyer. --- சேனாதிராயர்.
 
-Senāthirāyer was the son of **Nelleināther**, the scion of a _Velāla_ family at _Tillipally_, in Jaffna, and traced back his line of ancestors to the time of the _Chakravartis_. He commenced his studies early in life, and distinguished himself as a poet of considerable attainments; but his circumstances in life not permitting him to devote himself exclusively to the Muses, he betook himself to the legal profession, and continued to practice as a Proctor first before the Provincial Court, and afterwards before the District Court of Jaffna, and thereby secured for himself a competency, sufficient to maintain his independence. He was an intimate friend of all the Missionaries in Jaffna, and especially of the late Rev. **Joseph Knight** of Nellore, and was not unacquainted with the doctrines of Christianity; but such were his prejudices in favour of Hinduism, that he died as he had lived, a Hindu in the widest sense of the word. He is known as the author of a poem, entitled _Nallei Venba_ ([TAMIL]), which he composed in praise of the _Saiva_ shrine at Nellore, and likewise as one of the compilers of the Tamil Dictionary, which was published by the American Missionaries in Jaffna. His death took place in 1840, and a contemporary poet has commemorated that event in the following quatrain:
+Sēnāthirāyer was the son of **Nelleināther**, the scion of a _Velāla_ family at _Tillipally_, in Jaffna, and traced back his line of ancestors to the time of the _Chakravartis_. He commenced his studies early in life, and distinguished himself as a poet of considerable attainments; but his circumstances in life not permitting him to devote himself exclusively to the Muses, he betook himself to the legal profession, and continued to practice as a Proctor first before the Provincial Court, and afterwards before the District Court of Jaffna, and thereby secured for himself a competency, sufficient to maintain his independence. He was an intimate friend of all the Missionaries in Jaffna, and especially of the late Rev. **Joseph Knight** of Nellore, and was not unacquainted with the doctrines of Christianity; but such were his prejudices in favour of Hinduism, that he died as he had lived, a Hindu in the widest sense of the word. He is known as the author of a poem, entitled _Nallei Venbā_ (நல்லைவெண்பா), which he composed in praise of the _Saiva_ shrine at Nellore, and likewise as one of the compilers of the Tamil Dictionary, which was published by the American Missionaries in Jaffna. His death took place in 1840, and a contemporary poet has commemorated that event in the following quatrain:
 
-[TAMIL].
+நானாதிராமிடமுநன்னிலக்கண்ணாருறச்செய்‌  
+சேனாதிராயனையோ செத்ததென்றீர் --- வானாதி  
+பொன்னிலத்துமுண்மை புகநூலுணர்த்தவனை  
+யின்னிலத்துவிட்டெடுத்ததே.
 
-## Sendanār. --- [TAMIL].
+## Sēndanār. --- சேந்தனார்.
 
-Sendanār as represented by himself, was a _Brāhman_ of _Ambel_, a town on the banks of the Kaveri, in the Tanjore country, and he acquired the title of _Ubāya kavi_ or the double poet, on account of his skill both in Sanskrit and Tamil poetry. Of his compositions, however, there are none extant, save the _Divakaram_, a Tamil Dictionary comprising 2286 sutras in metre, divided into ten chapters. The period of his existence must be placed before the sixteenth century of the Christian era; for **Mandalapuruder**, who wrote the _Sūdāmani Nigandu_ in the early part of that century, professes to have followed the _Divakaram_ in composing his work.
+Sēndanār as represented by himself, was a _Brāhman_ of _Ambel_, a town on the banks of the Kaveri, in the Tanjore country, and he acquired the title of _Ubāya kavi_ or the double poet, on account of his skill both in Sanskrit and Tamil poetry. Of his compositions, however, there are none extant, save the _Divakaram_, a Tamil Dictionary comprising 2286 sutras in metre, divided into ten chapters. The period of his existence must be placed before the sixteenth century of the Christian era; for **Mandalapuruder**, who wrote the _Sūdāmani Nigandu_ in the early part of that century, professes to have followed the _Divakaram_ in composing his work.
 
-## Sidambara Desiker. --- [TAMIL].
+## Sidambara Dēsiker. --- சிதம்பரதேசிகர்.
 
-Sidambara Desiker was a _Saiva_ ascetic, who studying under the tuition of **Sāntalinga Desiker** of _Tureiyūr_, became a proficient in the art of poetry, as well as in the science of metaphysics; and soon afterwards had the distinction of being installed into the office of _Tambiran_ of the _Matam_ at Tirupporūr. His comments on the five metaphysical treatises of his master are much esteemed; and the poem called _Tirupporūr sannidhi-murei_ ([TAMIL]), which he wrote in praise of _Skanda_, who is worshipped at Tirupporūr, is an elegant production.
+Sidambara Dēsiker was a _Saiva_ ascetic, who studying under the tuition of **Sāntalinga Dēsiker** of _Tureiyūr_, became a proficient in the art of poetry, as well as in the science of metaphysics; and soon afterwards had the distinction of being installed into the office of _Tambiran_ of the _Matam_ at Tirupporūr. His comments on the five metaphysical treatises of his master are much esteemed; and the poem called _Tirupporūr sannidhi-murei_ (திருப்போரூர்ச்சந்நிதிமுறை), which he wrote in praise of _Skanda_, who is worshipped at Tirupporūr, is an elegant production.
 
-## Sinnatamby Pulaver. --- [TAMIL].
+## Sinnatamby Pulaver. --- சின்னத்தம்பிப்புலவர்.
 
 This poet was the son of **Villavarāya Mudeliar**, one of the chiefs who revised the _Thesawalamy_, or Codex Jaffanensis, compiled by order of Governor **Simons** in 1706. His birth took place at _Nellore_ in Jaffna. His poetical talents appear to have developed themselves at a very early age; for it is said that while yet a boy, as he was playing a game with areca nuts, with his playmates in the street, a poet, who came over from Southern India to wait on **Villavarāya Mudeliar** and to recite before him a poem which he had composed in his praise, not knowing the way to his house, inquired of the children for it; upon which Sinnatamby came forward, and answered him in the following impromptu:---
 
-[TAMIL].
+பொன்பூச்சொரியும்‌ பொலிந்தசெழுந்தாதுறைக்கும்‌  
+நன்பூதலத்தோர்க்கு நன்னிழலா --- மின்‌பிறவை  
+வீசுபுகழ்நல்லூரான்‌ வில்லவராயன்கனக  
+வாசலிடைக்கொன்றைமரம்.
 
 _Lo, there is a Kondei tree* at the golden gate of Villavarāya, of Nellore, whose fame is diffused everywhere as vividly as lightening, showering down its golden flowers full of pungent anthers, and affording good shade to the people with its luxuriant branches._
 
 *) _Cassia Fistula_.
 
-He was the author of a poem, entitled _Kalvazheiyantādi_ ([TAMIL]), consisting of a series of 100 stanzas remarkably beautiful both in their construction, and style. He appears to have been patronized by **Ganesiyer**, an opulent _Brahman_ who lived at Jaffna in his time, and we have the following stanza in which he has commemorated his patron:---
+He was the author of a poem, entitled _Kalvazheiyantādi_ (கல்வழையந்தாதி), consisting of a series of 100 stanzas remarkably beautiful both in their construction, and style. He appears to have been patronized by **Ganesiyer**, an opulent _Brahman_ who lived at Jaffna in his time, and we have the following stanza in which he has commemorated his patron:---
 
-[TAMIL].
+கடனந்தனவன கண்டத்தனளனங்கன்கணையால்‌  
+விடனங்கயிலை மயிலையொத்தாள்விடமிக்கதுத்திப்‌  
+படனந்தகிமுடி மேல்நின்றநச்சுப்‌ படரரவின்‌  
+நடனம்புரிதிம்மரசர்கணேசநரேந்திரனே.
 
 _The damsel with protuberant bosoms and tapering neck when wounded by the shaft of Ananga (Cupid) resembled the peahen of the mount Kailei (meaning Parvati); but thou O Ganesa, the prince of men! resemblest (Krishna), dancing on the extended hood of the venomous serpent._
 
-## Sirumedāviyār. --- [TAMIL].
+## Sirumēdāviyār. --- சிறுமேதாவியார்.
 
 The name of this poet occurs as one of the forty-nine professors of the Madura College; but nothing is known of his personal history, and there is no other relic of his poetical effusions than the following impromptu on the _Kural_:---
 
-[TAMIL].
+வீடொன்றுபாயிரநான்குவிளங்கற  
+நாடியமுப்பத்து மூன்றொன்றூழ்‌ --- கூடுபொரு  
+ளெள்ளிலெழுபதிருபதிற்றைந்தின்பம்‌  
+வள்ளுவர்சொன்னவகை.
 
 _Of the number of Chapters in the Kural four pertain to the preface, thirty-three treat of virtue, one of fate, seventy of wealth, and twenty-five of pleasure, and such is the arrangement of Valluver's work._
 
-## Sivagnāna Desiker. --- [TAMIL].
+## Sivagnāna Dēsiker. --- சிவஞானதேசிகர்.
 
-Sivagnāna Desiker, who was the _Tambirān_ of the _Matam_ at Tiruvāvaduturei in Tinnevelly, deserves notice both as a metaphysician and poet. The date of his birth as well as that of his death has not been ascertained; but he was contemporary with **Sankara Namasivāyer**, and like him prosecuted his studies under the guidance of **Sāminada Desiker**. Of his works the _Sūtravirutti_ ([TAMIL]), an exposition of the _Tolkappiyum_, and the _Nannūl Urei_ ([TAMIL]), an exposition of the _Nannūl_, are held in high estimation, as the best helps for students in acquiring a correct knowledge of belles lettres. His _Illakanavilakka-chūrāvali_ ([TAMIL]), a critique on the _Illakana-vilakkam_ of **Vyttyanātha Nāvaler**, is very ably written; but we do not admire the spirit which dictated it, for whilst the faults of the work are exposed with excessive rigour, its merits are studiedly concealed.
+Sivagnāna Dēsiker, who was the _Tambirān_ of the _Matam_ at Tiruvāvaduturei in Tinnevelly, deserves notice both as a metaphysician and poet. The date of his birth as well as that of his death has not been ascertained; but he was contemporary with **Sankara Namasivāyer**, and like him prosecuted his studies under the guidance of **Sāminada Desiker**. Of his works the _Sūtravirutti_ (சூத்திரவிருத்தி), an exposition of the _Tolkappiyum_, and the _Nannūl Urei_ (நன்னூலுரை), an exposition of the _Nannūl_, are held in high estimation, as the best helps for students in acquiring a correct knowledge of belles lettres. His _Illakanavilakka-chūrāvali_ (இலக்கணவிளக்கச்சூறாவளி), a critique on the _Illakana-vilakkam_ of **Vyttyanātha Nāvaler**, is very ably written; but we do not admire the spirit which dictated it, for whilst the faults of the work are exposed with excessive rigour, its merits are studiedly concealed.
 
-## Sivaprakāsa Desiker. --- [TAMIL].
+## Sivaprakāsa Dēsiker. --- சிவப்பிரகாசதேசிகர்.
 
-Sivaprakāsa Desiker was the eldest of the three sons of **Kumāraswāmi Pandāram**, a _Jangama_ priest, who lived at _Kanjipuram_ in the early part of the seventeenth century of the Christian era. Losing his father at an early age, and whilst still pursuing his studies, he went with his mother and brothers to Trinomali to settle himself there; but he shortly after set out to Tinnevelly for the purpose of perfecting himself in grammar and poetry. On his way, however, he was delayed at Tirumangalam for a period of two years, in consequence of **Annāmalei Reddi**, the _Gramādhipati_,* of Tirumangalam, having prevailed on him by his entreaties to reside in a _Matam_ which he had erected there. Afterwards taking leave of **Annāmalei Reddi**, who presented him with a sum of 300 pons (equivalent to £52 10), he proceeded to Tinnevelly in company with his brothers. When he reached Tinnevelly, hearing that **Velliyambala Tambiran**, the head ascetic of the _Saiva Matam_ at Sindupūndurei on the banks of the Tāmbraparni, was the best of Tamil scholars, he with his brothers presented himself before him, and asked his instruction in grammar and poetry. The _Tambiran_ in order to know the progress he may have already made in composing verses, desired him to compose a verse beginning and ending with the letter ([TAMIL]) _ku_, and having in the middle the name of _Ūrudeiyan_ (Siva), upon which he uttered the following offhand:---
+Sivaprakāsa Dēsiker was the eldest of the three sons of **Kumāraswāmi Pandāram**, a _Jangama_ priest, who lived at _Kanjipuram_ in the early part of the seventeenth century of the Christian era. Losing his father at an early age, and whilst still pursuing his studies, he went with his mother and brothers to Trinomali to settle himself there; but he shortly after set out to Tinnevelly for the purpose of perfecting himself in grammar and poetry. On his way, however, he was delayed at Tirumangalam for a period of two years, in consequence of **Annāmalei Reddi**, the _Gramādhipati_,* of Tirumangalam, having prevailed on him by his entreaties to reside in a _Matam_ which he had erected there. Afterwards taking leave of **Annāmalei Reddi**, who presented him with a sum of 300 pons (equivalent to £52 10), he proceeded to Tinnevelly in company with his brothers. When he reached Tinnevelly, hearing that **Velliyambala Tambiran**, the head ascetic of the _Saiva Matam_ at Sindupūndurei on the banks of the Tāmbraparni, was the best of Tamil scholars, he with his brothers presented himself before him, and asked his instruction in grammar and poetry. The _Tambiran_ in order to know the progress he may have already made in composing verses, desired him to compose a verse beginning and ending with the letter (கு) _ku_, and having in the middle the name of _Ūrudeiyan_ (Siva), upon which he uttered the following offhand:---
 
-[TAMIL].
+குடக்கோடுவானெயிறு கொண்டார்க்குக்கேழன்‌  
+முடக்கோடுமுன்னமணிவார்க்கு --- வடக்கோடு  
+தேருடையான்றெவ்வுக்குத்‌ தில்லைதோன்மெற்கொள்ள  
+லூருடையானென்னுமுலகு.
 
 *) The head of the village.
 
@@ -1744,47 +1768,47 @@ The _Tambiran_ was so much satisfied with the performance, that he embraced him,
 
 Sivaprakāsa Desiker was a prolific writer, and the following works all of which are written in well measured poetry, may be mentioned as his productions:
 
-1\. _Prabulinga Līla_, [TAMIL].
+1\. _Prabulinga Līla_, பிரபுலிங்கலீலை.
 
-2\. _Tirukūva Puranam_, [TAMIL].
+2\. _Tirukūva Puranam_, திருக்கூவப்புராணம்.
 
-3\. _Sittāndha Sikāmani_, [TAMIL].
+3\. _Sittāndha Sikāmani_, சித்தாந்த சிகாமணி.
 
-4\. _Vedānta Sudāmani_, [TAMIL].
+4\. _Vēdānta Sudāmani_, வேதாந்த சூடாமணி.
 
-5\. _Sivaprakāsa Vikāsam_, [TAMIL].
+5\. _Sivaprakāsa Vikāsam_, சிவப்பிரகாசவிகாசம்.
 
-6\. _Sivanāma Mahimei_, [TAMIL].
+6\. _Sivanāma Mahimei_, சிவநாமமகிமை.
 
-7\. _Tarkaparipāshei_, [TAMIL].
+7\. _Tarkaparipāshei_, தர்க்கபரிபாஷை.
 
-8\. _Shonasaila Mālei_, [TAMIL].
+8\. _Shōnasaila Mālei_, சோணசைலமாலை.
 
-9\. _Vengkai Kalambagam_, [TAMIL].
+9\. _Vēngkai Kalambagam_, வேங்கைக்கலம்பகம்.
 
-10\. _Vengkai Kovei_, [TAMIL].
+10\. _Vengkai Kōvei_, வெங்கைக்கோவை.
 
-11\. _Vengkai Ulā_, [TAMIL].
+11\. _Vengkai Ulā_, வெங்கையுலா.
 
-12\. _Vengkai Alangkāram_, [TAMIL].
+12\. _Vengkai Alangkāram_, வெங்கையலங்காரம்.
 
-13\. _Tiruchendil Antādi_, [TAMIL].
+13\. _Tiruchendil Antādi_, திருச்செந்திலந்தாதி.
 
-14\. _Satāmani Mālei_, [TAMIL].
+14\. _Satāmani Mālei_, சதமணிமாலை.
 
-15\. _Nālver Nānmani Mālei_, [TAMIL].
+15\. _Nālver Nānmani Mālei_, நால்வர் நான்மணிமாலை.
 
-16\. _Niranjana Mālei_, [TAMIL].
+16\. _Niranjana Mālei_, நிரஞ்சனமாலை.
 
-17\. _Kaitala Mālei_, [TAMIL].
+17\. _Kaitala Mālei_, கைத்தலமாலை.
 
-18\. _Abishega Mālei_, [TAMIL].
+18\. _Abishēga Mālei_, அபிஷேகமாலை.
 
-19\. _Ishtalinga Perungkazhinedil_, [TAMIL].
+19\. _Ishtalinga Perungkazhinedil_, இஷடலிங்கப் பெருங்கழில்நெடில்.
 
-20\. _Ishtalinga Kurungkazhinedil_, [TAMIL].
+20\. _Ishtalinga Kurungkazhinedil_, இஷடலிங்கக்குறுங்களில்நெடில்.
 
-21\. _Nanneri_, [TAMIL].
+21\. _Nanneri_, நன்னெறி.
 
 Of these the Nos. 1 and 2 are epic poems, one treating of the history of _Allama Prabhu_, the founder of the _Jangama_ sect and the other of the legends of the _Saiva_ fane at _Tirukkūvai_. The Nos 3, 4, 5, 6 and 7 treat of the Hindu system of Metaphysical philosophy, and the Nos. 8, 9, 10, 11, 12, 13, 14, 15, 16, 17, 18, 19 and 20 of the praise of certain _Saiva_ shrines, while the No. 21 contains a series of moral apothegms, from which we quote below a few as specimen:
 
