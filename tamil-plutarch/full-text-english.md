@@ -1932,61 +1932,61 @@ Tandi Āsiriyer was one of the poets who flourished at the Court of **Bhoja**, k
 
 Tatvarāyer was an eminent poet and metaphysician, born of a _Brāhman_ family of the _Mādhavachārya_ sect at _Vira_, in the Carnatic, sometime in the sixteenth century of the Christian era. Having very early completed his course of studies in Sanskrit and Tamil in his own village, he assumed the ascetic life at the same time with **Svārupānander**, who was his kinsman as well as fellow-student. The young men then desirous of having themselves initiated into the mysteries of _Saivaism_ proposed to go in search of a _Guru_ or teacher; but they agreed before starting, that he who succeeded in his undertaking, should become the _Guru_ of the one who failed. Tatvarāyer went towards the north, and **Svārupānander** towards the south. Tatvārayer failed in finding a _Guru_; but **Svārupānander** was fortunate enough to find one in the person of **Sivaprakāser**, a _Saiva_ recluse who lived in a thicket at Kovattam, and according to the agreement Tatvarāyer became the disciple of **Svārupānander**. As a poet Tatvarāyer excelled his master, and hence the latter employed him in versifying the substance of the _Vedanta_ and _Saiva_ Sāstras. The following is a list of the works which he composed, viz.
 
-1\. _Sivaprakāsa_, [TAMIL].
+1\. _Sivaprakāsa Venbā_, சிவப்பிரகாசவெண்பா.
 
-2\. _Tatvāmirtam_, [TAMIL].
+2\. _Tatvāmirtam_, தத்வாமிர்தம்.
 
-3\. _Tiruttālāttu_, [TAMIL].
+3\. _Tiruttālāttu_, திருத்தாலாட்டு.
 
-4\. _Pilleittirunāmam_, [TAMIL].
+4\. _Pilleittirunāmam_, பிள்ளைத்திருநாமம்.
 
-5\. _Venbāvantādi_, [TAMIL].
+5\. _Venbāvantādi_, வெண்பாவந்தாதி.
 
-6\. _Kalittureiyantādi_, [TAMIL].
+6\. _Kalittureiyantādi_, கலித்துறையந்தாதி.
 
-7\. _Sinnapū Venbā_, [TAMIL].
+7\. _Sinnapū Venbā_, சின்னப்பூவெண்பா.
 
-8\. _Tasāngam_, [TAMIL].
+8\. _Tasāngam_, தசாங்கம்.
 
-9\. _Irretteimani Malei_, [TAMIL].
+9\. _Irretteimani Malei_, இரட்டைமணிமாலை.
 
-10\. _Mummani Kovai_, [TAMIL].
+10\. _Mummani Kōvai_, மும்மணிக்கோவை.
 
-11\. _Nānmani Mālei_, [TAMIL].
+11\. _Nānmani Mālei_, நான்மணிமாலை.
 
-12\. _Tiruvadi Mālei_, [TAMIL].
+12\. _Tiruvadi Mālei_, திருவடிமாலை.
 
-13\. _Gnānavinodan Kalambagam_, [TAMIL].
+13\. _Gnānavinōdan Kalambagam_, ஞானவினோதன்கலம்பகம்.
 
-14\. _Ulā_, [TAMIL].
+14\. _Ulā_, உலா.
 
-15\. _Siledei Ulā_, [TAMIL].
+15\. _Siledei Ulā_, சிலேடையுலா.
 
-16\. _Nenjuvidudūtu_, [TAMIL].
+16\. _Nenjuvidudūtu_, நெஞ்சுவிடுதூது.
 
-17\. _Kalimadel_, [TAMIL].
+17\. _Kalimadel_, கலிமடல்.
 
-18\. _Agnaivadeipparani_, [TAMIL].
+18\. _Agnaivadeipparani_, அஞ்ஞைவதைப்பரணி.
 
-19\. _Mogavadeipparani_, [TAMIL].
+19\. _Mōgavadeipparani_, மோகவதைப்பரணி.
 
-20\. _Amirtasāra Venbā_, [TAMIL].
+20\. _Amirtasāra Venbā_, அமிர்தசாரவெண்பா.
 
-21\. _Tiruvarudkazhen Mālei_, [TAMIL].
+21\. _Tiruvarudkazhen Mālei_, திருவருட்கழன்மாலை.
 
-22\. _Poti Mālei_, [TAMIL].
+22\. _Pōti Mālei_, போற்றிமாலை.
 
-23\. _Pugadchi Mālei_, [TAMIL].
+23\. _Pugadchi Mālei_, புகழ்ச்சிமாலை.
 
-24\. _Sasivarnapotham_, [TAMIL].
+24\. _Sasivarnapōtham_, சசிவர்ணபோதம்.
 
-25\. _Peruntirattu_, [TAMIL].
+25\. _Peruntirattu_, பெருந்திரட்டு.
 
-26\. _Kuruntirattu_, [TAMIL].
+26\. _Kuruntirattu_, குறுந்திரட்டு.
 
-## Tāndavamūrti. --- [TAMIL].
+## Tāndavamūrti. --- தாண்டவமூர்த்தி.
 
-Tāndavamūrti was a _Saiva_ ascetic who obtained considerable reputation by his skill in the Sanskrit and Tamil languages, and their respective literature. In the latter part of his life he devoted his attention entirely to metaphysical researches and wrote a work on the subject, entitled _Kaivalya-navanītam_ ([TAMIL]), consisting of 293 stanzas.
+Tāndavamūrti was a _Saiva_ ascetic who obtained considerable reputation by his skill in the Sanskrit and Tamil languages, and their respective literature. In the latter part of his life he devoted his attention entirely to metaphysical researches and wrote a work on the subject, entitled _Kaivalya-navanītam_ (கைவல்யநவநீதம்), consisting of 293 stanzas.
 
 ## Tāyumānaver. --- தாயுமானவர்.
 
@@ -2003,37 +2003,45 @@ _Spreads undivided, operates unspent._"
 
 As a poet, he certainly claims an undisputed pre-eminence over all his contemporaries. His spiritual songs, of which a collection consisting of 1453 stanzas of various metres was published at Madras in 1836, afford ample proof of his superior talents; for there are scarcely any of the kind in Tamil to equal them in sublimity of style.
 
-## Tirumangai Āzhvār. --- [TAMIL].
+## Tirumangai Āzhvār. --- திருமங்கையாழ்வார்.
 
-This poet was a native of _Trivalūr_, and the _Vaishnavas_ venerate him as one of the twelve _Āzhvārs_, who was the foremost in promoting the interests of their sect, in opposition to the _Saivas_ and _Jainas_. His father **Nila** held the post of _Senāpati_ or generalismo of the _Chola_ army, and he himself was viceroy of a district; but failing to pay the tribute, and resisting the force which the king had sent to compel payment, he was deprived of his vice-regal authority, and left destitute, upon which he turned out a freebooter, but robbing only those who had not the _Vaishnava_ marks on their foreheads. He obtained the title of _Nātkaviperumal_ from the skill which he displayed in the composition of the four kinds of poems,* and it is said that when **Sampanter**, the famous champion of the _Saiva_ sect, disputed his right to the title he proved himself worthy of it to his satisfaction. His contribution to the _Nālāyiraprabhandam_ ([TAMIL]), consists of 1253 stanzas, in which he has not only eulogized _Vishnu_, but has likewise explained the esoteric doctrines of his sect.
+This poet was a native of _Trivalūr_, and the _Vaishnavas_ venerate him as one of the twelve _Āzhvārs_, who was the foremost in promoting the interests of their sect, in opposition to the _Saivas_ and _Jainas_. His father **Nila** held the post of _Senāpati_ or generalismo of the _Chola_ army, and he himself was viceroy of a district; but failing to pay the tribute, and resisting the force which the king had sent to compel payment, he was deprived of his vice-regal authority, and left destitute, upon which he turned out a freebooter, but robbing only those who had not the _Vaishnava_ marks on their foreheads. He obtained the title of _Nātkaviperumal_ from the skill which he displayed in the composition of the four kinds of poems,* and it is said that when **Sampanter**, the famous champion of the _Saiva_ sect, disputed his right to the title he proved himself worthy of it to his satisfaction. His contribution to the _Nālāyiraprabhandam_ (நாலாயிரபிரபந்தம்), consists of 1253 stanzas, in which he has not only eulogized _Vishnu_, but has likewise explained the esoteric doctrines of his sect.
 
-## Tirumazhishai Āzhvār. --- [TAMIL].
+## Tirumazhishai Āzhvār. --- திருமழிசையாழ்வார்.
 
-The history of Tirumazhishai Āzhvār, who is reckoned as one of the twelve _Āzhvārs_ like the preceding, has been altogether rendered a myth. This much however may be certain, that he was a foundling who was brought up in a _Veda_ family at _Tirumazhishai_. Having enthusiastically wedded himself to the _Vaishnava_ faith in his youth, he continued a rancorous opponent to the _Saivas_ throughout his life, and by his skill in polemics made many proselytes amongst them. He appears to have been a poet of superior talents, in proof of which may be mentioned his contribution of 206 stanzas to the _Nālāyiraprabhandam_ ([TAMIL]), in praise of _Vishnu_.
+The history of Tirumazhishai Āzhvār, who is reckoned as one of the twelve _Āzhvārs_ like the preceding, has been altogether rendered a myth. This much however may be certain, that he was a foundling who was brought up in a _Veda_ family at _Tirumazhishai_. Having enthusiastically wedded himself to the _Vaishnava_ faith in his youth, he continued a rancorous opponent to the _Saivas_ throughout his life, and by his skill in polemics made many proselytes amongst them. He appears to have been a poet of superior talents, in proof of which may be mentioned his contribution of 206 stanzas to the _Nālāyiraprabhandam_ (நாலாயிரபிரபந்தம்), in praise of _Vishnu_.
 
-## Tirumūler. --- [TAMIL].
+## Tirumūler. --- திருமூலர்.
 
-Little more is known of Tirumūler than that he was a _Saiva_ ascetic and philosopher, contemporary with **Agastiyer**, and like him exerted himself in diffusing the worship of _Siva_ amongst the Tamils. All that is related of him in the _Tirutonder Puranam_, in the character of one of the sixty-three special votaries of _Siva_, is manifestly fabulous, except that he was a cow-herd at _Sātanūr_, in the Carnatic, previous to his assuming the ascetic life, and establishing himself in the _Saiva_ fane at Tiruvavaduturai. Dr. **Ainslee** notices a medical treatise of Tirumūler under the title of _Tirumuler Vytia Vāgadam_ ([TAMIL]); but he is chiefly celebrated for his _Tirumulamandiram_ ([TAMIL]), a voluminous work containing an exposition of the tenets of the _Saiva_ religion, especially with reference to the four different forms of worship, as enjoined in the _Āgamas_. In the following two stanzas which we quote from it, the reader will see the striking coincidence between the doctrine which they inculcate, and that of the Bible:---
+Little more is known of Tirumūler than that he was a _Saiva_ ascetic and philosopher, contemporary with **Agastiyer**, and like him exerted himself in diffusing the worship of _Siva_ amongst the Tamils. All that is related of him in the _Tirutonder Puranam_, in the character of one of the sixty-three special votaries of _Siva_, is manifestly fabulous, except that he was a cow-herd at _Sātanūr_, in the Carnatic, previous to his assuming the ascetic life, and establishing himself in the _Saiva_ fane at Tiruvavaduturai. Dr. **Ainslee** notices a medical treatise of Tirumūler under the title of _Tirumuler Vytia Vāgadam_ (திருமூலர்வைத்தியவாகடம்); but he is chiefly celebrated for his _Tirumulamandiram_ (திருமூலமந்திரம்), a voluminous work containing an exposition of the tenets of the _Saiva_ religion, especially with reference to the four different forms of worship, as enjoined in the _Āgamas_. In the following two stanzas which we quote from it, the reader will see the striking coincidence between the doctrine which they inculcate, and that of the Bible:---
 
-[TAMIL].
+அன்புஞ்சிவமுமிரண்டென்பாரறிவிலா  
+ரன்பேசிவமாவதியாருமறிகிலா  
+ரன்பேசிவமாவதியாருமறிந்தபி  
+னன்பேசிவமாயமர்ந்திருப்பாரே.
 
-*) See Rotler's Tamil and English Dictionary under the word [TAMIL].
+என்பேவிறகாவிறைச்சியறுத்திட்டுப்‌  
+பொன்போற்கனலிற்‌ பொரியவறுப்‌பினு  
+மன்போடுருகியகங்குழைவார்க்கன்றி  
+யென்போன்மணியினையெய்தவொண்ணாதே.
+
+*) See Rotler's Tamil and English Dictionary under the word கவி.
 
 _The ignorant think that God and love are different; none knows that God and love are the same; did all men know that God and love were the same, they would dwell together in peace, considering love as God._ Compare, 1. John, 4. 16.
 
 _To those of soft hearts, whose minds are melted by divine love, although their flesh be cut off their bones used as fuel, and their moisture dried up by wasting in the golden flame, and to those alone it is not forbidden to approach the God, who is the golden jewel of my soul._ Compare 1. Cor. 13. 1-3.
 
-## Tīrunīlakanda Yāzhpāner. --- [TAMIL].
+## Tīrunīlakanda Yāzhpāner. --- தீருநீலகண்ட யாழ்ப்பாணர்.
 
 Tīrunīlakanda Yāzhpāner was a minstrel who flourished at _Erukkattampuliyūr_, in the Carnatic, during the reign of **Kuna Pāndiyen**. The traditions respecting him are tinged with fable; but there is no doubt that he was well skilled in his profession and being a zealous votary of _Siva_, continued all his life in composing verses in praise of his favourite god, and singing them to the lute. It is said that as he went to Madura to exhibit his performance in the temple there, the _Brāhmans_ at first would not take any notice of him; but that when he strung his lute and drew forth a few strains, they were so enraptured that they presented him a seat on a golden board, and rewarded him most munificently. He afterwards repaired to Shiyally and joining **Sampanter** spent the remainder of his days with him.
 
-## Tirupān Āzhvār. --- [TAMIL].
+## Tirupān Āzhvār. --- திருப்பானாழ்வார்.
 
-Tirupān Āzhvār is celebrated equally as a poet, and as one of the twelve _Āzhvārs_ or special votaries of _Vishnu_. When we strip his legend of its disguise, it would appear that his mother having exposed him in a corn-field at _Ureiyūr_ soon after his birth, he was found and adopted by a _Pānen_ or minstrel, whose profession he afterwards followed. His poetical compositions are not forthcoming at present, except the stanzas which he contributed to the _Nālāyiraprabhandam_ ([TAMIL]), portraying the beauties of _Vishnu_ from foot to head.
+Tirupān Āzhvār is celebrated equally as a poet, and as one of the twelve _Āzhvārs_ or special votaries of _Vishnu_. When we strip his legend of its disguise, it would appear that his mother having exposed him in a corn-field at _Ureiyūr_ soon after his birth, he was found and adopted by a _Pānen_ or minstrel, whose profession he afterwards followed. His poetical compositions are not forthcoming at present, except the stanzas which he contributed to the _Nālāyiraprabhandam_ (நாலாயிரபிரபந்தம்), portraying the beauties of _Vishnu_ from foot to head.
 
-## Tiruvalluver. --- [TAMIL].
+## Tiruvalluver. --- திருவள்ளுவர்.
 
-Tiruvalluver deservedly ranks foremost among the poets and moralists of India; for he has had no superior or equal in either character. Some place the date of his existence in the third or fourth and others in the eighth or ninth century of the Christian era, but the last is generally considered as most probable. All accounts concur in representing him as the offspring of a _Brahman_ by a _Pariah_ woman, brought up by a _Valluven_* at Mailapūr, near Madras, who had found him exposed in an _Illippe_ grove in his neighbourhood. It is not known who directed his studies; but we are told that while yet a youth, he had acquired so great a reputation for learning that **Mārgasagayen**, a wealthy farmer who lived at Kāveripākam, did not disdain to bestow on him the hand of his only daughter named **Vāsuki**, and besides the highest personages in the place felt a pride in the enjoyment of his friendship. He, however, appears to have pursued a quiet and unobtrusive course of life, working at the loom for subsistence as the other Pariahs did until he was prevailed upon by his friends to take up the gauntlet against the professors of the Madura College, who had arrogantly defied all other men of learning in the country and claimed all literary honours to themselves. In order to humble the pride of the professors, he wrote an ethical poem, under the title of _Kural_ ([TAMIL]), and repairing to the College asked them to review it as judges of poetical composition, that he may have a seat on their College bench in case it was approved. The professors at first scorned at the idea of a Pariah-born poet offering himself as a competitor for a seat with them, but afterwards when he drew them into a contest and completely vanquished them, they not only approved his work and gave him the desired seat, but also conferred on him several honorary titles, such as, _Deivapulaver_ ([TAMIL]), the divine poet, _Mudetpāvaler_ ([TAMIL]), the first of poets, _Perunāveler_ ([TAMIL]), the great poet, etc. A legend would have it that the professors were so sensible of their discomfiture, that unable to survive it, they all drowned themselves in the pond in the neighbourhood of the College; but this is not confirmed by other accounts. Nothing further is known of Tiruvalluver which can be relied upon, excepting that some time after his return to Mailapūr, he was visited with a severe domestic calamity by the death of his wife to whom he was tenderly attached and it so deeply affected his mind that secluding himself from society, he devoted the remainder of his life to religious contemplation. It is said that while lying sleepless and agitated, on the night following his wife's death, he ejaculated extempore the following verse:
+Tiruvalluver deservedly ranks foremost among the poets and moralists of India; for he has had no superior or equal in either character. Some place the date of his existence in the third or fourth and others in the eighth or ninth century of the Christian era, but the last is generally considered as most probable. All accounts concur in representing him as the offspring of a _Brahman_ by a _Pariah_ woman, brought up by a _Valluven_* at Mailapūr, near Madras, who had found him exposed in an _Illippe_ grove in his neighbourhood. It is not known who directed his studies; but we are told that while yet a youth, he had acquired so great a reputation for learning that **Mārgasagayen**, a wealthy farmer who lived at Kāveripākam, did not disdain to bestow on him the hand of his only daughter named **Vāsuki**, and besides the highest personages in the place felt a pride in the enjoyment of his friendship. He, however, appears to have pursued a quiet and unobtrusive course of life, working at the loom for subsistence as the other Pariahs did until he was prevailed upon by his friends to take up the gauntlet against the professors of the Madura College, who had arrogantly defied all other men of learning in the country and claimed all literary honours to themselves. In order to humble the pride of the professors, he wrote an ethical poem, under the title of _Kural_ (குறள்), and repairing to the College asked them to review it as judges of poetical composition, that he may have a seat on their College bench in case it was approved. The professors at first scorned at the idea of a Pariah-born poet offering himself as a competitor for a seat with them, but afterwards when he drew them into a contest and completely vanquished them, they not only approved his work and gave him the desired seat, but also conferred on him several honorary titles, such as, _Deivapulaver_ (தெய்வப்புலவர்), the divine poet, _Mudetpāvaler_ (முதற்பாவலர்), the first of poets, _Perunāveler_ (பெருநாவலர்), the great poet, etc. A legend would have it that the professors were so sensible of their discomfiture, that unable to survive it, they all drowned themselves in the pond in the neighbourhood of the College; but this is not confirmed by other accounts. Nothing further is known of Tiruvalluver which can be relied upon, excepting that some time after his return to Mailapūr, he was visited with a severe domestic calamity by the death of his wife to whom he was tenderly attached and it so deeply affected his mind that secluding himself from society, he devoted the remainder of his life to religious contemplation. It is said that while lying sleepless and agitated, on the night following his wife's death, he ejaculated extempore the following verse:
 
 [TAMIL].
 
