@@ -2043,7 +2043,10 @@ Tirupān Āzhvār is celebrated equally as a poet, and as one of the twelve _Āz
 
 Tiruvalluver deservedly ranks foremost among the poets and moralists of India; for he has had no superior or equal in either character. Some place the date of his existence in the third or fourth and others in the eighth or ninth century of the Christian era, but the last is generally considered as most probable. All accounts concur in representing him as the offspring of a _Brahman_ by a _Pariah_ woman, brought up by a _Valluven_* at Mailapūr, near Madras, who had found him exposed in an _Illippe_ grove in his neighbourhood. It is not known who directed his studies; but we are told that while yet a youth, he had acquired so great a reputation for learning that **Mārgasagayen**, a wealthy farmer who lived at Kāveripākam, did not disdain to bestow on him the hand of his only daughter named **Vāsuki**, and besides the highest personages in the place felt a pride in the enjoyment of his friendship. He, however, appears to have pursued a quiet and unobtrusive course of life, working at the loom for subsistence as the other Pariahs did until he was prevailed upon by his friends to take up the gauntlet against the professors of the Madura College, who had arrogantly defied all other men of learning in the country and claimed all literary honours to themselves. In order to humble the pride of the professors, he wrote an ethical poem, under the title of _Kural_ (குறள்), and repairing to the College asked them to review it as judges of poetical composition, that he may have a seat on their College bench in case it was approved. The professors at first scorned at the idea of a Pariah-born poet offering himself as a competitor for a seat with them, but afterwards when he drew them into a contest and completely vanquished them, they not only approved his work and gave him the desired seat, but also conferred on him several honorary titles, such as, _Deivapulaver_ (தெய்வப்புலவர்), the divine poet, _Mudetpāvaler_ (முதற்பாவலர்), the first of poets, _Perunāveler_ (பெருநாவலர்), the great poet, etc. A legend would have it that the professors were so sensible of their discomfiture, that unable to survive it, they all drowned themselves in the pond in the neighbourhood of the College; but this is not confirmed by other accounts. Nothing further is known of Tiruvalluver which can be relied upon, excepting that some time after his return to Mailapūr, he was visited with a severe domestic calamity by the death of his wife to whom he was tenderly attached and it so deeply affected his mind that secluding himself from society, he devoted the remainder of his life to religious contemplation. It is said that while lying sleepless and agitated, on the night following his wife's death, he ejaculated extempore the following verse:
 
-[TAMIL].
+அடிசிற்கினியாளை யாக்கஞ்செய்வாளைப்‌  
+படிசொற்படிகடவாளை, யடிவருடிப்‌  
+பின்றுஞ்சிமுன்னெழூஉம்‌ பேதையைவிட்டையையோ  
+வென்றுஞ்சுமென்கண்ணிணை.
 
 _When I have lost a woman who excelled in the knowledge of housewifery, who performed rightly all domestic duties, who never transgressed my word or my door, who chafed my limbs and never slumbering until I slept, arose before I awoke; Alas! Alas! How can my eyes again know sleep!._*
 
@@ -2053,11 +2056,14 @@ _When I have lost a woman who excelled in the knowledge of housewifery, who perf
 
 The time of his death is uncertain; but a tradition would have it that when he died his body was according to his express desire exposed in the open air outside the town to be devoured by crows.
 
-It is difficult to judge from the tenor of his _Kural_ to what sect he belonged; for he has entirely avoided in the work every thing that savours of sectarianism in order to harmonize the suffrages of all the sects. The Jainas, however, claim him to belong to their sect from his having used in one of his distichs in praise of God the epithet _Andanan_ ([TAMIL]), which is applicable to _Arhā_ ([TAMIL]), the object of their worship.
+It is difficult to judge from the tenor of his _Kural_ to what sect he belonged; for he has entirely avoided in the work every thing that savours of sectarianism in order to harmonize the suffrages of all the sects. The Jainas, however, claim him to belong to their sect from his having used in one of his distichs in praise of God the epithet _Andanan_ (அந்தணன்), which is applicable to _Arhā_ (அருகன்), the object of their worship.
 
-Independent of the _Kural_, we have no other compositions of Tiruvalluver. The physiological work, entitled _Gnānavettiyan_ ([TAMIL]), which is commonly ascribed to him, appears to have been written by some person long after his time; for the author, though he assumes the title of Tiruvalluver and speaks in his character in the body of the work, yet betrays the disguise in one of the introductory stanzas, thus:
+Independent of the _Kural_, we have no other compositions of Tiruvalluver. The physiological work, entitled _Gnānavettiyan_ (ஞானவெட்டியான்), which is commonly ascribed to him, appears to have been written by some person long after his time; for the author, though he assumes the title of Tiruvalluver and speaks in his character in the body of the work, yet betrays the disguise in one of the introductory stanzas, thus:
 
-[TAMIL].
+அகமகிழுமம்பிகைப்‌ பெண்ணருளினாலே  
+யவனிதனில்‌ஞானவெட்டியருள யானும்‌  
+நிகழ்திருவள்ளுவனயனாருரைத்தவேத  
+நிரஞ்சனமாநிலவுபொழிரவிகாப்பாமே.
 
 _Invoking the spotless one whom the holy Valluva has revealed in his incomparable Veda as clear as the light of the sun and moon, and by the grace of the damsel Ambigai (Parvati), who delights the heart, I shall compose the Gnāna Vettiyan._
 
@@ -2075,37 +2081,61 @@ The _Kural_ "stands confessed, even to the present day, to be the best and chief
 
 "The _Kural_ of Tiruvalluver, a work consisting of 1333 distichs, or poetical aphorisms, on almost every subject connected with morals and political economy, and which is regarded by all Tamilians (and perhaps justly) as the finest composition of which the Tamil can boast appears to be not only the best but the oldest Tamil work of any extent which is now in existence. **Caldwell's** Dravidian Grammar, Introduction, p. 85.
 
-## Tiruverkādu Muttiāh Mudeliār. --- [TAMIL].
+## Tiruvērkādu Muttiāh Mudeliār. --- திருவேற்காடு முத்தையா முதலியார்.
 
-Tiruverkādu Muttiāh Mudeliār was born at _Tiruverkādu_, in the Carnatic, in CE 1761. It appears from an amusing account of his own studies, written by himself, and published in **Dalrymple's** Oriental Repertory, that he had begun to apply himself to his books at the very early age of five, and before he had completed his twenty-first year, he had acquired a knowledge of the Sanskrit, Tamil, Telugu, Maharatta, Persian, English and Latin languages, and became an adept in the mystical philosophy of the Hindus. The fame of his acquirements soon procured for him the patronage of Lord **Hobart**, the then Governor of Madras, and through his kindness was admitted into the public service. After the capture of Ceylon by the British, he was sent to Colombo as one of the Dubashes, but he remained in the office only for a short time, and then returned to his country.
+Tiruvērkādu Muttiāh Mudeliār was born at _Tiruverkādu_, in the Carnatic, in CE 1761. It appears from an amusing account of his own studies, written by himself, and published in **Dalrymple's** Oriental Repertory, that he had begun to apply himself to his books at the very early age of five, and before he had completed his twenty-first year, he had acquired a knowledge of the Sanskrit, Tamil, Telugu, Maharatta, Persian, English and Latin languages, and became an adept in the mystical philosophy of the Hindus. The fame of his acquirements soon procured for him the patronage of Lord **Hobart**, the then Governor of Madras, and through his kindness was admitted into the public service. After the capture of Ceylon by the British, he was sent to Colombo as one of the Dubashes, but he remained in the office only for a short time, and then returned to his country.
 
 Professor **Wilson**, in his Historical Sketch of the kingdom of Pandiya, calls Muttiah "an ingenious native" and quotes him as the author of a "History of the Modern Kings of Madura."
 
 Although the few occasional effusions of his muse show that he was possessed of abilities to make him distinguished as a poet, yet he seems never to have set his mind towards the composition of a poem of any magnitude. There are extant five acrostic stanzas addressed by him to Lord **Hobart**, of which the initial letters of the first line of each when taken together form his own name, and the final letters that of his patron.
 
-## Tiruvenkataiyer. --- [TAMIL].
+## Tiruvēnkataiyer. --- திருவேங்கடையர்.
 
-This poet was a _Brāhman_ who lived at _Villiputūr_, in the Carnatic. His memory has been preserved by his _Uvamāna Sangraham_ ([TAMIL]), a short but elegantly written treatise on the metaphors employed in describing the charms of the fair sex, and which greatly facilitates the composition of erotic poems.
+This poet was a _Brāhman_ who lived at _Villiputūr_, in the Carnatic. His memory has been preserved by his _Uvamāna Sangraham_ (உவமானசங்கிரகம்), a short but elegantly written treatise on the metaphors employed in describing the charms of the fair sex, and which greatly facilitates the composition of erotic poems.
 
-## Tiruvenkataswāmi. --- [TAMIL].
+## Tiruvēnkataswāmi. --- திருவேங்கடசுவாமி.
 
-Tiruvenkataswāmi, who was a _Brāhman_ of _Mādei_, in the Carnatic, distinguished himself both as a poet and metaphysician. The date of his existence, as well as the particulars of his personal history is unknown. Of his works the imitation of the _Praboda Chandrodayam_ ([TAMIL]) of **Kishna Misra** in Tamil, redounds greatly to his credit. It consists of 2012 stanzas, divided into forty-eight cantos, but unlike the Sanskrit original which is in the form of a drama, it is of an epic character. In this work the _Rāmāyana_ is explained as an allegory; the triumph of **Rāma** over **Rāvana** being represented as the triumph of the good principle over the evil.
+Tiruvēnkataswāmi, who was a _Brāhman_ of _Mādei_, in the Carnatic, distinguished himself both as a poet and metaphysician. The date of his existence, as well as the particulars of his personal history is unknown. Of his works the imitation of the _Prabōda Chandrōdayam_ (பிரபோதசந்திரோதயம்) of **Kishna Misra** in Tamil, redounds greatly to his credit. It consists of 2012 stanzas, divided into forty-eight cantos, but unlike the Sanskrit original which is in the form of a drama, it is of an epic character. In this work the _Rāmāyana_ is explained as an allegory; the triumph of **Rāma** over **Rāvana** being represented as the triumph of the good principle over the evil.
 
-## Tenikudi Kiranār. --- [TAMIL].
+## Tēnikudi Kiranār. --- தேனிக்குடிக்கீரனார்.
 
-Of the history of Tenikudi Kiranār nothing further is known than that he was one of the forty-nine professors of the Madura College. His name would have long ago been forgotten, but for his encomiastic stanza on the _Kural_, which we quote below.
+Of the history of Tēnikudi Kiranār nothing further is known than that he was one of the forty-nine professors of the Madura College. His name would have long ago been forgotten, but for his encomiastic stanza on the _Kural_, which we quote below.
 
-[TAMIL].
+பொய்ப்பாலபொய்யேயாய்ப்போயினபொய்யல்லாத  
+மெய்ப்பாலமெய்யாய்‌ விளங்கினவே --- முப்பாலிற்‌  
+றெய்வத்திருவள்ளுவர்‌ செப்பியகுறளால்‌  
+வையத்துவாழ்வார்மனத்து.
 
 _By the Kural, the production of the divine Tiruvalluver, the world has been enabled to distinguish truth from falsehood which were hitherto confounded together._
 
-## Tereiyer. --- [TAMIL].
+## Tēreiyer. --- தேரையர்.
 
-Tereiyer, called also _Terer_, was one of the twelve disciples of **Agastiyer**. He is described in the _Sadur Agaradi_ as "a poet thoroughly versed in the _Āyūr Veda_, or science of medicine." There is a tradition that he displayed so much skill in the healing art, that he excited the jealousy of his master by frequently foiling him and was in consequence dismissed with a malediction which rendered his practice unsuccessful for the future; but this, as well as some other incidents reported concerning him, have much the air of fable. He was, however, a prolific writer on subjects connected with his profession; but all his works have perished, except a treatise on medicine, entitled _Sikāmani Venba_ ([TAMIL]), a treatise on pulsation, entitled _Nādikottu_ ([TAMIL]), and the fragments of a treatise on hygiene, entitled _Noiyanugāvidhi_ ([TAMIL]).
+Tēreiyer, called also _Tērer_, was one of the twelve disciples of **Agastiyer**. He is described in the _Sadur Agaradi_ as "a poet thoroughly versed in the _Āyūr Veda_, or science of medicine." There is a tradition that he displayed so much skill in the healing art, that he excited the jealousy of his master by frequently foiling him and was in consequence dismissed with a malediction which rendered his practice unsuccessful for the future; but this, as well as some other incidents reported concerning him, have much the air of fable. He was, however, a prolific writer on subjects connected with his profession; but all his works have perished, except a treatise on medicine, entitled _Sikāmani Venba_ (சிகாமணிவெண்பா), a treatise on pulsation, entitled _Nādikottu_ (நாடிக்கொத்து), and the fragments of a treatise on hygiene, entitled _Nōiyanugāvidhi_ (நோயணுகாவிதி).
 
 The following stanzas we quote from Tereiyer's treatise on hygiene, as a specimen of his theories:---
 
-[TAMIL].
+திண்ணமிரண்டுள்ளே சிக்கவடக்காமற்‌  
+பெண்ணின்பாலொன்றைப்‌ பெருக்காம --- லுண்ணுங்கா  
+னீரருக்கி மோர்பெருக்கி நெய்யுருக்கியுண்பவர்தம்‌  
+பேருரைக்கிற்போமேபிணி.
+
+உண்பதிருபொழுதொழிய மூன்றுபொழுதுண்ணோ  
+&emsp;&emsp;&emsp;&emsp;&emsp;முறங்குவதிராவொழியப்‌ பகலுறக்கஞ்செய்யோம்‌  
+பெண்கடமைத்திங்களுக்கோர்காலன்றிமருவோம்‌  
+&emsp;&emsp;&emsp;&emsp;&emsp;பெருந்தாகமெடுத்திடினும்‌ பெயர்த்துநீரருந்தோம்‌  
+மண்பரவுகிழங்குகளிற்‌ கரணையன்றிப்புசியோம்‌  
+&emsp;&emsp;&emsp;&emsp;&emsp;வாழையிளம்பிஞ்சொழியக் கனியருந்தல்செய்யோம்‌  
+நண்புபெறவுண்டபின்பு குறுநடையுங்கொள்வோம்‌  
+&emsp;&emsp;&emsp;&emsp;&emsp;நமனார்க்கிங்கேதுகவை நாமிருக்குமிடத்தே.
+
+ஆறுதிங்கட்கொருதடவை வமனமருந்தயில்வோ  
+&emsp;&emsp;&emsp;&emsp;&emsp;மடர்நான்குமதிக்கொருக்காற்‌ பேதியுறைநுகர்வோந்  
+தேறுமதியொன்றரைக்கோர்‌ தரநசியம்பெறுவோந்  
+&emsp;&emsp;&emsp;&emsp;&emsp;திங்களரைக்கிரண்டுதரஞ்‌ சவளவிருப்புறுவோம்‌  
+வீறுசதுர்நாட்கொருக்கானெய்முழுக்கைத்தவிரோம்‌  
+&emsp;&emsp;&emsp;&emsp;&emsp;விழிகளுக்கஞ்சனமூன்று நாட்கொருக்காலிடுவோம்‌  
+நாறுகந்தம்புட்பமிவை நடுநிசியின்முகரோம்‌  
+&emsp;&emsp;&emsp;&emsp;&emsp;நமனார்க்கிங்கேதுகவை நாமிருக்குமிடத்தே.
 
 _He who does not suppress the alvine discharges; he who does not indulge in venery; he who at meals drinks water that has been boiled; he who dilutes well with water his curdled milk; he who uses ghee melted, will enjoy health; for at the very mention of his name disease will depart._
 
@@ -2113,91 +2143,106 @@ _We will eat only twice, and not thrice a day; we will sleep only at night, and 
 
 _We will take an emetic once in six months; a purgative once in four months; a Nasya* once in a month and a half, get shaved (meaning the head) twice in a fortnight; anoint ourselves, and bathe every fourth day; apply collyrium to the eyes every third day; and never smell perfumes, or flowers in the middle of the night; and then what has Yama to do with us?_
 
-In the _Padhārtaguna Chintamani_ ([TAMIL]), a work on Materia Medica, consisting of 1504 stanzas, and which has been recently recovered from obscurity through the medium of the Press at Madras, by the laudable industry of **Subramanya Panditer**, we find a great number of the stanzas quoted as Tereiyer's productions. It may be mentioned that this work not only treats of medicinal agents but also of nutrients. It begins with the elements, and climates, and then proceeds to describe the properties of the milk of different kinds of animals and vegetables, the dung and urine of different kinds of animals, the barks, leaves, flowers, fruits, seeds, nuts, gums, and roots of different kinds of trees and plants, the flesh of different kinds of beasts, birds and fish, and the preparations made from different kinds of metals and minerals, and concludes with rules on the mode of living for the preservation of health; and we consider that an English translation of this work will no doubt prove a valuable auxiliary to medical men in England in their researches into the Materia Medica of India.
+In the _Padhārtaguna Chintamani_ (பதார்த்தகுணசிந்தாமணி), a work on Materia Medica, consisting of 1504 stanzas, and which has been recently recovered from obscurity through the medium of the Press at Madras, by the laudable industry of **Subramanya Panditer**, we find a great number of the stanzas quoted as Tereiyer's productions. It may be mentioned that this work not only treats of medicinal agents but also of nutrients. It begins with the elements, and climates, and then proceeds to describe the properties of the milk of different kinds of animals and vegetables, the dung and urine of different kinds of animals, the barks, leaves, flowers, fruits, seeds, nuts, gums, and roots of different kinds of trees and plants, the flesh of different kinds of beasts, birds and fish, and the preparations made from different kinds of metals and minerals, and concludes with rules on the mode of living for the preservation of health; and we consider that an English translation of this work will no doubt prove a valuable auxiliary to medical men in England in their researches into the Materia Medica of India.
 
 *) A medicine prepared from the juice of certain herbs and injected into the nostrils to promote the discharge of mucus.
 
-## Todittalei Vizhuttandinār. --- [TAMIL].
+## Todittalei Vizhuttandinār. --- தொடித்தலைவிழுத்தண்டினார்.
 
 Todittalei Vizhuttandinār was one of the forty-nine professors of the Madura College. What has contributed to preserve his name from oblivion is his encomiastic stanza on the _Kural_, which we subjoin.
 
-[TAMIL].
+அறநான்கறிபொருளேழொன்றுகாமத்‌  
+திறமூன்றெனப்பகுதிசெய்து --- பெறலரிய  
+நாலுமொழிந்த பெருநாவலரேநன்குணர்வார்  
+போலுமொழிந்தபொருள்‌.
 
 _The great poet has in his Kural divided the topic Virtue into four sections; the topic wealth into seven sections; and the topic pleasure into three sections; including in them the fourth topic, eternal happiness, which is difficult to be obtained: hence the work comprises everything, and if there be anything which it does not comprise, he alone knows it._
 
-## Tolkāppiyanār. --- [TAMIL].
+## Tolkāppiyanār. --- தொல்காப்பியனார்.
 
-Tolkāppiyanār, otherwise called _Trinadhūmāgni_ ([TAMIL]), was one of the twelve disciples of **Agastiyer**, and pre-eminent to them all in learning. He belonged to a _Brahman_ family of the tribe of **Jamadagni**, and _Tolkāppiyakkudi_, a town situated to the south of Madura, is reported to have been the place of his residence. It is reported of him that having quarrelled with **Agastiyer**, he set up a rival school, and composed for the use of his scholars a grammar of his own, under the title of _Tolkāppiyam_, which though based on the grammatical institutes of **Agastiyer**, yet on the whole deviated from them. **Athankotāsiriyer**, who was also a disciple of **Agastiyer**, taking the part of his master endeavoured to bring the _Tolkappiyam_ into disrepute by severely criticising it, when it was submitted to the judgment of the assembly of the learned in the court of the Pandiya king; but the author defended his work so successfully that it met with due approbation. This work, which is the oldest of the kind in existence, consists of 1276 _Sūtras_ or rules in verse, and it has had three commentaries written upon it, one by **Nachchinarkiniyanār**, another by **Ilampūraner**, and the other by **Senavareiyer** and which are respectively called after the names of the commentators _Nachchinārkiniyam_ ([TAMIL]), _Ilampūranam_ ([TAMIL]), and _Senāvareiyam_ ([TAMIL]).
+Tolkāppiyanār, otherwise called _Trinadhūmāgni_ (திரணதூமாக்கினி), was one of the twelve disciples of **Agastiyer**, and pre-eminent to them all in learning. He belonged to a _Brahman_ family of the tribe of **Jamadagni**, and _Tolkāppiyakkudi_, a town situated to the south of Madura, is reported to have been the place of his residence. It is reported of him that having quarrelled with **Agastiyer**, he set up a rival school, and composed for the use of his scholars a grammar of his own, under the title of _Tolkāppiyam_, which though based on the grammatical institutes of **Agastiyer**, yet on the whole deviated from them. **Athankotāsiriyer**, who was also a disciple of **Agastiyer**, taking the part of his master endeavoured to bring the _Tolkappiyam_ into disrepute by severely criticising it, when it was submitted to the judgment of the assembly of the learned in the court of the Pandiya king; but the author defended his work so successfully that it met with due approbation. This work, which is the oldest of the kind in existence, consists of 1276 _Sūtras_ or rules in verse, and it has had three commentaries written upon it, one by **Nachchinarkiniyanār**, another by **Ilampūraner**, and the other by **Senavareiyer** and which are respectively called after the names of the commentators _Nachchinārkiniyam_ (நச்சினார்க்கினியம்), _Ilampūranam_ (இளம்பூரணம்), and _Sēnāvareiyam_ (சேனாவரையம்).
 
-## Tondaradippodi Āzhvār. --- [TAMIL].
+## Tondaradippōdi Āzhvār. --- தொண்டரடிப்போடியாழ்வார்.
 
-This poet, whose real name was _Vipra Narāyaner_, ranks high in the estimation of the _Vaishnavas_ as one of the twelve special votaries of _Vishnu_. He was born of a _Brahman_ family at _Tirumandangkudi_, and after having completed his course of studies in the Vedic and profane literature, became an ascetic, and spent the remainder of his days in ministering in the _Vaishnava_ shrine at Sirangam. Of his poetical compositions the _Tirumālei_, ([TAMIL]), and _Tiruppalliezhuchi_ ([TAMIL]), which form a part of the _Nālāyiraprabhandam_ ([TAMIL]), consist of fifty stanzas in praise of _Vishnu_, and they are deserving of notice.
+This poet, whose real name was _Vipra Narāyaner_, ranks high in the estimation of the _Vaishnavas_ as one of the twelve special votaries of _Vishnu_. He was born of a _Brahman_ family at _Tirumandangkudi_, and after having completed his course of studies in the Vedic and profane literature, became an ascetic, and spent the remainder of his days in ministering in the _Vaishnava_ shrine at Sirangam. Of his poetical compositions the _Tirumālei_, (திருமாலை), and _Tiruppalliezhuchi_ (திருப்பள்ளியெழச்சி), which form a part of the _Nālāyiraprabhandam_ (நாலாயிரபிரபந்தம்), consist of fifty stanzas in praise of _Vishnu_, and they are deserving of notice.
 
-## Ulaganāthen. --- [TAMIL].
+## Ulaganāthen. --- உலகநாதன்.
 
-This poet though born of parents who belonged to the _Ambatta_, or barber caste, nevertheless raised himself to eminence by his superior genius. Neither the place of his birth nor the date of his existence is known. He is remembered as the author of two metrical compositions, of which the one entitled _Ulaga Niti_ ([TAMIL]), contains a series of moral precepts, and the other, entitled _Jatibeda Nūl_ ([TAMIL]), treats of the origin of the divisions, and differences of caste.
+This poet though born of parents who belonged to the _Ambatta_, or barber caste, nevertheless raised himself to eminence by his superior genius. Neither the place of his birth nor the date of his existence is known. He is remembered as the author of two metrical compositions, of which the one entitled _Ulaga Niti_ (உலகநீதி), contains a series of moral precepts, and the other, entitled _Jatibēda Nūl_ (சாதிபேதநூல்), treats of the origin of the divisions, and differences of caste.
 
-## Ukraperuvazhuthiyār. --- [TAMIL].
+## Ukraperuvazhuthiyār. --- உக்கிரப்பெருவழுதியார்.
 
 Ukraperuvazhuthiyār was one of the forty-nine professors of the Madura College. Some invest him likewise with regal dignity; but no king of such a name appears to have reigned at Madura later than the seventh or sixth century BCE, and we cannot therefore admit it without involving ourselves into a serious anachronism. Tradition has handed down the following impromptu, in which he eulogized both **Tiruvalluver** and his _Kural_.
 
-[TAMIL].
+நான்மறையின்மெய்ப்பொருளை முப்பொருளாநான்முகத்தோன்‌  
+றான்மறைந்து வள்ளுவனாய்த்‌ தந்‌துரைத்த --- நூன்முறையை  
+வந்திக்க சென்னிவாய்‌ வாழ்த்துகநன்னெஞ்சஞ்‌  
+சிந்திக்கக் கேட்கச்செவி.
 
 _The four-faced (Brahma) disguising himself as Valluver has imparted the truths of the four Vedas in the three parts of the Kural, which is therefore to be adored by the head, praised by the mouth, pondered by the mind, and heard by the ears._
 
-## Umāpati Sivāchariyār. --- [TAMIL].
+## Umāpati Sivāchariyār. --- உமாபதி சிவாசாரியர்.
 
-This celebrated poet and philosopher flourished in the seventeenth century of the Christian era. He belonged to the _Vaishnava Brahmans_ resident at _Chillambaram_, in the Carnatic; but being dissatisfied with the philosophy of the _Vaishnava_ school, he embraced that of the _Saiva_ which he studied thoroughly under the guidance of the _Saiva Guru_ **Marreignāna Sampanter** at Maruthūr. His principal work is the _Sivaprakasam_ ([TAMIL]), consisting of a centum of stanzas, illustrative of the doctrines as taught in the _Āgamas_ respecting the existence of God, his essence and attributes, and of the nature of the human soul, and the organization of the human body. We are glad to notice an abstract of its contents translated into English by the Rev. **Henry R. Hoisington**, and published in the fourth volume of the Journal of the American Oriental Society. He was also the author of the _Tirutonder Puranasāram_ ([TAMIL]), in which he has, in the narrow compass of seventy-five stanzas, given the substance of the legends of the sixty-four votaries of _Siva_ as related by _Sekilar_ in 2255 stanzas. He wrote as well the _Sekilar Puranam_ ([TAMIL]), which treats of the life and character of _Sekilar_ himself in 100 stanzas, and the _Koyit Puranam_ ([TAMIL]), which treats of the legends of the shrine of _Siva_ at Chillambaram in 410 stanzas. The time of his existence is not known; but we find his name mentioned in the introduction to the _Sidambara Purānam_ ([TAMIL]), which dates CE 1513.
+This celebrated poet and philosopher flourished in the seventeenth century of the Christian era. He belonged to the _Vaishnava Brahmans_ resident at _Chillambaram_, in the Carnatic; but being dissatisfied with the philosophy of the _Vaishnava_ school, he embraced that of the _Saiva_ which he studied thoroughly under the guidance of the _Saiva Guru_ **Marreignāna Sampanter** at Maruthūr. His principal work is the _Sivaprakasam_ (சிவப்பிரகாசம்), consisting of a centum of stanzas, illustrative of the doctrines as taught in the _Āgamas_ respecting the existence of God, his essence and attributes, and of the nature of the human soul, and the organization of the human body. We are glad to notice an abstract of its contents translated into English by the Rev. **Henry R. Hoisington**, and published in the fourth volume of the Journal of the American Oriental Society. He was also the author of the _Tirutonder Puranasāram_ (திருத்தொண்டர்புராணசாரம்), in which he has, in the narrow compass of seventy-five stanzas, given the substance of the legends of the sixty-four votaries of _Siva_ as related by _Sekilar_ in 2255 stanzas. He wrote as well the _Sēkilar Puranam_ (சேக்கிழார்புராணம்), which treats of the life and character of _Sekilar_ himself in 100 stanzas, and the _Kōyit Puranam_ (கோயிற்புராணம்), which treats of the legends of the shrine of _Siva_ at Chillambaram in 410 stanzas. The time of his existence is not known; but we find his name mentioned in the introduction to the _Sidambara Purānam_ (சிதம்பரபுராணம்), which dates CE 1513.
 
 ## Uppei. --- உப்பை.
 
 This poetess was one of the sisters of **Tiruvalluver**, and having been exposed by her mother, as soon as born, in a choultry at _Utukadū_ in the Arcot district, she was found and brought up by a washerman. She distinguished herself not only by her proficiency in the art of poetry but likewise in the science of moral philosophy, of which she wrote a treatise. The Hindus having deified her after her death, under the title of _Māri Ammei_, the further particulars of her life have become blended with fable.
 
-## Ureiūr Muthukūtanar. --- [TAMIL].
+## Ureiūr Muthukūtanar. --- உறையூர்முதுகூற்றனார்.
 
 The name of this poet has been handed down by tradition as one of the forty-nine professors of the Madura College; but we have no particulars of his life, or any of his compositions, save the subjoined impromptu on the _Kural_.
 
-[TAMIL].
+தேவிற்சிறந்த திருவள்ளுவர்குறள்வெண்  
+பாவிற்சிறந்திடுமுப்பால்‌ பகரார்‌ --- நாவிற்‌  
+குயலில்லைசொற்சுவையோர்வில்லைமற்றுஞ்‌  
+செயலில்லையென்னுந்திரு.
 
 _They who have not studied the Kural of the divine Valluver are incapable of good actions; neither their tongues have expressed what is sweet in language, nor their minds understood what is sublime in sense._
 
-## Uruttirasanmer. --- [TAMIL].
+## Uruttirasanmer. --- உருத்திரசன்மர்.
 
 This poet was the son of an opulent merchant at Madura. He is said to have been dumb from his birth until he passed his childhood, and then became supernaturally possessed of poetic spirit. Such was his fame as a critic, that when a dispute arose amongst the professors of the Madura College as to superiority, in consequence of each of them having composed a poem, and each vaunted the merits of his own composition, they chose him as arbitrator to settle that dispute. Having heard the professors each recite his poem, he adjudged some to be good in style, but bad in sense; and some to be good in sense but bad in style; and nodded approbation only to those composed by **Kapiler**, **Paraner**, and **Narkirer**, as perfect both in style, and in sense; and the professors were so much satisfied with his judgment that they at once admitted him as their associate. Moreover when the professors were in doubt, as to who amongst them was worthy of sitting on the College bench, and of hearing **Tiruvalluver** recite his _Kural_ it is stated that an aerial voice declared Urithirasanmer to be the person.
 
 The following is his impromptu on the merits of the _Kural_:
 
-[TAMIL].
+மணற்கிளைக்கநீரூறு மைந்தர்கள்வாய்வைத்  
+துணச்சுரக்குந்தாய்முலையொண்பால்‌ --- பிணக்கிலா  
+வாய்மொழிவள்ளுவர்‌ முப்பான்மதிப்புலவோர்  
+காய்தொறுமூறுமறிவு.
 
 _Water will spring forth when the earth is dug, milk will spring forth when the child sucks the mother's breast; but knowledge will spring forth when the poets study Valluver's Kural._
 
-## Uruvei. --- [TAMIL].
+## Uruvei. --- உறுவை.
 
 This poetess was a sister of **Tiruvalluver**, and was found when she was exposed by her mother soon after her birth, and brought up by a man of the _Sanar_ caste at _Kāveripatnam_. She is said to have been well versed in poetry, and to have composed several poems on different subjects, which, however, have not reached the present time. The Hindus have deified her, as they have done her sister **Uppei**, and she is now an object of worship at Tiruvālangkādu.
 
-## Vannakkanchāttanār. --- [TAMIL].
+## Vannakkanchāttanār. --- வண்ணக்கஞ்சாற்றனார்.
 
 Vannakkanchāttanār was one of the forty-nine professors of the Madura College.
 
 The following is his stanza on the merits of the _Kural_.
 
-[TAMIL].
+ஆரியமுஞ்‌ செந்தமிழுமாராய்ந்திதனினிது  
+சீரியதேன்றொன்றைச்‌ செப்பரிதா --- லாரியம்‌  
+வேதமுடைத்துத்‌ தமிழ்‌ திருவள்ளுவனா  
+ரோதுகுறட்பாவுடைத்து.
 
 _It is difficult to say whether the Sanskrit or the Tamil is the best, they are perhaps on a par, since the Sanskrit possesses the Veda, and the Tamil the Kural, composed by the divine Valluver._
 
-## Varantaruvān. --- [TAMIL].
+## Varantaruvān. --- வரந்தருவான்.
 
 This poet was the son of Villiputtūrer; but of his life no memorials have been preserved. It would appear, however, that he was the author of the prefatory stanzas which are affixed to his father's imitation of the _Mahābhārat_.
 
-## Varathakavirāyer. --- [TAMIL].
+## Varathakavirāyer. --- வரதகவிராயர்.
 
-Varathakavirāyer was a poet, who lived at _Chunnāgam_, in Jaffna, in the seventeenth century of the Christian era. He belonged to a _Brāhman_ family and was well skilled both in the Vedic and profane literature. His principal works were the _Sivarātri Puranam_ ([TAMIL]) and the _Ekādesi Puranam_, ([TAMIL]), both which are epic poems, recounting the legends connected with the vigil observed by the _Saivas_ on the night preceding the new moon towards the end of February or beginning of March, and the fast on the eleventh day after the full or new moon in every month.
+Varathakavirāyer was a poet, who lived at _Chunnāgam_, in Jaffna, in the seventeenth century of the Christian era. He belonged to a _Brāhman_ family and was well skilled both in the Vedic and profane literature. His principal works were the _Sivarātri Puranam_ (சிவராத்திரிபுராணம்) and the _Ēkādēsi Puranam_, (ஏகாதேசிப்புராணம்), both which are epic poems, recounting the legends connected with the vigil observed by the _Saivas_ on the night preceding the new moon towards the end of February or beginning of March, and the fast on the eleventh day after the full or new moon in every month.
 
-## Varatunga Rāma Pāndiyen. --- [TAMIL].
+## Varatunga Rāma Pāndiyen. --- வரதுங்கராமபாண்டியன்.
 
-Varatunga Rāma Pāndiyen was the younger brother of **Athivira Rāma Pāndiyen**, and was like him a poet of great attainments. His imitation of the _Bramothara Kandam_ ([TAMIL]) of the _Skanda Purana_ is a work of sterling merit, in so far as its poetry is concerned, and it appears to have been approved of as such by the learned professors of the Madura College to whose criticism it was subjected. It consists of 1323 stanzas, arranged in twenty-two cantos, and has for its subject the legends of certain votaries of _Siva_ who had obtained beatitude by bearing his emblems, or uttering his name by accident.
+Varatunga Rāma Pāndiyen was the younger brother of **Athivira Rāma Pāndiyen**, and was like him a poet of great attainments. His imitation of the _Bramōthara Kāndam_ (பிரமோதரகாண்டம்) of the _Skanda Purana_ is a work of sterling merit, in so far as its poetry is concerned, and it appears to have been approved of as such by the learned professors of the Madura College to whose criticism it was subjected. It consists of 1323 stanzas, arranged in twenty-two cantos, and has for its subject the legends of certain votaries of _Siva_ who had obtained beatitude by bearing his emblems, or uttering his name by accident.
 
-## Vellivithiyār. --- [TAMIL].
+## Vellivithiyār. --- வெள்ளிவீதியார்.
 
 Vellivithiyār was one of the forty-nine professors of the Madura College. He was present when the _Kural_ was exhibited and subjected to the criticism of the College bench, and the subjoined is the stanza which he uttered on the merits of that work.
 
