@@ -302,7 +302,7 @@ Auveiyar had the nickname of Kūzhukupādi (கூழுக்குப்பா
 
 Immediately afterwards Auveiyar happening to call at the dancing girl's house and being informed of the affair, added the two following lines to the unfinished stanza of **Kamber**, accepting as a reward merely a cup of pap.
 
-அம்பற்சிலம்பியரவிந்தத்தாழணியுஞ்  
+அம்பற்சிலம்பியரவிந்தத்தாளணியுஞ்  
 செம்பொற்சிலம்பேசிலம்பு.
 
 The following is the translation of the above stanza:---
@@ -398,7 +398,7 @@ _There is none amongst the learned that can compete with the first of poets (mea
 
 ## Chatteimuni. --- சட்டைமுனி.
 
-Nothing is known of Chatteimuni, except that he was a _Saiva_ ascetic, who lived at the same time with **Agastiyer**, and enjoyed some reputation as a poet, philosopher and physician. He wrote a work on theology, called _Gnāna Nūru_ (ஞானநூறு), and another on medicine, called _Kalpa Nūru_ (கலப்பநூறு). He is also believed to have been the author of the _Vāda Nigandu_ (வாதநிகண்டு), a treatise on alchemy which passes under his name.
+Nothing is known of Chatteimuni, except that he was a _Saiva_ ascetic, who lived at the same time with **Agastiyer**, and enjoyed some reputation as a poet, philosopher and physician. He wrote a work on theology, called _Gnāna Nūru_ (ஞானநூறு), and another on medicine, called _Kalpa Nūru_ (கற்பநூறு). He is also believed to have been the author of the _Vāda Nigandu_ (வாதநிகண்டு), a treatise on alchemy which passes under his name.
 
 ## Chēramān Perumān. --- சேரமான்பெருமான்.
 
@@ -431,7 +431,7 @@ _When the Eternal, who is beyond the compass of the various Vedas manifested him
 
 _Having quitted the whole of thy body for my sake thou hast betaken thyself to the mountain Imaus; hence it is proper that I should yield to thee one half of my body. O Damsel! take thy place with me on my left. So saying he embraced her with his arms, and then their bodies melted and became united together._
 
-## Erichalūr Malādanār. --- எருச்சலூர்மலாடனார்.
+## Erichalūr Malādanār. --- எரிச்சலூர்மலாடனார்.
 
 Erichalūr Malādanār was a native of _Erichalūr_, and one of the forty-nine professors of the Madura College. His personal history like that of his colleagues has been lost, and the only relic of his poetical compositions is the following impromptu on the _Kural_, which merely enumerates the divisions and subdivisions of that work.
 
@@ -508,7 +508,7 @@ _O Shankara Kumāra, the bountiful, who has sprung up like a resplendent gem fro
 
 Finding so much success attend him in his native District, Inbakāvi resolved to visit the neighbouring Districts, and obtain rewards by singing the praises of the high personages there. He was well received wherever he went, and especially in Tanjore, where **Tattogee**, the minister of the king **Surfogee**, treated him with marked distinction by presenting him with a palanquin. He had been long while on his peregrination, when a severe attack of illness which threatened his life, obliged him to return to Tutikorin. On his presenting himself before the _Parava_ chieftain, and being asked where he had been so long absent, he answered in the following impromptu: 
 
-பிலத்ததொருவானவரை முனிவரரையுலகிலுள்ளபெரியோர்தம்‌மை --- யழைத்துவிடுமெமராசன்‌ முன்சென்றேனெனையும்பார்த்தெவர்காணென்றான்‌ --- தலத்திலுயர்‌ பரதசாதித்தலைவமோர்‌ வாசல்வித்வானென்றேன்‌ --- மலைத்தவனு முனதுநகர்க்கேகுமென்றான்‌ யானுமிதோ வந்திட்டேனே.
+பெலத்ததொருவானவரை முனிவரரையுலகிலுள்ளபெரியோர்தம்‌மை --- யழைத்துவிடுமெமராசன்‌ முன்சென்றேனெனையும்பார்த்தெவர்காணென்றான்‌ --- தலத்திலுயர்‌ பரதசாதித்தலைவமோர்‌ வாசல்வித்வானென்றேன்‌ --- மலைத்தவனு முனதுநகர்க்கேகுமென்றான்‌ யானுமிதோ வந்திட்டேனே.
 
 _Having appeared before Yama (the king of death), who summons before his presence the mighty celestials as well as the sages and magnates of this world, he asked me who I was, and I replied that I was the poet employed at the Gate of the eminent Parava Chieftain, and he thereupon was perplexed, and bade me go back to thy city, and behold I am here!_
 
@@ -532,7 +532,7 @@ Before he quitted Jaffna he wrote a drama, called _Kuravanji_ (குறவஞ�
 
 A supplicatory stanza of Inbakavi, addressed to our Lord in imitation of the one addressed to _Siva_ by **Tāyumānaver**,* is too good to be omitted, and we therefore give it below with an English paraphrase.
 
-நாலாயிரஞ்சேனர்களேழப்பமுண்டுபசிநலிவுதீர்ந்திடவுமிலையோ --- நாரமதுரசபானமாகவிலையோதுஞ்சி நாலுநாளானமனுவுந் --- தாலமிசைமீண்டுமுயிராவிபெறவில்லையோ சட்டையின்விளிம்புதொட்ட --- தையல்பிணிநோய்வாதை தீரவிலையோபிரசண்டமுமடங்கவிலையோ --- வேலைகயல்வாயினிதிதோணவிலையோ மூகர்விண்டுமுரைபேசவிலையோ --- விழியூனர்நேத்திரந்தெளியவிலையோ பங்கர்விரைவாய்‌நடக்கவிலையோ --- சோலியாகியகவலையாலுழழுமேழைகை தூக்குவதுனக்கருமையோ --- துங்கர்பன்னிருவர்குல வம்சமாதீன்றருள்சுபுத்‌திரனாகியயேசுவே.
+நாலாயிரஞ்செனர்களேழப்பமுண்டுபசிநலிவுதீர்ந்திடவுமிலையோ --- நாரமதுரசபானமாகவிலையோதுஞ்சி நாலுநாளானமனுவுந் --- தாலமிசைமீண்டுமுயிராவிபெறவில்லையோ சட்டையின்விளிம்புதொட்ட --- தையல்பிணிநோய்வாதை தீரவிலையோபிரசண்டமுமடங்கவிலையோ --- வேலைகயல்வாயினிதிதோணவிலையோ மூகர்விண்டுமுரைபேசவிலையோ --- விழியூனர்நேத்திரந்தெளியவிலையோ பங்கர்விரைவாய்‌நடக்கவிலையோ --- சோலியாகியகவலையாலுழலுமேழைகை தூக்குவதுனக்கருமையோ --- துங்கர்பன்னிருவர்குல வம்சமாதீன்றருள்சுபுத்‌திரனாகியயேசுவே.
 
 _Have not four thousand persons satisfied their hunger with seven loaves? Was not water turned into wine, and the man who had been dead four days restored to life? Did not the woman, who touched the hem of thy garment, become cured of her disease, and the storm abate at thy word? Was not silver found in the mouth of the fish of the sea, and did not the dumb speak, the blind see, and the lame walk swiftly? Is it then hard for thee, Oh Jesus, the holy son whom the Virgin of Israel has brought forth! to help thy servant who is embroiled in trouble, and beset with many difficulties._
 
@@ -667,8 +667,8 @@ Other works ascribed to Kamber are the _Kānji Purānum_ (காஞ்சிப�
 
 Less is known of Kamber's personal history than could be desired. All that we gather from traditions is, that the latter part of his life was a struggle between poverty, and ill-fortune. His son **Ambikāpati**, who was likewise a poet at the court of **Kulotunga Chola**, having been carrying on an amorous intrigue with the king's daughter, and betraying it in one of his poetical effusions, was, by the king's command, impaled alive,* and he died after having lingered on the stake for a couple of days, repeating incessantly the subjoined verse, in the midst of his sufferings. ---
 
-எரியுதெரியுதென்னுள்ளே  
-யெரியுதமருதில்லையென்செய்வேன்‌  
+எரியுதெரியுதென்னுள்ளீரலைப்பற்றி  
+யெரியுதவியுதிலையென்செய்வேன்‌  
 நஞ்சிலேதோய்ந்த நளினவிழிப்பெண்ணணங்கு  
 நெஞ்சிலேயிட்டநெருப்பு.
 
@@ -823,7 +823,7 @@ _O the Lord of Kannapuram! thou art greater than Siva, but I am greater than the
 
 An anonymous admirer of Kālamegam, has commemorated him in the subjoined verse:
 
-கம்பனென்றுமம்பனென்றுங்‌ காளியொட்டைக்கூத்தனென்றுங்‌  
+கம்பனென்றுமம்பனென்றுங்‌ காளியொட்டக்கூத்தன்றுங்‌  
 கும்பனென்றும்பேர்கொடுப்பதுண்டோ --- அம்புவியில்‌  
 கன்னாவதாரன்‌ காளமேகப்புலவன்‌  
 அன்னாளிலேபிறந்தாக்கால்‌.
@@ -978,12 +978,12 @@ Kūlangkaiyer was a highly celebrated poet and philosopher, well skilled both in
 
 Kūlangkaiyer was the author of an exposition of the _Nannūl_, and he also composed some epic poems, and several minor pieces of poetry, remarkable for their elegant and harmonious versification. Amongst his epics may be mentioned _Yosep Purānam_ (யோசேப்புராணம்), which treats of the history of the patriarch **Joseph**, in 1023 stanzas, arranged in twenty-one cantos. He inscribed it to the learned **De Melho**, who was his friend and literary associate, as a tribute of respect to his eminent worth and abilities; but unfortunately only a fragment of it is now extant. As a specimen of its poetry, we subjoin the five following stanzas, extracted from the second canto entitled _Āttupadalam_:
 
-பயம்புவிக்கருள்‌ பயோதரமியாவுமெந்திரையாற்‌  
+பயம்புவிக்கருள்‌ பயோதரமியாவும்வெண்டிரை  
 பயங்கொள்வேலையிற்‌ பரந்துவாரிதியிடைபடிந்து  
 பயங்களானவை பருகியப்பரவையின்வடிவாய்ப்‌  
 பயங்கள்கோரகை கொண்டிடப்பரந்ததம்பரமேல்‌.
 
-பரவுமால்ககுபங்களோடெட்டொடுவானைப்‌  
+பரவுமால்ககுபங்களோரெட்டொடுவானைப்‌  
 புரவுவேந்தராள்‌ புவியினைப்போர்த்தெனவிருண்டு  
 விரவுகின்றது விண்ணெனும்பந்தரின்கண்ணே  
 யிரவுநேர்கரும்‌ படாத்தினால்‌ விதானஞ்செய்தென்ன.
@@ -1270,7 +1270,7 @@ This poet was a _Brahman_ who lived at _Venmani_, the exact location of which in
 
 Of the biography of this poet very few particulars have been preserved. All that is known of him is, that he was a native of _Putiankudi_, in the Carnatic, born and bred up in a _Jaina_ family; and having made poetry the exclusive object of his study, acquired the high distinction of being considered the king of the poets, and as an improvisator he had scarcely any equal in his day. He has left behind him a treatise containing rules for composing amatory poems, under the title of _Agapporal Illakkanam_ (அகப்பொருளிலக்கணம்), which is now generally consulted as a standard authority on the subject.
 
-## Ottakūter. --- ஒட்டைக்கூத்தர்.
+## Ottakūter. --- ஒட்டக்கூத்தர்.
 
 Ottakūter was one of the poets who flourished at the court of **Rājendra Chola**, and that of his son **Kulotunga Chola**. He excelled all his colleagues in the composition of war chants, called _Parani_. His _Kalingattu Parani_ (கலிங்கத்துபபரணி), in which he celebrated the conquest of the _Kalinga_ country by **Kulotunga Chola** is a matchless production of the kind, and it is related that the hero of the poem was so much pleased with it, that he rewarded him by rolling a golden coconut at the end of every stanza, as it was recited; but this is manifestly an oriental exaggeration. The _Uttarakānda_ which forms the seventh book of the _Ramayanam_ was composed by Ottakūter, and was with the approval of **Kamber** himself incorporated with his own work. This though written in the same metre and style as the other six books, yet on a close inspection an inferiority is perceptible, as much as can be discovered between the first part of **Dryden's** _Absolom_ and _Achitophel_, and the second part of it by **Tate**. A good deal of rivalry appears to have existed between Ottakūter and **Kamber**. On one occasion the king going out on a visit to one of his mistresses, found on his return that the door of the palace was closed against him by the Queen, and that no entreaty or persuasion would make her relent. The king at length sent for Ottakūter, and desired him to soothe her by his song, and cause her to open the door; and he thereupon addressed her in the following impromptu:
 
@@ -1361,7 +1361,7 @@ Pattanattu-pilleiyār was a celebrated philosopher, who lived at _Kāveripatnam_
 Pattanattu-pilleiyār was a monotheist; but he identified the only one God with _Siva_, and also maintained the doctrine of metempsychosis, teaching that emancipation from future birth, and absorption into the Divine essence was the supreme bliss. He at the same time denied that man was a free-agent, and held that he was incapable of doing either good or evil by himself, as may be seen by the following stanzas which we quote from one of his works:---
 
 தவியாதிருநெஞ்சமே தில்லைமேவியசங்கரனைப்‌  
-புவியார்ந்திருக்கின்ற ஞானகரனைப்‌ புராந்தகனை  
+புவியார்ந்திருக்கின்ற ஞானாகரனைப்‌ புராந்தகனை  
 யவியாவிளக்கையென்னம்பலத்தாடியையைந்தெழுத்தாற்‌  
 செவியாமனீசெவித்தாற்‌ பிறவாமுத்திசித்திக்குமே.
 
@@ -2240,7 +2240,7 @@ Varathakavirāyer was a poet, who lived at _Chunnāgam_, in Jaffna, in the seven
 
 ## Varatunga Rāma Pāndiyen. --- வரதுங்கராமபாண்டியன்.
 
-Varatunga Rāma Pāndiyen was the younger brother of **Athivira Rāma Pāndiyen**, and was like him a poet of great attainments. His imitation of the _Bramōthara Kāndam_ (பிரமோதரகாண்டம்) of the _Skanda Purana_ is a work of sterling merit, in so far as its poetry is concerned, and it appears to have been approved of as such by the learned professors of the Madura College to whose criticism it was subjected. It consists of 1323 stanzas, arranged in twenty-two cantos, and has for its subject the legends of certain votaries of _Siva_ who had obtained beatitude by bearing his emblems, or uttering his name by accident.
+Varatunga Rāma Pāndiyen was the younger brother of **Athivira Rāma Pāndiyen**, and was like him a poet of great attainments. His imitation of the _Bramōthara Kāndam_ (பிரமோத்திரகாண்டம்) of the _Skanda Purana_ is a work of sterling merit, in so far as its poetry is concerned, and it appears to have been approved of as such by the learned professors of the Madura College to whose criticism it was subjected. It consists of 1323 stanzas, arranged in twenty-two cantos, and has for its subject the legends of certain votaries of _Siva_ who had obtained beatitude by bearing his emblems, or uttering his name by accident.
 
 ## Vellivithiyār. --- வெள்ளிவீதியார்.
 
@@ -2340,7 +2340,7 @@ Vīrakavirāyer was a distinguished poet who lived at **Nellūr**, in the Carnat
 
 செங்கோலறத்தின்‌ முறையேசெலுத்துதிறலோனெவர்ககுமுரவோன்‌ (ள்‌  
 வெங்கோபயானைவிறன்மன்னனம்மைவிடுவிக்கவெண்ணிவருநா  
-பங்கேருகத்துமலர்போல்‌விளங்குவதனாள்மகிழ்ந்தபரிவா  
+பங்கேருகத்துமலர்போல்‌விளங்குவதனாமகிழ்ந்தபரிவா  
 லெங்கேயெனாசைமகனென்றுரைக்கினினியேதுசொல்வன்மகனே.
 
 _I do not know what heinous sin I have committed that thou shouldst meet with thy death from the cruel serpent with protuberant eyes and which suffers neither from being drenched with dew, nor scorched with the sun, nor from want of food. Oh! my son, who, when affected by the venom didst lay thyself all alone and writhe in agony on the ground! To whom shall my lord and myself look for help hereafter?_
