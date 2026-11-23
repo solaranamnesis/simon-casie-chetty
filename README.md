@@ -4,7 +4,7 @@ Public Domain Works by Simon Casie Chetty (சைமன் காசிச் �
 
 ## The Tamil Plutarch.
 
-[English - Plain Text](tamil-plutarch/full-text-english.md)  
+[English - Plain Text](tamil-plutarch/full-text-english.md) | [English - (GFM) Plain Text](tamil-plutarch/full-text-english-gfm.md)  
 English - PDF | Atkinson | Coelacanth | Biolinum | Aurical | Custom01  
 Tamil - Plain Text  
 Tamil - PDF  
