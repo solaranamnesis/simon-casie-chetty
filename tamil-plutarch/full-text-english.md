@@ -1155,9 +1155,9 @@ _When and by whom was a poem ever composed so entirely faultless both in versifi
 
 This poet claims notice as one of the forty-nine professors of the Madura College, and it would appear from his surname, which is a contracted form of the epithet _Vēlviyāler_, usually applied to the _Brāhmans_, that he must have belonged to their class. His compositions are not now forthcoming, with the exception of the following impromptu in praise of **Tiruvalluver**.
 
-உப்பக்கநோக்கியுபகேசிதோண்‌மணந்தா
-னுத்தரமாமதுரைக்கச்சென்ப --- விப்பக்க
-மாதானுபங்கிமறுவில்புலச்செந்நாப்‌
+உப்பக்கநோக்கியுபகேசிதோண்‌மணந்தா  
+னுத்தரமாமதுரைக்கச்சென்ப --- விப்பக்க  
+மாதானுபங்கிமறுவில்புலச்செந்நாப்‌  
 போதார்புனற்கூடற்கச்சு.
 
 _They say, that he (Siva), who reclines on the shoulders of Upakesi (Pārvati), is the patron of North Madura whither he went (with Iddeikādar); but he (Tiruvalluver), the poet who pours out instruction in honeyed words with a parental solicitude, is the patron of South Madura abounding with water._
