@@ -22,9 +22,6 @@ _Aut prodesse volunt aut delectare poetæ._ --- Horace.
 
 **Table of Contents**
 
-- [The Tamil Plutarch,](#the-tamil-plutarch)
-  - [Containing a Summary Account of the Lives of the Poets and Poetesses of Southern India and Ceylon,](#containing-a-summary-account-of-the-lives-of-the-poets-and-poetesses-of-southern-india-and-ceylon)
-  - [By Simon Casie Chetty, Esquire.](#by-simon-casie-chetty-esquire)
 - [Preface.](#preface)
 - [The Tamil Plutarch.](#the-tamil-plutarch-1)
   - [Agastiyer. --- அகஸ்தியர்.](#agastiyer-----அகஸ்தியர்)
