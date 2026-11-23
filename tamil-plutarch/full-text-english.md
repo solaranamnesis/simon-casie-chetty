@@ -18,8 +18,6 @@ _Aut prodesse volunt aut delectare poetæ._ --- Horace.
 
 ---
 
----
-
 **Table of Contents**
 
 - [Preface.](#preface)
@@ -220,6 +218,8 @@ _Aut prodesse volunt aut delectare poetæ._ --- Horace.
   - [Visvanātha Sāstriyār. --- விசுவநாதசாஸ்திரியார்.](#visvanātha-sāstriyār-----விசுவநாதசாஸ்திரியார்)
   - [Vytianātha Nāvaler. --- வைத்தியநாதநாவலர்.](#vytianātha-nāvaler-----வைத்தியநாதநாவலர்)
   - [Yālpāna Nāyanār. --- யாழ்ப்பாணநாயனார்.](#yālpāna-nāyanār-----யாழ்ப்பாணநாயனார்)
+
+---
 
 # Preface.
 
