@@ -2282,35 +2282,46 @@ Vēlaya Dēsiker was born at _Kanjipuram_. After the death of his father **Kumar
 
 The following is an elegiac verse which he recited extempore on the death of his two brothers:---
 
-[TAMIL].
+அல்லிமலர்ப்பண்ணவனுமாராய்ந்தறிகவிதை  
+சொல்லுமிருவரிடைத் தோன்றியயான்‌ --- முல்லை  
+யரும்பிற்பொலியுமணிமுறுவனல்லாய்‌  
+கரும்பிற்கணுநிகர்த்தேன்காண்‌.
 
 _O Damsel, whose teeth vie with the Jessamine flower in beauty! Born as I was second of three brothers, whose poetry, even the God enthroned on the lotus-flower could not easily understand, alas! I have now become like a joint in the stalk of a sugar-cane (cut out and thrown aside as refuse)._
 
-## Villipākam Tāndavarāya Mudeliar. --- [TAMIL].
+## Villipākam Tāndavarāya Mudeliar. --- தாண்டவராயமுதலியார்.
  
-This poet was first a student and afterwards a Teacher in the College of Fort St. **George**, and having been well versed both in the Tamil and Maharatta languages enjoyed much reputation on that account. In 1825, by order of the Board of College he wrote a Tamil Grammar in a catechetical form under the title of _Illakkana Vināvidei_ ([TAMIL]) and in the following year translated the _Panchatantra_ stories ([TAMIL]) from Maharatta into Tamil, besides himself producing a series of instructive fables called _Katāmanjari_ ([TAMIL]). He also revised and edited the three first parts of **Beschi's** _Sadur Agarādi_, the ten first parts of the _Sūdamani Nigandu_, and the first eight parts of the _Divākaram_, which had hitherto been circulated in manuscript replete with errors of the copyists.
+This poet was first a student and afterwards a Teacher in the College of Fort St. **George**, and having been well versed both in the Tamil and Maharatta languages enjoyed much reputation on that account. In 1825, by order of the Board of College he wrote a Tamil Grammar in a catechetical form under the title of _Illakkana Vināvidei_ (இலக்கணவினாவிடை) and in the following year translated the _Panchatantra_ stories (பஞ்சதந்திரக்கதை) from Maharatta into Tamil, besides himself producing a series of instructive fables called _Katāmanjari_ (கதாமஞ்சரி). He also revised and edited the three first parts of **Beschi's** _Sadur Agarādi_, the ten first parts of the _Sūdamani Nigandu_, and the first eight parts of the _Divākaram_, which had hitherto been circulated in manuscript replete with errors of the copyists.
 
-## Vidvān Sāmināda Pillei. --- [TAMIL].
+## Vidvān Sāmināda Pillei. --- வித்துவான் சாமிநாதபிள்ளை.
 
-Vidvān Sāmināda Pillei, who distinguished himself by his literary attainments, and enjoyed a prominent position among the poets of his day, was born of a _Velāla_ family at Pondicherry in the latter part of the last century. His parents not only secured for him a classical education, but likewise brought him up in the Catholic religion which they professed. Having removed his residence to Madras, he was introduced to the notice of Mr. **Ellis**, and was employed by that celebrated orientalist as his preceptor in the Tamil language. His juvenile productions the _Nazarai Kalambagam_ ([TAMIL]), and _Samināden Pilleitamil_ ([TAMIL]), though possessed of poetic beauties did not however attract much notice, being merely panegyrics. But the epic which he wrote in his maturer years, under the title of _Gnānādiku Rāyer Kāppiyam_ ([TAMIL]), commanded general admiration, and spread his fame throughout Southern India. In the _Gnānādiku Rāyer Kāppiyam_, he has introduced many historical passages from the Bible, by way of episodes in the life of the hero of the poem, in a style and language highly creditable to him. As usual with the writers of epics in Tamil, he opens his poem after the invocation with an eulogy on rain, and the following two stanzas as quoted by Mr. **Ellis**, in his comments on the _Kural_, form the first part of it:
+Vidvān Sāmināda Pillei, who distinguished himself by his literary attainments, and enjoyed a prominent position among the poets of his day, was born of a _Velāla_ family at Pondicherry in the latter part of the last century. His parents not only secured for him a classical education, but likewise brought him up in the Catholic religion which they professed. Having removed his residence to Madras, he was introduced to the notice of Mr. **Ellis**, and was employed by that celebrated orientalist as his preceptor in the Tamil language. His juvenile productions the _Nazarai Kalambagam_ (நசரைக்கலம்பகம்), and _Samināden Pilleitamil_ (சாமிநாதன்பிள்ளைத்தமிழ்), though possessed of poetic beauties did not however attract much notice, being merely panegyrics. But the epic which he wrote in his maturer years, under the title of _Gnānādiku Rāyer Kāppiyam_ (ஞானாதிக்கராயர்காப்பியம்), commanded general admiration, and spread his fame throughout Southern India. In the _Gnānādiku Rāyer Kāppiyam_, he has introduced many historical passages from the Bible, by way of episodes in the life of the hero of the poem, in a style and language highly creditable to him. As usual with the writers of epics in Tamil, he opens his poem after the invocation with an eulogy on rain, and the following two stanzas as quoted by Mr. **Ellis**, in his comments on the _Kural_, form the first part of it:
 
-[TAMIL].
+வானமாலியுங்‌ காய்வதேதெனப்புவிவதைப்ப  
+மானமாவுற வெஞ்சுடர்மாரியேபடைகொண்  
+டூனமாக்கெனவுச்சியிலம்பிடிபொழிந்து  
+தானமேகரைவாக்கினசரிவுநீர்தோற்றம்‌.
+
+பல்லுயிர்க்கொரு தந்தையாம்பருதியவ்வுயிரைக்‌  
+கொல்லுருத்தலைக்கூவெனுந்தாயுளத்திரங்கிச்‌  
+செல்லியைதிரைத்தெரிசனமறைக்கவுமகர்க்குக்  
+சல்லியன்‌முலைப்பால்‌ சுரந்தளித்தெனக்காண்டும்.
 
 _The earth, impatient of the scorching heat of the sun of heaven, to annoy him assumed the form of a stupendous mountain; the bright burning sun, calling forth the armies of the clouds, ordered them to reduce the rebellious earth; then the thunderbolts darted forth like arrows and like water flowing down seemed to dissolve the entire mountain._
 
 _When the sun, the father of various living beings, destroys in his burning wrath his offspring, their mother earth, inwardly pitying them, hides her children from his view by a propitious veil of clouds and seems to cherish them with milk springing from her breasts, the rocky mountains._
 
-## Villiputtūrer. --- [TAMIL].
+## Villiputtūrer. --- வில்லிபுத்தூரர்.
 
 Villiputtūrer was born of a _Brāhman_ family of the _Vaishnava_ sect at _Saniyūr_, in the Coimbatore country, in the fifth century of the Christian era. He was no less distinguished as one of the _Āzhvārs_ or special votaries of _Vishnu_ than as a poet. Having refused to give his brother his share of inheritance from the paternal estate, the brother applied to the king for justice against him; but the king without pronouncing any judgment on the matter directly sent for him, and requested him to imitate in Tamil, the Mahabhārat. On the day the work was finished and recited in the royal presence his brother by desire of the king repeated his complaint. The king thereupon feigning to be angry looked fiercely at the poet, and asked him "Oh! is this the perception of the great man who wrote the _Mahabhārat_?" The king's question struck his mind with shame, for the subject of the _Mahabhārat_ is the feud which originated in the elder brother refusing to give the younger his paternal share of inheritance and he thereupon delivered up the whole of the patrimony to his brother and retiring to Sirangam spent the remainder of his life in devotional exercise. His imitation of the _Mahabhārat_ includes only the first ten _Parvas_, or books of that work, and consists of 3373 stanzas. It is decidedly a masterpiece, for scarcely any Tamil epics, except perhaps **Kamber's** _Ramayanam_, can vie with it either in "vivida vis animi" or charms of language and versification.
 
-## Vīrapāndiya Pulaver. --- [TAMIL].
+## Vīrapāndiya Pulaver. --- வீரபாண்டியப்புலவர்.
 
 This poet who lived in the latter part of the eighteenth century of the Christian era, was the son of a tailor at Tutocoryn. Imbibing a dislike to his father's profession, he applied himself to the study of poetry, and obtained some reputation in the literary circle of his day. He was first patronized by **Katabomma Nayaker**, the Poligar of Pānjalamkurichi, and afterwards by **Don Gabriel Vaz Faldano**, the Parava Chieftain of Tutocoryn. He was a great wit, in proof of which many anecdotes are related of him. It is said that on a certain day as he went to witness a Nautch, a poet of the shepherd tribe, pointing at the dancing girl, observed to him, "_Taiyel nalla taiyel_" (a phrase which may mean either, "the girl is a fine girl," or "the sewing is good sewing)," and he immediately understanding that to be a hint at his caste, made this repartee "_Attukku tirrama taiyel_" (a phrase which may mean either "Is the girl better than the dance?" or "is the sewing better than the sheep?") and completely outwitted him. Of his compositions there are only a few stray pieces, chiefly devoted to the praises of his benefactors.
 
-## Vīrakavirāyer. --- [TAMIL].
+## Vīrakavirāyer. --- வீரகவிராயர்.
 
-Vīrakavirāyer was a distinguished poet who lived at **Nellūr**, in the Carnatic. In CE 1524 he wrote an epic poem, called _Arichandra Purānam_ ([TAMIL]), which drew forth much applause from the savants at Madura, when it was submitted to their inspection. This poem consists of 1212 stanzas, arranged into twelve cantos, and recounts the adventures of the king _Harischandra_. Though it cannot stand on a par with the _Naidatham_ in the charms of language and versification; yet it is far superior to the ordinary strain of current poetry and bears the stamp of no common talent. The following stanzas, which we have extracted from the canto, entitled _Mayāna Kāndam_, containing the lamentations of the Queen _Chandramati_ on finding her son lying dead in a wood by the bite of a serpent, are very pathetic and affecting:---
+Vīrakavirāyer was a distinguished poet who lived at **Nellūr**, in the Carnatic. In CE 1524 he wrote an epic poem, called _Arichandra Purānam_ (அரிச்சந்திரபுராணம்), which drew forth much applause from the savants at Madura, when it was submitted to their inspection. This poem consists of 1212 stanzas, arranged into twelve cantos, and recounts the adventures of the king _Harischandra_. Though it cannot stand on a par with the _Naidatham_ in the charms of language and versification; yet it is far superior to the ordinary strain of current poetry and bears the stamp of no common talent. The following stanzas, which we have extracted from the canto, entitled _Mayāna Kāndam_, containing the lamentations of the Queen _Chandramati_ on finding her son lying dead in a wood by the bite of a serpent, are very pathetic and affecting:---
 
 [TAMIL].
 
@@ -2322,19 +2333,19 @@ _Whilst with tears streaming from mine eyes, like rain from the clouds, I stand 
 
 _Oh! my son, whose face resembles the lotus-flower! When thy father, who sways the sceptre with justice and equals the fierce elephant in strength, shall return to redeem us and ask me "where is my darling son?" what shall I say to him?_
 
-## Visvanātha Sāstriyār. --- [TAMIL].
+## Visvanātha Sāstriyār. --- விசுவநாதசாஸ்திரியார்.
 
-Visvanātha Sāstriyār was both a poet and astronomer who flourished among the _Brahmans_ at Arāly, a village of _Batticotta_, in Jaffna. Sir **Emerson Tennent**, in his "Christianity in Ceylon," states, that Visvanātha Sāstriyār, or as he calls him _Visuvenathen_, was "the most celebrated of the astronomers of Ceylon, inasmuch as he concentrated in his own person the accumulated science of his ancestors, who for nine generations had been cultivators of the same study."* His Almanac, which he published every year until his death, was preferred to all others as being more accurate; and Sir **Alexander Johnston** while Chief Justice of Ceylon, procured for him from **George** the 4th, the honorary distinction of Almanac Maker to his Majesty."* But it should be mentioned, that in his controversy with the American Missionaries at Batticotta, respecting the beginning and extent of the obscuration and the ultimate duration of the eclipse of the moon on the 21st of March 1828, he did not come off triumphant; for that eclipse began fifteen minutes sooner and continued for twenty-four minutes longer than his calculation and it obscured only three-eighths and not five-eighths of the disc as he had predicted. As a poet he has distinguished himself by the production of two poems, the _Māreikuravanji_ ([TAMIL]), a drama founded on the legend of the horse-faced _Chola_ princess who is fabled to have been cured of her deformity by bathing in the sea, near Kirimalei, and the _Kurunāther Killeividudūtu_ ([TAMIL]), a panegyric on _Skanda_.
+Visvanātha Sāstriyār was both a poet and astronomer who flourished among the _Brahmans_ at Arāly, a village of _Batticotta_, in Jaffna. Sir **Emerson Tennent**, in his "Christianity in Ceylon," states, that Visvanātha Sāstriyār, or as he calls him _Visuvenathen_, was "the most celebrated of the astronomers of Ceylon, inasmuch as he concentrated in his own person the accumulated science of his ancestors, who for nine generations had been cultivators of the same study."* His Almanac, which he published every year until his death, was preferred to all others as being more accurate; and Sir **Alexander Johnston** while Chief Justice of Ceylon, procured for him from **George** the 4th, the honorary distinction of Almanac Maker to his Majesty."* But it should be mentioned, that in his controversy with the American Missionaries at Batticotta, respecting the beginning and extent of the obscuration and the ultimate duration of the eclipse of the moon on the 21st of March 1828, he did not come off triumphant; for that eclipse began fifteen minutes sooner and continued for twenty-four minutes longer than his calculation and it obscured only three-eighths and not five-eighths of the disc as he had predicted. As a poet he has distinguished himself by the production of two poems, the _Māveikuravanji_ (மாவைக்குறவஞ்சி), a drama founded on the legend of the horse-faced _Chola_ princess who is fabled to have been cured of her deformity by bathing in the sea, near Kirimalei, and the _Kurunāther Killeividudūtu_ (குருநாதர் கிள்ளைவிடுதூது), a panegyric on _Skanda_.
 
 *) Christianity in Ceylon, p. 139.
 
 *) Pridham's Ceylon and its Dependencies, vol. 2. p. 516.
 
-## Vytianātha Nāvaler. --- [TAMIL].
+## Vytianātha Nāvaler. --- வைத்தியநாதநாவலர்.
 
-This poet was a native of _Tiruvārūr_, a town in the Tanjore country, near Kumbakonam, and lived at the same time with **Sāmināda Tambiran**, whose friendship he enjoyed. He is celebrated for his high attainments in philology, and we have a work of his on Grammar, entitled _Ilakkana Vilakkam_ ([TAMIL]), written chiefly as a critique on the _Nannūl_.
+This poet was a native of _Tiruvārūr_, a town in the Tanjore country, near Kumbakonam, and lived at the same time with **Sāmināda Tambiran**, whose friendship he enjoyed. He is celebrated for his high attainments in philology, and we have a work of his on Grammar, entitled _Ilakkana Vilakkam_ (இலக்கணவிளக்கம்), written chiefly as a critique on the _Nannūl_.
 
-## Yālpāna Nāyanār. --- [TAMIL].
+## Yālpāna Nāyanār. --- யாழ்ப்பாணநாயனார்.
 
 Yālpāna Nāyanār, otherwise called _Virarāgaven_, was a minstrel who lived in the _Chola_ country. Being blind, he depended for his subsistence entirely on the earnings of his wife. One day his wife having delayed to serve out to him his meals at the proper hour, he quarrelled with her on that account, and quitted his house saying, that he was going to Ceylon, upon which she sneeringly observed. "Ah! you are going to Ceylon to obtain a tusked elephant and a fertile land." When he arrived in Ceylon, he was refused admittance into the king's presence, as it was considered ominous for a king to see a blind man; but it was afterwards arranged that the king should stand behind a curtain, and hear the blind minstrel's song. The king divesting himself of his royal garments, put on a pair of short drawers like those worn by an archer, and stood behind the curtain with a bow in his hand, and bade him sing. He, somehow or other, being informed of the king's disguise improvised the following stanza characterizing the king as **Rāmā** of old:---
 
