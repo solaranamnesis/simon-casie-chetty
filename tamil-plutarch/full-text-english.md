@@ -2323,7 +2323,25 @@ This poet who lived in the latter part of the eighteenth century of the Christia
 
 Vīrakavirāyer was a distinguished poet who lived at **Nellūr**, in the Carnatic. In CE 1524 he wrote an epic poem, called _Arichandra Purānam_ (அரிச்சந்திரபுராணம்), which drew forth much applause from the savants at Madura, when it was submitted to their inspection. This poem consists of 1212 stanzas, arranged into twelve cantos, and recounts the adventures of the king _Harischandra_. Though it cannot stand on a par with the _Naidatham_ in the charms of language and versification; yet it is far superior to the ordinary strain of current poetry and bears the stamp of no common talent. The following stanzas, which we have extracted from the canto, entitled _Mayāna Kāndam_, containing the lamentations of the Queen _Chandramati_ on finding her son lying dead in a wood by the bite of a serpent, are very pathetic and affecting:---
 
-[TAMIL].
+பனியானனைந்து வெயிலாலுலர்ந்து பசியாலலைந்துமுலவா  
+வனியாயவெங்கணரவாலிறந்தவதிபாவமென்கொலறியேன்‌  
+தனியேகிடந்து விடநோய்செறிந்து தரைமீதுருண்டமகனே  
+யினியாரைநம்பியுயிர்வாழ்வமென்றனிறையோனும்யானுமவமே.
+
+நிறையோசையுற்ற பறையோசையற்றுநிரையாய்நிறைந்தகழுகின்‌  
+சிறையோசையுற்ற செடியூடிறக்க விதியாரிழைத்தசெயலோ  
+மறையோனிரக்கவளநாடனைத்தும்‌ வழுவாதளித்தவடிவே  
+லிறையோனளித்தமகனேயுனக்குமிதுவோவிதித்தவிதியே.
+
+வானின்றிழிந்துசொரிகின்றதாரைமழைபோலவீழவிழிநீ  
+ரூனின்றிமேனியுதிரங்கள்‌சிந்தவுயிரின்றிவெம்புதழலின்‌  
+மேனின்றுவெந்ததளிர்போலுயங்கிவிதியாரைநொந்துதனியே  
+யானின்றிரங்கவேனென்பதில்லையிதுவோவுனீதிமகனே.
+
+செங்கோலறத்தின்‌ முறையேசெலுத்துதிறலோனெவர்ககுமுரவோன்‌ (ள்‌  
+வெங்கோபயானைவிறன்மன்னனம்மைவிடுவிக்கவெண்ணிவருநா  
+பங்கேருகத்துமலர்போல்‌விளங்குவதனாள்மகிழ்ந்தபரிவா  
+லெங்கேயெனாசைமகனென்றுரைக்கினினியேதுசொல்வன்மகனே.
 
 _I do not know what heinous sin I have committed that thou shouldst meet with thy death from the cruel serpent with protuberant eyes and which suffers neither from being drenched with dew, nor scorched with the sun, nor from want of food. Oh! my son, who, when affected by the venom didst lay thyself all alone and writhe in agony on the ground! To whom shall my lord and myself look for help hereafter?_
 
@@ -2349,7 +2367,10 @@ This poet was a native of _Tiruvārūr_, a town in the Tanjore country, near Kum
 
 Yālpāna Nāyanār, otherwise called _Virarāgaven_, was a minstrel who lived in the _Chola_ country. Being blind, he depended for his subsistence entirely on the earnings of his wife. One day his wife having delayed to serve out to him his meals at the proper hour, he quarrelled with her on that account, and quitted his house saying, that he was going to Ceylon, upon which she sneeringly observed. "Ah! you are going to Ceylon to obtain a tusked elephant and a fertile land." When he arrived in Ceylon, he was refused admittance into the king's presence, as it was considered ominous for a king to see a blind man; but it was afterwards arranged that the king should stand behind a curtain, and hear the blind minstrel's song. The king divesting himself of his royal garments, put on a pair of short drawers like those worn by an archer, and stood behind the curtain with a bow in his hand, and bade him sing. He, somehow or other, being informed of the king's disguise improvised the following stanza characterizing the king as **Rāmā** of old:---
 
-[TAMIL].
+வாழுமிலங்கைக்கோ மானில்லை மானில்லை  
+யேழுமராமரமுமிங்கில்‌லை --- ஆழி  
+யலையடைத்ததிண்புயாவாதித்தாவுன்கை  
+சிலையெடுத்தவாறேதுசெப்பு.
 
 _O Aditya! (meaning Rāma) whose potent arms stemmed the waves of the sea, pray why have thy hands assumed the bow? for the prosperous Lanka has neither her king (meaning Rāvana), nor the stag (meaning Mārichi,) who in the disguise of a stag decoyed away Rāma from Sita), nor the seven Mara trees* (meaning those which Rāma shot through with a single arrow) to shoot at._
 
