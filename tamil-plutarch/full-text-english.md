@@ -2246,33 +2246,39 @@ Varatunga Rāma Pāndiyen was the younger brother of **Athivira Rāma Pāndiyen*
 
 Vellivithiyār was one of the forty-nine professors of the Madura College. He was present when the _Kural_ was exhibited and subjected to the criticism of the College bench, and the subjoined is the stanza which he uttered on the merits of that work.
 
-[TAMIL].
+செய்யாமொழிக்குந் திருவள்ளுவர்மொழிந்த  
+பொய்யாமொழிக்கும்‌ பொருளொன்றே --- செய்யா  
+வதற்குரியாரந்தணரே யாராயினேனை  
+யிதற்குரியாரல்லாதாரில்‌.
 
 _The uncreated word (meaning the Veda) and the unfailing word of Tiruvalluver both have the same meaning; but the former is the exclusive property of the Brahmans (for they alone are allowed to study it), while the latter is the common property of all._
 
-## Venbāpuli. --- [TAMIL].
+## Venbāpuli. --- வெண்பாப்புலி.
 
 Venbāpuli was born of the _Kollery_ tribe at Ramnad, in the beginning of the eighteenth century of the Christian era. His real name is not known, the one under which he is here noticed being merely titular, denoting his adroitness in the composition of verses of the _Venba_ metre. He appears to have been a very eccentric character; for we are told that shortly after he had finished his studies and obtained a reputation as a poet, he became an ascetic and lived upon alms until he was persuaded by the Raja of Sivaganga to take up his residence in his palace. Whether he composed any larger poems or not is unknown, and we have met with only a few of his stray pieces. It is related of him, that one day as he was carrying a bundle of betel leaves, Tamba Mudeli, the betel renter, met him on the road, and not knowing who he was, asked him where he had stolen the betel leaves; upon which he uttered the following verse extempore:---
 
-[TAMIL].
+தம்பாமுதலி சகலகலைக்கியானமுள்ள  
+வெண்பாப்புலியென்றால்வேற்குமோ  
+குத்தகையில்வெற்றிலையைக்‌ கொண்டுவந்தாலென்னபயம்‌  
+புத்திகெட்டமாடே நீ போ.
 
 **Tamba Mudeli** immediately knowing to whom he was speaking apologized for his conduct and they both parted friends.
 
-## Vedaghiri Mudeliar. --- [TAMIL].
+## Vēdaghiri Mudeliar. --- வேதகிரிமுதலியார்.
 
 Vedaghiri Mudeliar was born of a _Tuluva Velāla_ family at _Kulattūr_, in the Carnatic, CE 1795. Having made some progress in the study of grammar and poetry in his own native place, he repaired to Madras, where he had the advantage of perfecting them under the able tuition of **Ramanuja Kavirāyer**, and where, he soon afterwards became the head of a Tamil Literary Institution which his master had originated. Sometime afterwards he was invited over to Madura, by the principal native gentlemen of that town, to whom his rising fame had reached, and there continued to preside over a Tamil Literary Institution for a period of seven years, when owing to a failure in his health he was obliged to relinquish his post and repair to Pondicherry, where for some time he was employed as a Tamil Pundit in the Catholic College. He afterwards went a second time to Madras, and having established a Press of his own, commenced publishing through its medium several valuable classical works, such as the _Kural_, _Naidatham_, _Illakkanakottu_, etc. with a learned commentary of his own in prose on each; and while thus usefully engaged, his career was closed by death in the year 1852, at the age of fifty-seven.
 
 Vedaghiri Mudeliar was a frequent contributor to the Jaffna _Morning Star_, from 1841 to 1843, and his contributions, which were chiefly on Grammar, and Classics, tended very much to enhance the value of that periodical, and drew forth to him from the Editors their high tribute of thanks through the following stanza:---
 
-[TAMIL].
+ஞானவடிவானசுடர்‌ பாதமலர்சூடியவனாமமறவாதபுனிதன்‌ --- நாதனருள்வேதமறை யோதுமுறைபோதருவினோதநிறைஞானசரிதன்‌ --- நாளுமநுநீதிவழுவாதுபரனேசவிசுவாசரெவர்நாடுமறிஞன்‌ --- நாவலர்சிரோமணி யெனாவொளிருபோசனுயர்‌ ஞாலமதிராசகவிஞன் --- தேனமிர்தமாமதுரபாடலெனுநீரிலகு தேவதமிழாயகடலே --- சீரியகுசாநுனிய னாமதியெனோடமிசை தேடியதனாலுகரையுந் --- தேறிமணிநேருகலை மாலைபுனைவீரனுயர்‌ மேருகுணதீரசதுரன்‌ --- தேர்புலவர்யாருமொரு தூயவடிவாயதென வேதிகழ்விலாசகலைஞன்‌ --- வானகரமேயதரு நாணவளமாரியிடுதாரனறியாதெதிர்புகும்‌ --- வாதிகளைமோதுமது சூதனிகர்வேதகிரி மாதவனினாதுரமுறா --- வாலியதொனூல்பலவினாலருமைசாலும்விதி வாய்மையொடாராய்வுபுரியா --- மாமதியைநாளும்வளர்‌ தாரகையினாலுலக வானிருளையேகடிசெய்தான்‌ --- மேனிகரின்ஞானதபனோதயனுமாநிலமின்மீதுபிரகாசமதுவாய்‌ --- மேயினசெயாதருளுமோருதவியீததனுண்‌ மேதகையபோதவுதவி --- மீனவனினானதமிழ்‌ மானைமணமேவுபுய வேதகிரிராசனுதவி --- மேதினியில்‌யாதுநிகரோதமிளிர்பூதலமு மீதலமுமேனுமரிதே.
 
 See Morning Star, vol. 1. p. 280.
 
-He did not, however, compose any epic poems. All that he has left as specimens of his poetical talents are four didactic poems, respectively entitled _Manunīti Sadagam_ ([TAMIL]); _Manvikiyāna Sadagam_ ([TAMIL]), _Nīti Chintāmani_ ([TAMIL]) and _Sanmārgasāram_ ([TAMIL]), of which the first three contain a hundred stanzas each, and the last a hundred and ten stanzas. These poems were inscribed by him to a friend of his in Ceylon, whose name he has introduced at the end of every stanza. The Addendum to the Tamil Dictionary published at the American Mission Press at Manipy in 1842, was his production as well as the stanzas marked with asterisks in the 11th part of **Mandalapuruder's** _Nigandu_ published at the same Press in 1843.
+He did not, however, compose any epic poems. All that he has left as specimens of his poetical talents are four didactic poems, respectively entitled _Manunīti Sadagam_ (மனுநீதிசதகம்); _Manvikiyāna Sadagam_ (மனுவிக்கியானசதகம்), _Nīti Chintāmani_ (நீதிசிந்தாமணி) and _Sanmārgasāram_ (சன்மார்க்கசாரம்), of which the first three contain a hundred stanzas each, and the last a hundred and ten stanzas. These poems were inscribed by him to a friend of his in Ceylon, whose name he has introduced at the end of every stanza. The Addendum to the Tamil Dictionary published at the American Mission Press at Manipy in 1842, was his production as well as the stanzas marked with asterisks in the 11th part of **Mandalapuruder's** _Nigandu_ published at the same Press in 1843.
 
-## Velaya Desiker. --- [TAMIL].
+## Vēlaya Dēsiker. --- வேலையதேசிகர்.
 
-Velaya Desiker was born at _Kanjipuram_. After the death of his father **Kumaraswāmi Pandāram**, he repaired with his brothers **Sivaprakāsa** and **Karunaiprakāser** to Tinnevelly, where under the tuition of **Velliambala Tambirān** the head ascetic of the _Matam_ of Sindupoonturei, he studied the Tamil Grammar and Classics, and became a renowned poet. He composed the following poems, viz: the _Nallūr Purānam_ ([TAMIL]), _Vīrasingādana Puranam_ ([TAMIL]), _Ishtalingakaittala Mālei_ ([TAMIL]), _Namasivāya Līlā_ ([TAMIL]), _Krishnacharitrapārisāda Līlei_ ([TAMIL]), and _Mailattirattei Mālei_ ([TAMIL]), besides completing the _Kālati Purānam_ ([TAMIL]) which his brothers had left unfinished. He died at Perumātur in the seventy-second year of his age.
+Vēlaya Dēsiker was born at _Kanjipuram_. After the death of his father **Kumaraswāmi Pandāram**, he repaired with his brothers **Sivaprakāsa** and **Karunaiprakāser** to Tinnevelly, where under the tuition of **Velliambala Tambirān** the head ascetic of the _Matam_ of Sindupoonturei, he studied the Tamil Grammar and Classics, and became a renowned poet. He composed the following poems, viz: the _Nallūr Purānam_ (நல்லூர்ப்புராணம்), _Vīrasingādana Puranam_ (வீரசிங்காதனபுராணம்), _Ishtalingakaittala Mālei_ (இஷடலிங்கக்கைத்தலமாலை), _Namasivāya Līlei_ (நமசிவாயலீலை), _Krishnacharitrapārisāda Līlei_ (கிருஷணசரித்திரபாரிசாதலீலை), and _Mailattirattei Mālei_ (மயிலத்திரட்டைமாலை), besides completing the _Kālati Purānam_ (காளத்திபுராணம்) which his brothers had left unfinished. He died at Perumātur in the seventy-second year of his age.
 
 The following is an elegiac verse which he recited extempore on the death of his two brothers:---
 
